@@ -1,7 +1,7 @@
 ---
 title: "The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
-date: 2025-01-14T17:09:18.353Z
-updated: 2025-01-16T18:46:31.065Z
+date: 2025-01-21T23:37:02.956Z
+updated: 2025-01-22T17:29:55.343Z
 categories:
   - BestProducts
 description: "This Article Describes The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/ba04435a9c29d64e6b54466059bc1d63c6b55c0d2
 ## Microsoft Xbox Series S
 
 ![Xbox Series S](https://www.lifewire.com/thmb/AIM68phvq5X0vRf1yv3G8I9S2ic=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Hero_Square-377546108feb4adaa3226c0ee22e1238.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -45,10 +49,6 @@ Lifewire / Jeremy Laukkonen
 [View On Amazon $276](https://www.amazon.com/dp/B08G9J44ZN?tag=lifewire-onsite-prod-20&ascsubtag=5085770%7Cn852b6f87dac743c99d9ca07d1832825a20%7CB08G9J44ZN) [View On Walmart $285](https://www.walmart.com/ip/606518560) [View On Best Buy $300](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fmicrosoft-xbox-series-s-512-gb-all-digital-console-disc-free-gaming-white%2F6430277.p%3FskuId%3D6430277)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -85,10 +85,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
@@ -96,7 +92,7 @@ Lifewire / Jeremy Laukkonen
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Easier than ever before**
@@ -131,6 +127,10 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -147,10 +147,6 @@ Lifewire / Jeremy Laukkonen
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
  The biggest problem with the Xbox Series S is the lack of storage. Unlike the Series X, which packs in a 1TB drive, the Series S only offers 512GB of space. That's an extremely shallow pool to swim in when dealing with an all-digital console, as you have to download every game you play.
@@ -165,11 +161,19 @@ Lifewire / Jeremy Laukkonen
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -186,7 +190,7 @@ Lifewire / Jeremy Laukkonen
  An overhaul of the dashboard is currently in the works, and we expect it to arrive in 2023.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Controller: Iteration more than innovation**
@@ -208,7 +212,7 @@ Lifewire / Jeremy Laukkonen
  Lifewire / Jeremy Laukkonen
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
@@ -220,10 +224,6 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -281,20 +281,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-best-dramatic-writing-site-for-2024/"><u>[New] Best Dramatic Writing Site for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-unlock-your-live-feed-free-cam-recording-and-top-picks-for-2024/"><u>[New] Unlock Your Live Feed Free Cam Recording & Top Picks for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-effortless-imovie-music-enhancement-using-youtube-songs/"><u>[Updated] Effortless iMovie Music Enhancement Using YouTube Songs</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-highly-effective-ways-to-stream-and-record-sports-games/"><u>[Updated] Highly Effective Ways to Stream and Record Sports Games</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-androids-latest-advancements-for-immersive-video-viewing/"><u>[Updated] In 2024, Android's Latest Advancements for Immersive Video Viewing</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-prime-video-sets-for-live-broadcasts-2023/"><u>2024 Approved Prime Video Sets for Live Broadcasts 2023</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On HTC U23 Pro? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-extollo-lansocket-nano-unmatched-pace-low-response-time-with-power-through-capability/"><u>Comprehensive Guide to Extollo LANSocket Nano: Unmatched Pace, Low Response Time with Power-Through Capability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-efficiency-and-performance-of-linksys-velop-router-setup/"><u>In-Depth Analysis: The Efficiency & Performance of Linksys Velop Router Setup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/natm-relies-on-sequential-excavation-and-in-situ-stress-redistribution-making-it-adaptable-but-requiring-constant-monitoring-and-support-work/"><u>NATM Relies on Sequential Excavation and in Situ Stress Redistribution, Making It Adaptable but Requiring Constant Monitoring and Support Work</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/piecing-together-engaging-stream-previews/"><u>Piecing Together Engaging Stream Previews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/powerful-protection-review-insights-on-apc-back-ups-pro-1500va-with-abundant-outlets-and-user-friendly-battery-features/"><u>Powerful Protection Review: Insights on APC Back-UPS Pro 1500VA with Abundant Outlets and User-Friendly Battery Features</u></a></li>
-<li><a href="https://fox-that.techidaily.com/say-goodbye-to-airdrop-problems-swiftly-solve-them-using-these-16-key-guides/"><u>Say Goodbye to AirDrop Problems – Swiftly Solve Them Using These 16 Key Guides!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-budget-convertible-laptop-dive-into-our-asus-chromebook-flip-c302ca-assessment/"><u>The Best Budget Convertible Laptop? Dive Into Our Asus Chromebook Flip C302CA Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-most-effective-virtual-coding-schools-offering-the-latest-tech-skills/"><u>The Most Effective Virtual Coding Schools Offering the Latest Tech Skills</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-navigate-nature-androids-animated-adventure-series/"><u>[New] In 2024, Navigate Nature Android’s Animated Adventure Series</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/tep-by-step-creating-your-channels-simple-subscribe-button-for-2024/"><u>[New] Step by Step Creating Your Channel's Simple Subscribe Button for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-flash-fiction-directorial-map/"><u>[Updated] In 2024, Flash Fiction Directorial Map</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-snap-clean-top-10-apps-to-sharpen-your-digital-world/"><u>[Updated] Snap Clean Top 10 Apps to Sharpen Your Digital World</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-screenscapes-the-new-tech-frontier/"><u>2024 Approved Screenscapes The New Tech Frontier</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-apples-finest-ipad-pro-11-inch-model-2018-release/"><u>Comprehensive Review of Apple's Finest: IPad Pro 11-Inch Model (2018 Release)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/conquering-playtime-a-detailed-analysis-of-xbox-one-xs-dominance-amongst-current-gaming-systems/"><u>Conquering Playtime: A Detailed Analysis of Xbox One X's Dominance Amongst Current Gaming Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-a-sophisticated-tech-marvel-skagen-falster-2-vs-apple-an-unbiased-review/"><u>Discovering a Sophisticated Tech Marvel: Skagen Falster 2 Vs. Apple - An Unbiased Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-morning-vitality-using-ihome-zenergy-comprehensive-sleep-solution-analysis/"><u>Embrace Morning Vitality Using IHome Zenergy - Comprehensive Sleep Solution Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/excellent-value-30-tv-antenna-top-performer-at-a-bargain/"><u>Excellent Value 30 TV Antenna: Top Performer at a Bargain</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-the-ultimate-list-of-storm-surveillance-applications/"><u>Expert Picks: The Ultimate List of Storm Surveillance Applications</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expertly-selected-best-external-charger-units-for-laptops-2-groovy-picks/"><u>Expertly Selected Best External Charger Units for Laptops - 2 Groovy Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fire-up-your-tech-savvy-comparing-amazon-fire-and-ipad-tablets-for-optimal-use/"><u>Fire Up Your Tech Savvy: Comparing Amazon Fire and iPad Tablets for Optimal Use</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-maximize-profits-the-top-13-no-experience-reddit-hacks/"><u>In 2024, Maximize Profits The Top 13 No-Experience Reddit Hacks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/navigating-legalities-in-skype-call-audio-preservation-for-2024/"><u>Navigating Legalities in Skype Call Audio Preservation for 2024</u></a></li>
+<li><a href="https://win-studio.techidaily.com/step-by-step-guide-securing-your-data-with-file-encryption-on-windows-server/"><u>Step-by-Step Guide: Securing Your Data with File Encryption on Windows Server</u></a></li>
 </ul></div>
 

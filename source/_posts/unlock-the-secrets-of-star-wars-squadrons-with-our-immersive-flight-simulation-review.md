@@ -1,7 +1,7 @@
 ---
 title: "Unlock the Secrets of Star Wars: Squadrons with Our Immersive Flight Simulation Review"
-date: 2025-01-10T07:19:24.773Z
-updated: 2025-01-11T03:51:44.557Z
+date: 2025-01-18T17:45:21.237Z
+updated: 2025-01-22T19:42:40.790Z
 categories:
   - BestProducts
 description: "This Article Describes Unlock the Secrets of Star Wars: Squadrons with Our Immersive Flight Simulation Review"
@@ -43,12 +43,16 @@ Lifewire / Kelsey Simon
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Dying Light
 
 ![Dying Light](https://www.lifewire.com/thmb/YWkGikwP23JK119N4M7J22dAPJY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Dying-Light-Zombie-Game-PS4-1-f2e898d54052439c9e158d01dc3d691a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Kelsey Simon
 
@@ -73,25 +77,13 @@ Lifewire / Kelsey Simon
 
 ![Dying Light](https://www.lifewire.com/thmb/_0yEidfS3S4dy57s584t378TZYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-5-4ec68914607c4b56acff25a78887af7f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
 
 ![Dying Light](https://www.lifewire.com/thmb/P3rXmBBI1GdQfgi0vVT9xKcFw90=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-2-db5990d1f64341eaae79e22a71bb8f95.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Kelsey Simon
 
@@ -107,11 +99,11 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/8G35q3VsoSEuht_3bqsGm0Pwz-0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-7-d9d2bbe8881e476f8dfb3c13059634ed.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gameplay: Parkour and zombies galore**
 
@@ -127,7 +119,15 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/YctEePpYKsIXQ5kU-hQ8w7o9CDo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-4-1edeaf05c6ba435e9b81e68a13831ac6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Kelsey Simon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Graphics: Attention to detail**
 
@@ -143,6 +143,10 @@ Harran is a whole different city at night.
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -154,10 +158,6 @@ Harran is a whole different city at night.
 **An original in the zombie survival genre.**
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -180,24 +180,19 @@ Harran is a whole different city at night.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-innovative-10-ideas-thatll-boost-your-brand-on-igtv/"><u>[New] Innovative 10 Ideas That'll Boost Your Brand on IGTV</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/uintuplets-of-quality-youtubes-channels/"><u>[New] Quintuplets of Quality YouTube's Channels</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/outube-venture-made-easy-the-most-accessible-biz-channel-ideas-ranked/"><u>[New] YouTube Venture Made Easy The Most Accessible Biz Channel Ideas Ranked</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-an-overview-of-youtube-short-content-basics/"><u>2024 Approved An Overview of YouTube Short Content Basics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/antop-at-127-tv-antenna-review/"><u>Antop AT-127 TV Antenna Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breakdown-of-the-iphone-xs-max-exceptional-tech-meets-highest-price-bracket/"><u>Breakdown of the iPhone XS Max: Exceptional Tech Meets Highest Price Bracket</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-on-iphone-12-mini-with-or-without-password-by-drfone-ios/"><u>How To Change Your Apple ID on iPhone 12 mini With or Without Password</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-motorola-moto-g-5g-2023-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Motorola Moto G 5G (2023) Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-xiaomi-mix-fold-3-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Xiaomi Mix Fold 3 to Outlook | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-vivo-y200e-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Vivo Y200e 5G to iPad | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-apple-iphone-6s-plus-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-a-new-iphone-worth-the-plunge/"><u>Is a New iPhone Worth the Plunge?</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/myai-meets-chatgpt-which-social-platform-to-choose/"><u>MyAI Meets ChatGPT: Which Social Platform to Choose?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/night-owls-rejoice-unveiling-the-features-and-benefits-of-barnes-and-nobles-nook-glowlight-3-e-reader/"><u>Night Owls Rejoice: Unveiling the Features and Benefits of Barnes & Noble's Nook GlowLight 3 E-Reader</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rotibox-wireless-beanie-hat-evaluated-exceptional-comfort-meets-satisfactory-sound-quality/"><u>Rotibox Wireless Beanie Hat Evaluated: Exceptional Comfort Meets Satisfactory Sound Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sharing-stories/"><u>Sharing Stories</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonys-lx310bt-a-sleek-compact-player/"><u>Sony's LX310BT - A Sleek, Compact Player</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-financial-verdict-on-buying-apple-tv/"><u>The Financial Verdict on Buying Apple TV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-av2000-wifi-extender-assessment-high-performance-yet-lacks-aesthetic-appeal/"><u>TP-Link AV2000 WiFi Extender Assessment: High Performance Yet Lacks Aesthetic Appeal</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-mastering-the-art-of-screen-sharing-in-zoom/"><u>[New] Mastering the Art of Screen Sharing in Zoom</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-how-to-upload-videos-to-youtube-a-step-by-step-guide-for-2024/"><u>[Updated] How To Upload Videos to YouTube A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-swift-success-stories-leveraging-instagram-likes-and-videos-for-2024/"><u>[Updated] Swift Success Stories Leveraging Instagram Likes and Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-a-guide-to-seamless-inshot-video-segments/"><u>2024 Approved A Guide to Seamless Inshot Video Segments</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-fixes-how-to-recover-forgotten-icloud-password-on-your-iphone-14-plus-by-drfone-ios/"><u>Easy Fixes How To Recover Forgotten iCloud Password On your iPhone 14 Plus</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/elden-ring-wont-boot-heres-how-to-resolve-the-games-initial-black-screen-problem/"><u>Elden Ring Won't Boot? Here's How to Resolve the Game's Initial Black Screen Problem</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-performance-of-the-samsung-cf591-for-gamers/"><u>Evaluating the Performance of the Samsung CF591 for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-tp-link-re305-range-extender-elevating-your-wireless-experience/"><u>Expert Analysis of the TP-Link RE305 Range Extender - Elevating Your Wireless Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-weigh-in-on-samsung-galaxy-fit-a-wearable-device-tailored-to-active-living/"><u>Experts Weigh in on Samsung Galaxy Fit: A Wearable Device Tailored to Active Living</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-chrome-to-prime-viewing-the-rise-of-chromecast-with-google-tv/"><u>From Chrome to Prime Viewing: The Rise of Chromecast with Google TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-tcl-50s425-a-50-smart-roku-4k-tv-stacks-up-for-money-savvy-shoppers-2019/"><u>How the TCL 50S425, a 50 Smart Roku 4K TV Stacks Up for Money Savvy Shoppers (2019)</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-debug-and-stabilize-superhero-incidents-causing-your-computer-to-crash/"><u>How to Debug and Stabilize 'Superhero' Incidents Causing Your Computer to Crash</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/illumination-for-impact-essential-headlight-improvements/"><u>Illumination for Impact: Essential Headlight Improvements</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unbeatable-cyber-monday-deals-find-quality-laptops-for-under-500-and-a-special-offer-at-just-99/"><u>Unbeatable Cyber Monday Deals: Find Quality Laptops for Under $500 and a Special Offer at Just $99</u></a></li>
 </ul></div>
 

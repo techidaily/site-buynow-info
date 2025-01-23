@@ -1,7 +1,7 @@
 ---
 title: Acer Chromebook R 11 - Sleek Design & Ultra Portability Insights
-date: 2024-08-11T00:02:40.344Z
-updated: 2024-08-12T00:02:40.344Z
+date: 2025-01-17T02:44:16.052Z
+updated: 2025-01-22T21:07:59.764Z
 categories:
   - BestProducts
 description: This Article Describes Acer Chromebook R 11 - Sleek Design & Ultra Portability Insights
@@ -15,10 +15,6 @@ thumbnail: https://www.lifewire.com/thmb/BcQBg7Z93fjpi-_g3QfYiDHDYOE=/400x300/fi
 
 ## X-Plane 11 Global Flight Simulator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/6zqUG0dXodiu77fxFaPt_4CTLHM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
 
 Lifewire / Zach Sweat
@@ -71,9 +67,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## **Setup Process: Preflight checklist**
 
  Currently, the game is available to be purchased from a number of online retailers in either disc or digital download format. We opted to go the old-school route and purchased the game in a pack of discs, so we’ll cover this option, but if you want to grab the software online, the steps are mostly the same (even simpler).
@@ -92,10 +85,11 @@ Lifewire / Zach Sweat
 
  Once you’ve got it hooked up, Windows should recognize the device and download the necessary drivers. When those have completed installing, you should be able to see the HOTAS connected in X-Plane 11 under the control settings. You’ll also be able to fine-tune things based on your preference from there.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/O9MXEQGpCTKXA5qNcF6nXai8L2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_03-90ad9c4205af48bcbd8fcc163c630a5a.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -114,6 +108,10 @@ Lifewire / Zach Sweat
  While testing out X-Plane 11, we did experience some issues, but more so in the graphics department than the gameplay itself, which we’ll touch on in the next section.
 
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/GF7rAjDnQ1m4Lngb7N3ShcMRA6U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_05-4039c04a1e16492e8b1c6024167e28f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -139,11 +137,16 @@ Lifewire / Zach Sweat
 
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/vw51Z13aohls1Ebaej2J6l1z-0E=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_02-ae4e2d16b4db412aaa3e933fd3dfc7ab.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: In line with modern games, but pricey DLC not included**
 
  Because X-Plane 11 is a relatively newer game, the price is what you’d expect from most current AAA titles. The game is currently priced at about $60-70 depending on where you purchase it, so it’s not exactly cheap, but it is average for the market.
@@ -154,9 +157,6 @@ Lifewire / Zach Sweat
 
  One nice feature with X-Plane is that you do have the option to install mods. These free packs of user-generated content can really spice things up by providing custom aircraft and environments if you’re looking to add content without adding more money. They aren’t as numerous as the mod options for FSX, but they’re there if you want them.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **X-Plane 11 Global Flight Simulator vs. Microsoft Flight Simulator X**
 
  Comparing a classic staple in flight simulators like FSX to a more modern one like X-Plane 11 might feel a bit strange, but these two games are the most popular around even today. Given that FSX is about a decade older than X-Plane 11, you’ll need to understand that there are some big differences in terms of modernization between the two.
@@ -176,17 +176,15 @@ Lifewire / Zach Sweat
  Without a doubt, X-Plane 11 is the best current-generation flight simulator you can buy. While there are some issues with optimization, if you’ve got the computer for it, the game is stunning and currently provides the best real-world experiences.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Blade E-flite mCX2 RTF RC](https://www.lifewire.com/blade-e-flite-mcx2-rtf-rc-helicopter-review-4774670)
 * [Syma S111G RC Helicopter](https://www.lifewire.com/syma-s111g-rc-helicopter-review-4774696)
 
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  11 Global Flight Simulator
@@ -199,14 +197,11 @@ Lifewire / Zach Sweat
 * Genre  Simulator
 * ESRB rating  E
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -215,4 +210,26 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-in-depth-gopro-hero5-testing-report/"><u>[New] 2024 Approved In-Depth GoPro Hero5 Testing Report</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-elevate-your-play-with-these-5-windows-11-recording-approaches-for-2024/"><u>[New] Elevate Your Play with These 5 Windows 11 Recording Approaches for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-expertise-in-the-field-a-complete-guide-to-srt-files-for-2024/"><u>[Updated] Expertise in the Field A Complete Guide to SRT Files for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-identify-10-shadowy-instagram-story-observers-for-2024/"><u>[Updated] Identify 10 Shadowy Instagram Story Observers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-seamless-sound-transfer-top-10-youtube-to-mp3-picks-for-2024/"><u>[Updated] Seamless Sound Transfer Top 10 YouTube to Mp3 Picks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-look-at-the-gorgeous-multifaceted-dell-xps-13-convertible-laptop-7390/"><u>A Comprehensive Look at the Gorgeous, Multifaceted Dell XPS 13 Convertible Laptop 7390</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/can-hps-low-cost-amd-powered-notebook-deliver-on-productivity-demands/"><u>Can HP's Low Cost, AMD-Powered Notebook Deliver on Productivity Demands?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-your-digital-companion-amazon-fire-tablet-vs-ipad-making-the-smart-pick/"><u>Choosing Your Digital Companion: Amazon Fire Tablet Vs. IPad - Making the Smart Pick</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/common-stock-30-million-shares-at-par-value-of-10-300/"><u>Common Stock (30 Million Shares at Par Value of $10): $300</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-apc-back-ups-pro-1500va-powerful-performance-with-multiple-outlets-and-hot-swap-battery-feature/"><u>Comprehensive Analysis of the APC Back-UPS Pro 1500VA: Powerful Performance with Multiple Outlets & Hot-Swap Battery Feature</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-lenovo-ideapad-130s-confronting-power-boundaries-and-surprising-ease-of-use/"><u>Comprehensive Review of Lenovo IdeaPad 130S: Confronting Power Boundaries and Surprising Ease-of-Use</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-poco-m6-5g-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Poco M6 5G FRP Locks</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/overcome-the-invisibility-of-short-videos/"><u>Overcome The Invisibility of Short Videos</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-amd-vega-amids-software-update-on-windows-os/"><u>Step-by-Step Guide: AMD Vega Amids Software Update on Windows OS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722727547558-unbeatable-price-performance-ratio-with-budget-long-range-traffic-detectors-here-are-some-options-to-consider-on-escortpassport/"><u>Unbeatable Price-Performance Ratio with Budget Long Range Traffic Detectors - Here Are Some Options to Consider on EscortPassport</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerhouse-apples-2020-mac-mini-with-m1-outshines-competitors-in-every-way/"><u>Unveiling The Powerhouse: Apple's 2020 Mac Mini With M1 Outshines Competitors in Every Way</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-powerhouse-comprehensive-review-of-apples-m1-chip-mac-mini-outshining-rivals/"><u>Unveiling the Powerhouse: Comprehensive Review of Apple's M1 Chip Mac Mini - Outshining Rivals</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/your-ultimate-resource-steps-to-free-premium-image-use/"><u>Your Ultimate Resource Steps to Free Premium Image Use</u></a></li>
+</ul></div>
 

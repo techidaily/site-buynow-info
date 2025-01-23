@@ -1,7 +1,7 @@
 ---
 title: Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
-date: 2025-01-12T17:51:54.253Z
-updated: 2025-01-16T16:48:19.766Z
+date: 2025-01-17T21:00:54.209Z
+updated: 2025-01-22T21:10:06.474Z
 categories:
   - BestProducts
 description: This Article Describes Critical Review of the Viair 88P Mobile Air Compressor - Incredible Force, Yet Some Trade-Offs
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/ZevQObLlQ-0zecghfgF1_QfuuRw=/400x300/fi
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
@@ -49,10 +49,6 @@ Lifewire / Todd Braylor
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
 
 3.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Escort Passport S55
 
@@ -80,7 +76,7 @@ Lifewire / Todd Braylor
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design:** **A bit cheap**
@@ -92,6 +88,10 @@ Lifewire / Todd Braylor
  The speaker on this radar detector is very small, about a quarter-inch square, but the audio alerts are high volume. You can select between standard and loud tones. The SmartCord power cable for the S55 has a handy mute button on it so you don't have to reach over the dash.
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easy installation**
 
@@ -113,10 +113,6 @@ Lifewire / Todd Braylor
 
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: You get what you pay for**
 
  With an MSRP of $128, the Passport S55 is a low-end radar detector priced accordingly. More advanced radar detectors can easily be several hundred dollars more expensive, and the S55 is a good deal if you plan to use it primarily on the highway. Door-openers along the city and commercial roads will frequently trigger false alerts. You get what you pay for with the Escort Passport S55—maximum sensitivity and range without advanced filtering capabilities.
@@ -134,6 +130,10 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,24 +164,20 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-the-aurora-hdr-experience-is-it-transformative/"><u>[New] The Aurora HDR Experience Is It Transformative?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-huion-kamvas-gt-191-art-pad-exceptional-quality-in-a-grande-format/"><u>Evaluating the Huion Kamvas GT-191 Art Pad – Exceptional Quality in a Grande Format</u></a></li>
-<li><a href="https://win-dash.techidaily.com/hassle-free-download-secure-and-fast-installation-guide-for-wacom-intuos-pro-drivers-on-windows-n/"><u>Hassle-Free Download: [Secure & Fast] Installation Guide for Wacom Intuos Pro Drivers on Windows N</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-speed-luxury-ride-with-the-glion-dolly-electric-scooter-a-comprehensive-overview/"><u>High-Speed Luxury Ride with the Glion Dolly Electric Scooter - A Comprehensive Overview</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/home-security-head-to-head-evaluating-ring-versus-nest-video-doorbells/"><u>Home Security Head-to-Head: Evaluating Ring Versus Nest Video Doorbells</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo Y36? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-beat-the-competition-macs-7-best-speech-to-text-apps-explored/"><u>In 2024, Beat the Competition Mac's 7 Best Speech-to-Text Apps Explored</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-realme-10t-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Realme 10T 5G Phone</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-unlock-iphone-editing-magic-shorter-smaller-videos/"><u>In 2024, Unlock iPhone Editing Magic Shorter, Smaller Videos</u></a></li>
-<li><a href="https://discover-blog.techidaily.com/milos-savic-expert-in-corporate-information-safeguarding-with-abbyy/"><u>Miloš Savić: Expert in Corporate Information Safeguarding with ABBYY</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/never-miss-a-beat-with-your-health-a-comprehensive-guide-to-fitbit-inspire-hr-trackers-round-the-clock-features/"><u>Never Miss a Beat with Your Health: A Comprehensive Guide to Fitbit Inspire HR Tracker's Round-the-Clock Features</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-htc-u23-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On HTC U23 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/redefining-visual-experience-and-performance-with-the-latest-imac-m1-chip-evaluation/"><u>Redefining Visual Experience and Performance with the Latest iMac M1 Chip Evaluation</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-your-icloud-sync-difficulties-expert-tips-and-techniques/"><u>Resolving Your iCloud Sync Difficulties - Expert Tips and Techniques</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-watch-active2-timeless-design-meets-latest-technology/"><u>Samsung Galaxy Watch Active2: Timeless Design Meets Latest Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/smaller-screen-big-fun-discovering-the-advantages-of-the-nintendo-switch-lite/"><u>Smaller Screen, Big Fun: Discovering the Advantages of the Nintendo Switch Lite</u></a></li>
-<li><a href="https://games-able.techidaily.com/stay-unseen-tricks-for-steam-offline-look/"><u>Stay Unseen: Tricks for Steam Offline Look</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-kensuns-portable-air-compressor-unmatched-durability-and-mobility/"><u>The Ultimate Verdict on Kensun's Portable Air Compressor: Unmatched Durability & Mobility</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-the-potential-of-blog-monetization-with-buyselladscom-strategies/"><u>Unlocking the Potential of Blog Monetization with BuySellAds.com Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhancing-video-success-top-8-yt-thumbnail-strategies/"><u>[Updated] Enhancing Video Success Top 8 YT Thumbnail Strategies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-ultimate-list-of-public-domain-picture-banks/"><u>[Updated] In 2024, Ultimate List of Public Domain Picture Banks</u></a></li>
+<li><a href="https://games-able.techidaily.com/game-on-top-10-best-free-fps-browser-games-unveiled/"><u>Game On! Top 10 Best Free FPS Browser Games Unveiled</u></a></li>
+<li><a href="https://win-unique.techidaily.com/how-to-handle-the-impending-end-of-life-date/"><u>How to Handle the Impending End-of-Life Date?</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-essential-steps-for-flawless-inshot-edits/"><u>In 2024, Essential Steps for Flawless Inshot Edits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-into-the-pros-and-cons-of-hosting-meetings-on-webex-online-tool/"><u>Insights Into the Pros and Cons of Hosting Meetings on WebEx Online Tool</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-apple-iphone-13-pro-max-fixed-drfone-by-drfone-virtual-ios/"><u>iSpoofer is not working On Apple iPhone 13 Pro Max? Fixed | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/madden-nfl-19-analysis-outstanding-features-amidst-growing-familiarity/"><u>Madden NFL 19 Analysis: Outstanding Features Amidst Growing Familiarity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-the-oculus-quist-2-premium-vr-adventures-for-a-fantastic-deal/"><u>Mastering the Oculus Quist 2: Premium VR Adventures for a Fantastic Deal!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-recommended-netgear-routers-for-the-year-2024/"><u>Most Recommended Netgear Routers for the Year 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/next-level-voice-assistant-experience-with-the-new-4th-gen-echo-show/"><u>Next-Level Voice Assistant Experience with the New 4Th Gen Echo Show</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723009609888-optimizing-your-pc-experience-with-fixed-f1-2e2021s-frame-rate-drop-say-goodbye-to-lag/"><u>Optimizing Your PC Experience with Fixed F1 2E2021's Frame Rate Drop - Say Goodbye to Lag</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sabrent-portable-mouse-with-precise-tracking-and-durable-cord-perfect-for-travel-enthusiasts/"><u>Sabrent Portable Mouse with Precise Tracking & Durable Cord – Perfect for Travel Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-nexus-of-nature-and-neatness-designing-island-homes/"><u>The Nexus of Nature and Neatness: Designing Island Homes</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/wish-to-look-at-all-my-contacts-media-shared-in-chats/"><u>Wish to Look at All My Contacts' Media Shared in Chats</u></a></li>
 </ul></div>
 

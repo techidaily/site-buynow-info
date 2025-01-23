@@ -1,7 +1,7 @@
 ---
 title: "Build-a-Robot with Makeblock mBot Kit: A Comprehensive Review of the Engaging DIY Experience"
-date: 2025-01-06T20:08:23.953Z
-updated: 2025-01-11T01:56:39.543Z
+date: 2025-01-17T04:53:12.361Z
+updated: 2025-01-22T19:13:04.415Z
 categories:
   - BestProducts
 description: "This Article Describes Build-a-Robot with Makeblock mBot Kit: A Comprehensive Review of the Engaging DIY Experience"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/77e8784ddc309f16b18e178f4d3e63a6403d2aa17
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Clearstream ECLIPSE
 
@@ -46,7 +50,7 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/0gXsFyigpZzsnNAEj3tIrKImB8M=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_HeroSquare-79582ad545a44cf1993681dff0c33449.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
@@ -72,19 +76,15 @@ Lifewire / Jonno Hill
 
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/AbdriPZwiRfd8iHxT9N5E6Ae2hk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_03-d434cf7b4c5f4f73b08c8c220fd0d43e.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Inoffensive but unexceptional**
 
  The ClearStream Eclipse Antenna isn’t the most beautiful piece of hardware to ever grace my living room, but it’s inoffensive enough to not really be an issue. The antenna has a thin, flat, disc shape that is black on one side and white on the other. It is designed to be placed directly onto a flat surface, but you will probably be able to get away with a lot of different orientations depending on how close you are to the signal source.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup: Simple and easy**
 
@@ -98,10 +98,6 @@ Lifewire / Jonno Hill
 
  I’ve tested a lot of similar antennas recently, and the ClearStream Eclipse Antenna had the best results of any unpowered antenna, even beating out a few of the powered ones. From my apartment, I was able to get acquire an average of 65 channels across all my tests. For reference, the worst-performing antenna found just 47, and the best, 76\.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Fair to middling**
 
  Antenna’s Direct rates the ClearStream Eclipse Antenna for up to 35 miles of range, although I’ve seen reports of people getting good results from further, or having trouble from much closer. My apartment is well within the supported range, so my sentiments reflect its use in city settings more than suburbs or exurbs.
@@ -109,10 +105,14 @@ Lifewire / Jonno Hill
 ![ClearStream Eclipse Antenna](https://www.lifewire.com/thmb/i57THpEHitQ6h-N5c-bgGLEHwJs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4078201-AntennasDirect_TVAntennas_Eclipse_04-6ea1dbbe93374539876c7e76dcebb18e.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not bad for the performance**
 
@@ -155,18 +155,19 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-understanding-luts-transforming-images-magic/"><u>[New] In 2024, Understanding LUTs Transforming Images Magic</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-decoding-the-mechanics-of-subscriber-tracking/"><u>[Updated] In 2024, Decoding the Mechanics of Subscriber Tracking</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-harness-free-software-to-broadcast-virtual-events/"><u>[Updated] In 2024, Harness Free Software to Broadcast Virtual Events</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/2024-approved-master-organization-with-mematics-toolkit/"><u>2024 Approved Master Organization with Mematic's Toolkit</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/breathe-life-into-tweets-animating-insta-story-texts-for-2024/"><u>Breathe Life Into Tweets Animating Insta Story Texts for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-wifi-expansion-evaluating-the-performance-of-the-tp-link-re200-ac750/"><u>Budget-Friendly WiFi Expansion: Evaluating the Performance of the TP-Link RE200 AC750</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/comparing-oled-vs-led-technology-understanding-key-differences-and-determining-superiority/"><u>Comparing OLED vs LED Technology: Understanding Key Differences and Determining Superiority</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-exercise-routine-with-the-samsung-galaxy-fit-the-top-pick-for-health-tracking/"><u>Elevate Your Exercise Routine with the Samsung Galaxy Fit - The Top Pick for Health Tracking</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/testing-and-evaluation-the-versatile-sumind-bt70b-bluetooth-unit-in-vehicles/"><u>Testing and Evaluation: The Versatile Sumind BT70B Bluetooth Unit in Vehicles</u></a></li>
-<li><a href="https://discover-great.techidaily.com/transforming-different-video-and-sound-files-a-comprehensive-tutorial-for-seamless-format-conversion/"><u>Transforming Different Video and Sound Files: A Comprehensive Tutorial for Seamless Format Conversion</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unlimited-legal-fb-beats-access-for-2024/"><u>Unlimited, Legal FB Beats Access for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-benefits-of-ergodriven-mats-the-key-to-comfortable-fatigue-free-standing-workstations/"><u>Unveiling the Benefits of Ergodriven Mats - The Key to Comfortable, Fatigue-Free Standing Workstations</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-genius-of-samsung-galaxy-watch-a-masterpiece-of-external-and-internal-design/"><u>Unveiling the Genius of Samsung Galaxy Watch: A Masterpiece of External and Internal Design</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ive-audience-score-keeper-apps/"><u>[New] Live Audience Score Keeper Apps</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-which-is-superior-gopro-v5-edge-or-keymission-for-2024/"><u>[New] Which Is Superior, GoPro V5 Edge or Keymission for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-passion-to-paychecks-your-vlog-venture-guide/"><u>[Updated] In 2024, From Passion to Paychecks Your Vlog Venture Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mental-wellness-through-virtual-environments-for-2024/"><u>[Updated] Mental Wellness Through Virtual Environments for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-elevating-professional-skills-the-essentials-of-video-editing-on-windows-10/"><u>2024 Approved Elevating Professional Skills The Essentials of Video Editing on Windows 10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-beginners-guide-to-the-syma-x5c-remotely-piloted-quadcopter/"><u>Affordable Beginner's Guide to the SYMA X5C Remotely Piloted Quadcopter</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-vivo-t2-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Vivo T2 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/perfect-your-skills-applying-radial-blur-in-photoshop-easily-for-2024/"><u>Perfect Your Skills Applying Radial Blur in Photoshop Easily for 2024</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/step-by-step-tutorial-for-easily-and-safely-duplicating-your-windows-10-x64x32-system-drive/"><u>Step-by-Step Tutorial for Easily and Safely Duplicating Your Windows 10 (X64/X32) System Drive</u></a></li>
+<li><a href="https://apple-account.techidaily.com/the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-apple-iphone-se-by-drfone-ios/"><u>The Easy Way to Remove an Apple ID from Your MacBook For your Apple iPhone SE</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-powerhouse-detailed-apc-back-ups-pro-evo-1500va-review-with-abundant-energy-and-easy-to-swap-batteries/"><u>Unpacking the Powerhouse: Detailed APC Back-UPS Pro Evo 1500VA Review with Abundant Energy & Easy-to-Swap Batteries</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-differences-in-depth-analysis-of-ipad-versus-ipad-air/"><u>Unveiling Differences: In-Depth Analysis of iPad Versus iPad Air</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-guide-to-the-cost-effective-amazonbasics-6-sheets-cross-cut-destroyer/"><u>User Guide to the Cost-Effective AmazonBasics 6-Sheets Cross Cut Destroyer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/versatile-cameras-at-affordable-prices-fz80-example/"><u>Versatile Cameras at Affordable Prices - FZ80 Example</u></a></li>
 </ul></div>
 

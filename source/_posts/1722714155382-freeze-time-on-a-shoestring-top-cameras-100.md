@@ -1,7 +1,7 @@
 ---
 title: "Freeze Time on a Shoestring: Top Cameras, $100!"
-date: 2024-08-11T00:00:36.475Z
-updated: 2024-08-12T00:00:36.475Z
+date: 2025-01-17T18:43:01.523Z
+updated: 2025-01-23T00:20:39.103Z
 categories:
   - BestProducts
 description: "This Article Describes Freeze Time on a Shoestring: Top Cameras, $100!"
@@ -18,10 +18,11 @@ of 10
 
 ## [Best Match-3 Boredom Buster: Candy Crush Saga](https://king.com/game/candycrush)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![A game of Candy Crush Saga](https://www.lifewire.com/thmb/Hf4kwTbjcQtg5oA_gPLp5DOO1wc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/CandyCrushSaga-3d896c6051c741758be70ebe64cb55fb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 King
 
@@ -52,10 +53,6 @@ of 10
 
 ## [Best Arcade Game for Zombie Lovers: Plants vs. Zombies](https://www.ea.com/ea-studios/popcap/plants-vs-zombies)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Two plants defend their lawn in Plants vs. Zombies](https://www.lifewire.com/thmb/9mRVdphMGZ4Bt1jRfvqfKsODGGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-24at9.08.02AM-5bd07cfa46e0fb002632da8d.png)
 
  What We Like
@@ -83,12 +80,13 @@ of 10
 
 of 10
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Best Game for Quick Action: Crossy Road](https://www.crossyroad.com/)
 
 ![Someone tries to cross the road in Crossy Road](https://www.lifewire.com/thmb/lUpNnYBG355TLpRt9drhG0mNyPQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-24at8.59.11AM-5bd07b1ec9e77c0051fa03af.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -118,9 +116,6 @@ of 10
 
 ## [Best Game for a Hint of Nostalgia: Super Mario Emulator](https://supermarioemulator.com)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Mario stands on a pipe in Super Mario Emulator](https://www.lifewire.com/thmb/OEIXcEP9CDCAsNMBb8ZkqgWM6Do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-25at7.23.32PM-5bd25ebbc9e77c0051b6ba70.png)
 
  What We Like
@@ -144,6 +139,10 @@ of 10
 ## [Best Casual Puzzle Game: Two Dots](https://www.dots.co/twodots/)
 
 ![Two Dots is a challenging matching game](https://www.lifewire.com/thmb/DlawY4Pfz62713Tv5MPwWLrQkBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TwoDots-5bd26032c9e77c005866e643.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -173,9 +172,6 @@ of 10
 
 ## [Best Game for Music Lovers: Incredibox](https://www.incredibox.com)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Craft your own tunes in Incredibox](https://www.lifewire.com/thmb/Dr2OJr00ImseghapjdxRr6RjN0U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-25at8.02.56PM-5bd267d4c9e77c0051b86ac9.png)
 
  What We Like
@@ -204,20 +200,12 @@ _Incredibox_ is available to download on Android for $4.49 and on iOS devices fo
 
 of 10
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## [Best Story-Driven Puzzler: Gardenscapes](https://playrix.com/games/gardenscapes)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Gardenscapes is a match-3 puzzle game with some simulation elements](https://www.lifewire.com/thmb/n7k7EWgT75c4j8tL71IHUOoL1TE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/IMG_7171-5bd26212c9e77c00510b33f2.PNG)
 
  What We Like
@@ -248,10 +236,11 @@ of 10
 
 ## [Most Addicting Building Game: Age of 2048](http://nlabsoft.com/category/games/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![A player builds up their civilization in Age of 2048](https://www.lifewire.com/thmb/TDdAnX1jKCkMytRBWvhnspM-9aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2048-5bd2646246e0fb0026d3f8c2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -279,8 +268,9 @@ _Age of 2048_ is free to download and play on Android and iOS devices. It offers
 of 10
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## [Best Brain Teaser: Unpuzzle 2](https://www.mathplayground.com/logic%5Funpuzzle2.html)
 
 ![Unpuzzle 2 is a jigsaw game with a twist](https://www.lifewire.com/thmb/bJiObh6gqNpy2txxMtQNRh-jrr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-25at7.58.06PM-5bd2670dc9e77c0051b84ae0.png)
@@ -305,15 +295,13 @@ _Unpuzzle 2_ is only available as a free-to-play game online. There are no mobil
 
 of 10
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Best Social Sim Game: Animal Crossing Pocket Camp](https://ac-pocketcamp.com/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Key art for Animal Crossing: Pocket Camp](https://www.lifewire.com/thmb/TM-EGuJ6Ks0ih4or2Nm-I7xUl8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AnimalCrossingPocketCamp-049e54c6be8143ff953b136ed13e9022.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Nintendo
 
@@ -361,8 +349,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -370,4 +356,21 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-twitters-live-video-landscape/"><u>[New] In 2024, Navigating Twitter's Live Video Landscape</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-behind-the-scenes-of-music-enhanced-snapchats-for-2024/"><u>[Updated] Behind the Scenes of Music-Enhanced Snapchats for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-dive-into-windows-new-horizons-the-latest-iteration-for-2024/"><u>[Updated] Dive Into Windows' New Horizons The Latest Iteration for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/download-the-latest-xrecorder-software-for-windows-users-compatible-with-win11-win10-win81-win8-and-win7/"><u>Download the Latest XRecorder Software for Windows Users: Compatible with Win11, Win10, Win8.1, Win8 & Win7</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/expert-review-non-apple-non-tile-wallet-airtag-emerges-as-a-top-contender-insights-from-zdnet/"><u>Expert Review: Non-Apple, Non-Tile Wallet AirTag Emerges as a Top Contender - Insights From ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-lifes-moments-in-stunning-4k-akaso-ek7000-review/"><u>Get Life's Moments in Stunning 4K - AKASO EK7000 Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-uninterrupted-party-vibes-with-ion-audios-tailgater-plus-the-ultimate-sound-system-reviewed/"><u>Get Uninterrupted Party Vibes with ION Audio's Tailgater Plus - The Ultimate Sound System Reviewed!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-expert-tips-for-mastering-screencastifys-features/"><u>In 2024, Expert Tips for Mastering Screencastify's Features</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-phone-number-from-your-apple-id-on-your-apple-iphone-6-by-drfone-ios/"><u>In 2024, How To Remove Phone Number From Your Apple ID on Your Apple iPhone 6?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-zmi-powerpack-20000-your-go-to-compact-energy-source/"><u>In-Depth Analysis of the ZMI PowerPack 20000: Your Go-To Compact Energy Source</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-samsung-cf591-evaluation-is-it-the-ideal-choice-for-gamers/"><u>In-Depth Samsung CF591 Evaluation: Is It the Ideal Choice for Gamers?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sb210-by-soundbot-an-impressive-audio-device-with-superior-performance-in-optimal-conditions/"><u>SB210 by Soundbot - An Impressive Audio Device with Superior Performance in Optimal Conditions</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/visit-nvidias-official-website/"><u>Visit NVIDIA's Official Website.</u></a></li>
+<li><a href="https://article-helps.techidaily.com/your-ultimate-2024-camcorder-selection-compiled-here/"><u>Your Ultimate 2024 Camcorder Selection Compiled Here</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Ace Choices: The Best Mice You Can Use with an iPad"
-date: 2024-08-11T00:01:04.095Z
-updated: 2024-08-12T00:01:04.095Z
+date: 2025-01-21T18:25:11.539Z
+updated: 2025-01-22T16:37:35.874Z
 categories:
   - BestProducts
 description: "This Article Describes Ace Choices: The Best Mice You Can Use with an iPad"
@@ -16,6 +16,10 @@ thumbnail: https://thmb.techidaily.com/e7a938c8213dc5d370405bab4afa736e010a188d2
 ## Michael Kors Access Gen 5E MKGO
 
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/IH76ZF0jleVs-bjw9J2WoFen0eE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_HeroSquare-6cc84a98de3e43e1a252acfbcc81fbb3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -39,10 +43,11 @@ Lifewire / Yoona Wagener
 
 ## Michael Kors Access Gen 5E MKGO
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/4iXRVsuxT7GiqqU4k4vdl39TFNg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_HeroSquare-6cc84a98de3e43e1a252acfbcc81fbb3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -68,6 +73,10 @@ Lifewire / Yoona Wagener
 
  This latest iteration of the Access bundles first-rate perks like accepting or rejecting calls via Bluetooth calling, Google Pay, sleep and exercise logging, as well as several battery modes. While it lacks serious fitness tracking chops, the Access Gen 5E flourishes with luxe styling and everyday conveniences.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Design: Luxe sensibility front and center
 
  If you’re interested in a feature-rich smartwatch that doubles as a statement fashion accessory, you won’t be disappointed by the Access Gen 5E. The 43-millimeter case sports an eye-catching pave pattern around the perimeter and sturdy aluminum construction. A substantial and responsive multipurpose button with the MK logo etched into it serves as a thoughtful accent. All of these details give this watch an elevated look from the very first glance.
@@ -78,16 +87,10 @@ Lifewire / Yoona Wagener
 
  New Wear OS users will appreciate the guided instructions that appear after pairing the watch to walk you through the various menus and swiping navigations. Even without this guidance, most menus are intuitive to use. My favorite menu was the quick-access menu that appears with a swipe-down motion. It contains a handy collection of shortcuts for basics like adjusting battery mode settings. It’s also home to the Theater Mode option, which turns the display off with a tap—especially convenient for dimming the screen at bedtime.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Comfort: Best outside of exercise
 
  Though it’s a slight contrast to the high-end details of the face, the MKGO version of the Access Gen 5E comes with a comfortable and flexible Michael Kors branded rubber strap. This added touch offers practicality and comfort without taking away from the upscale design fit for fancier occasions, too.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/Al5yHGgflExrdPzuv1O8nFyRL0M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_03-4a139c21df9b44ce8a0a5b5604859b26.jpg)
 
 Lifewire / Yoona Wagener
@@ -97,6 +100,10 @@ Lifewire / Yoona Wagener
  In addition to a supple rubber material on the band, the Access Gen 5E MKGO offers a unique push-stud clamping mechanism. Two studs snap into place in one of the circular band notches, creating a neat and tidy look without excess band material flapping around.
 
  This feature made clasping the band speedy, but I still experienced a slightly loose fit overall. During normal wear, while relaxing, sleeping, or working at a desk, this wasn’t an issue. While running, the case’s considerable weight—which comes in at a hefty 54.6 grams—felt a little too bulky for high-impact activity.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Performance: Good for the essentials
 
@@ -126,37 +133,29 @@ Lifewire / Yoona Wagener
 
  Regardless of your operating system, you’ll need a Google account to get this watch paired and activated and to take advantage of contactless pay through Google Pay. And if you’re married to Google Fit for health insights, you’ll need that app too.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Battery: Potential for multi-day longevity
 
  The manufacturer suggests that this smartwatch battery should last up to 24 hours, depending on usage, and provides several battery modes to work with to help make the most of the battery. Daily mode lived up to its name and lasted about a whole day, while the multi-day Extended mode, which turns off most smart features, lasted only about a day and a half for me.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/BT4hOR8gRPGpDwIsxjK35ikzSeg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_02-503172a94cbc444389f491de49cf2646.jpg)
 
 Lifewire / Yoona Wagener
 
  Regardless of the mode you choose, the watch will automatically enter a time-only mode once the battery hits 9 percent. This thoughtful touch allows this device to function as a straightforward watch as well. When you charge up, the handy magnetic USB charging cable is easy to attach to the device and provides quick charging: just a little over an hour, maximum.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Price: Luxury style at a friendlier entry point
 
  At about $250, the Access Gen 5E doesn’t require a premium buy-in like some of the latest, feature-loaded smartwatches from the Fossil and Michael Kors partnership. It’s also available from some retailers for less than $200, which adds even more value, given its solid smartwatch feature set.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Michael Kors Access Gen 5E MKGO](https://www.lifewire.com/thmb/wVQl98NhNnzvvYRzkBP9Uzgvfw4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Michael_Kors_Access_Gen_5E_MKGO_04-a6c2bd0b7bdd422d81b96dde2c213f72.jpg)
 
 Lifewire / Yoona Wagener
 
  When comparing this device to other fashion smartwatches, it’s challenging to find a competitor outside of the Michael Kors/Fossil sphere that differs in any notable way. If you’re looking for something comparably priced with more of a fitness bent, the Samsung Galaxy Watch Active2 is worth a look.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Michael Kors Access Gen 5E vs. Samsung Galaxy Watch Active2
 
@@ -174,15 +173,16 @@ Lifewire / Yoona Wagener
 
  The Michael Kors Access Gen 5E MKGO is an upscale smartwatch with luxury looks and a slightly sporty sensibility. Its Wear OS and Fossil Gen 5E foundation provide a solid foundation for everyday ease with features like Bluetooth calling, Google Assistant, and battery modes. And while it offers some fitness tracking, this wearable dazzles primarily as a lifestyle accessory.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Apple Watch Series 6](https://www.lifewire.com/apple-watch-series-6-review-5087552)
 * [Garmin Venu](https://www.lifewire.com/garmin-venu-review-4843916)
 * [Mobvoi TicWatch Pro 4G LTE](https://www.lifewire.com/ticwatch-pro-4g-review-4797547)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Access Gen 5E MKGO
@@ -206,8 +206,6 @@ Lifewire / Yoona Wagener
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -215,4 +213,26 @@ Lifewire / Yoona Wagener
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/udiovisual-symphony-adding-music-to-your-youtube-masterpieces/"><u>[New] Audiovisual Symphony Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-media-meld-space/"><u>[New] In 2024, Media Meld Space</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-spyro-reimagined-collection-critique-tiny-hero-with-massive-worth/"><u>Comprehensive Spyro Reimagined Collection Critique: Tiny Hero with Massive Worth</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deconstructing-cyberpunk-2077-a-game-of-great-ideas-yet-incomplete/"><u>Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-infinix-note-30-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Infinix Note 30 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-techniques-for-optimizing-prints-with-photoshop/"><u>Essential Techniques for Optimizing Prints with Photoshop</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-latest-microsoft-surface-pro-7-upgrade-more-of-the-same-with-improved-power/"><u>Expert Analysis on the Latest Microsoft Surface Pro 7 Upgrade - More of the Same with Improved Power</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-afar-hugs-and-merriment-with-petcube-bites-2/"><u>From Afar, Hugs and Merriment with Petcube Bites 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-apple-iphone-12-pro-max-why-going-large-makes-a-difference/"><u>In-Depth Analysis of the Apple iPhone 12 Pro Max: Why Going Large Makes a Difference</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/izabella-miko-inspirational-wallpaper-collections-and-bgs-explore-the-beauty-with-yl-computings-digital-artwork/"><u>Izabella Miko Inspirational Wallpaper Collections & BGs: Explore the Beauty with YL Computing's Digital Artwork</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mirari-ok-to-wake-kids-alarm-clock-evaluation-a-parents-must-have-item/"><u>Mirari OK To Wake! Kid's Alarm Clock Evaluation – A Parent’s Must-Have Item!</u></a></li>
+<li><a href="https://win-forum.techidaily.com/navigating-the-giants-of-social-media-facebook-twitter-and-instagram/"><u>Navigating the Giants of Social Media: Facebook, Twitter & Instagram</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/one-ring-to-rule-them-all-the-ultimate-guide-for-using-one-phone-number-on-different-platforms/"><u>One Ring to Rule Them All: The Ultimate Guide for Using One Phone Number on Different Platforms</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/remove-the-lock-screen-fingerprint-of-your-poco-c65-by-drfone-android/"><u>Remove the Lock Screen Fingerprint Of Your Poco C65</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/step-by-step-guide-total-reset-of-your-iphone-on-pcsmacs-with-stellar/"><u>Step-by-Step Guide: Total Reset of Your iPhone on PCs/Macs with Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-finest-game-compilation-perfect-choices-to-fight-off-boredom/"><u>The Finest Game Compilation: Perfect Choices to Fight Off Boredom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-factors-to-evaluate-when-choosing-your-next-fitness-wristband/"><u>Top 5 Factors to Evaluate When Choosing Your Next Fitness Wristband</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-eliminating-nioh-2-complete-edition-game-crashes-for-good/"><u>Troubleshooting Guide: Eliminating Nioh 2 Complete Edition Game Crashes for Good</u></a></li>
+<li><a href="https://howto.techidaily.com/want-to-uninstall-google-play-service-from-motorola-moto-e13-here-is-how-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Want to Uninstall Google Play Service from Motorola Moto E13? Here is How | Dr.fone</u></a></li>
+</ul></div>
 

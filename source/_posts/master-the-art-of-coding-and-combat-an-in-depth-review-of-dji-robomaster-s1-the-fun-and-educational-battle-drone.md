@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2025-01-15T16:48:30.880Z
-updated: 2025-01-16T21:58:31.258Z
+date: 2025-01-21T00:58:18.854Z
+updated: 2025-01-23T04:30:03.185Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -43,16 +43,12 @@ Lifewire / Fred Meyer
 4
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear AC1200 Wireless WiFi Range Extender (EX6200)
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/ypwoGr7PKp9XOfm_EgF2BsvzZkg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/hero-2LW4043312-1-5c924aa1c9e77c0001e11e41.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -87,7 +83,7 @@ Lifewire / Fred Meyer
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Fred Meyer
@@ -106,11 +102,19 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Fred Meyer
 
  Once you've got that taken care of, you'll have to find the best place for your extender's new home. If you're trying to improve the signal or hardwire something 25 feet away from your router or less, just plop it down in the area and you should be good to go. For further distances, you'll need to use a bit more finesse. Place the extender halfway between the router and the area you're trying to extend your Wi-Fi. Then you can check the light on top that shows the status of the connection between the extender and the router. Red is bad, yellow is mediocre, and green is good. If you've got a green, head over to the previously dead Wi-Fi area and check your network.
 
  If you've followed the above steps and your Wi-Fi connection is strong, you're good-to-go and you can start living your life with the Wi-Fi coverage you always knew you deserved. Otherwise, you'll have to shuffle the extender either closer to the dead zone or closer to the router until you find the sweet spot.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Netgear magic**
 
@@ -121,6 +125,10 @@ Lifewire / Fred Meyer
  All-in-all, the Netgear Genie software isn't going to blow your mind, but it's straightforward, and since most network configuration settings are done at the router, you don't need a ton of options.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Fred Meyer
 
@@ -142,10 +150,6 @@ Lifewire / Fred Meyer
 
 Lifewire / Fred Meyer
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Network Performance: Adequate but not spectacular**
 
  Again, the EX6200 is a mid-range unit with a great design and a few bonuses, so don't buy it thinking you're going to get high-end performance. We found the unit performed adequately, but didn't exceed expectations. Most of the time, the EX6200 hovered around 500 to 700 Mbps up to the 50 feet mark. By the time we had reached 75 feet that speed had more than halved to 200-250 Mbps. At 85-90 feet the speed had dropped to 50 to 70 Mbps and we started experiencing intermittent disconnects.
@@ -154,13 +158,13 @@ Lifewire / Fred Meyer
 
  From our testing, we'd say the sweet spot for the EX6200 is 50 feet or less. Your results, of course, may vary depending on how many walls you place between yourself and the device and their composition. One area we did find the EX6200 excelled in is verticality. It seems like a lot of plug-in models have their range dramatically affected by height, but the EX6200 transmitted to the second floor into a room around 40 feet away in a straight line and we saw speeds around 300 to 350 Mbps.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A solid balance**
 
  At $99.99 (MSRP) the EX6200 isn't exactly cheap. You can get extenders for $30 or lower that get the job done, but that's all they'll do. We found that the EX6200 struck a good balance between price and features, and is an excellent extender for most use cases.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Middle of the road choice**
 
@@ -180,10 +184,6 @@ Lifewire / Fred Meyer
 
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 * [TP-Link AC1200 RE305](https://www.lifewire.com/tp-link-ac1200-wifi-range-extender-re305-review-4589559)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -220,21 +220,19 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-approaches.techidaily.com/new-the-art-of-crafting-a-youtube-video-with-100kplus-reach/"><u>[New] The Art of Crafting a YouTube Video with 100K+ Reach</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-top-9-indoor-game-apps-perfect-for-android-without-connectivity-for-2024/"><u>[Updated] Top 9 Indoor Game Apps - Perfect For Android Without Connectivity for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-integration-for-seamless-smart-living-controls/"><u>ChatGPT Integration for Seamless Smart Living Controls</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-linksys-wrt3200acm-top-ranking-open-source-router-on-the-market/"><u>Comprehensive Evaluation of Linksys WRT3200ACM - Top Ranking Open-Source Router on the Market</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/elevate-your-freefire-gameplay-on-youtube-channels-for-2024/"><u>Elevate Your FreeFire Gameplay on YouTube Channels for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-soundscape-in-every-h8i-beat/"><u>Exclusive Soundscape in Every H8i Beat</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fitbit-sense-review/"><u>Fitbit Sense Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/fossil-sport-collection-top-notch-and-economically-friendly-wearables-unveiled/"><u>Fossil Sport Collection - Top Notch and Economically Friendly Wearables Unveiled</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-androidprocessmedia-has-stopped-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android.Process.Media Has Stopped on Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-poco-x5-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Poco X5 Pro Phone with Broken Screen</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-do-you-unlock-your-apple-iphone-8-plus-learn-all-4-methods-by-drfone-ios/"><u>In 2024, How Do You Unlock your Apple iPhone 8 Plus? Learn All 4 Methods</u></a></li>
-<li><a href="https://some-tips.techidaily.com/master-devops-principles-on-a-budget-secure-your-spot-in-linux-foundations-low-cost-bootcamp-zdnet-insights/"><u>Master DevOps Principles on a Budget: Secure Your Spot in Linux Foundation's Low-Cost Bootcamp | ZDNET Insights</u></a></li>
-<li><a href="https://extra-information.techidaily.com/mastering-typefaces-for-effects-select-10-titles/"><u>Mastering Typefaces for Effects Select 10 Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-linkedin-course-selections/"><u>Top-Rated LinkedIn Course Selections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-device-list-for-chilling-by-water/"><u>Ultimate Device List for Chilling by Water</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unbeatable-roku-offers-your-ultimate-guide-to-prime-day-savings/"><u>Unbeatable Roku Offers: Your Ultimate Guide to Prime Day Savings</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-charting-financial-success-the-tale-of-ajey-carryminati-and-youtube/"><u>[Updated] In 2024, Charting Financial Success The Tale of Ajey (CarryMinati) and YouTube</u></a></li>
+<li><a href="https://blog-min.techidaily.com/9-effective-alternatives-for-running-final-cut-pro-on-windows-top-picks/"><u>9 Effective Alternatives for Running Final Cut Pro on Windows : Top Picks</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/creating-compelling-call-to-actions-utilizing-three-critical-copy-techniques/"><u>Creating Compelling Call-To-Actions Utilizing Three Critical Copy Techniques</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-nokia-c300-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Nokia C300 Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/maximizing-impact-smm-strategies-via-ripl/"><u>Maximizing Impact: SMM Strategies via Ripl</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-microsoft-surface-keyboard-examined-for-optimal-ergonomics-and-performance/"><u>Top Rated Microsoft Surface Keyboard Examined for Optimal Ergonomics and Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transforming-health-tracking-fitbit-sense-as-a-comprehensive-wellness-companion-vs-apple-watch/"><u>Transforming Health Tracking: Fitbit Sense as a Comprehensive Wellness Companion Vs. Apple Watch</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/ultimate-screen-recorder-unleash-potential-on-win11-for-2024/"><u>Ultimate Screen Recorder - Unleash Potential on Win11 for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/understanding-the-significant-incidents-during-chinas-hundred-days-reform-era-with-yl-computing-insights/"><u>Understanding the Significant Incidents During China's Hundred Days' Reform Era with YL Computing Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-depth-of-mlb-the-show-19-athletic-graphics-meet-adventurous-gameplay-mechanics/"><u>Unveiling the Depth of MLB The Show 19: Athletic Graphics Meet Adventurous Gameplay Mechanics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-samsungs-qn55q6f-a-breakthrough-in-4k-hdr-smart-tv-technology/"><u>Unveiling the Power of Samsung's QN55Q6F: A Breakthrough in 4K HDR Smart TV Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-the-samsung-qn55q60rafxza-smart-tv-exceptional-4k-resolution-and-hdr10plus/"><u>Unveiling the Power of the Samsung QN55Q60RAFXZA Smart TV: Exceptional 4K Resolution & HDR10+</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-googles-flagship-contender-a-deep-dive-into-the-pixel-tale/"><u>Unveiling the Pros and Cons of Google's Flagship Contender: A Deep Dive Into the Pixel Tale</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Motorola G54 5G? | Dr.fone</u></a></li>
 </ul></div>
 

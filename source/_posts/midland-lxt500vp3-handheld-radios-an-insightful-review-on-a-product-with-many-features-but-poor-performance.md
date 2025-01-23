@@ -1,7 +1,7 @@
 ---
 title: "Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
-date: 2025-01-14T18:17:05.893Z
-updated: 2025-01-16T21:49:47.979Z
+date: 2025-01-17T17:00:48.145Z
+updated: 2025-01-23T06:00:49.174Z
 categories:
   - BestProducts
 description: "This Article Describes Midland LXT500VP3 Handheld Radios: An Insightful Review on a Product with Many Features but Poor Performance"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Beatit 800A BT-D11 Car Jump Starter
 
@@ -45,7 +49,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 4.8
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Beatit 800A BT-D11 Car Jump Starter
@@ -76,7 +80,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Lifewire / Tony Mitera
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: A lot of power packed into a small frame**
@@ -98,7 +102,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  If it's your other devices that are having some battery issues, the D11’s two USB ports can be used to charge them up. The 2.1A port provides for faster charging, and while the 1A port also works it really doesn’t provide power in a hurry and should only be used with specific devices that can’t handle the other port's amperage. For most modern phones you’re just going to want to plug it into the 2.1A port and enjoy the faster recharge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Plenty of power for all your needs**
@@ -108,10 +112,6 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  Charging a phone with a jump starter seems like overkill, and the unit’s ability to charge at 1,200mAh confirms that impression. At such an elevated level of charging your phone or other device will likely get its battery topped off in very little time. With 18,000mAh of capacity you can fully charge a modern phone at least twice, and still leave the unit with the juice it needs in order to start a car.
 
  Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Key Features: The flashlight is nice but is basically a spotlight**
 
@@ -144,7 +144,7 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
  In a crowded field, there are few units that are as easy to recommend as the Beatit BT-D11 800A Peak 18000mAh 12V Portable Car Jump Starter. It has relatively few features when compared to some of its competitors but otherwise excels at what it's designed to do. Charge it up, keep it stashed in your vehicle, and you’ll have a perfect tool to easily provide a jump to whatever vehicle needs it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,20 +178,22 @@ thumbnail: https://thmb.techidaily.com/23e9b5bbeb00439d9f7feb49ea3cc9ef3c324a1be
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-instagram-media-techniques-for-mp3-extraction/"><u>[New] Instagram Media Techniques for Mp3 Extraction</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-innovative-venues-for-immersive-media/"><u>[Updated] Innovative Venues for Immersive Media</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/can-the-samsung-galaxy-tab-s3-still-hold-its-own-our-thorough-review-finds-out/"><u>Can the Samsung Galaxy Tab S3 Still Hold Its Own? Our Thorough Review Finds Out!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-firsthand-benefits-with-the-cutting-edge-ampace-andes-1500-power-station/"><u>Discover Firsthand Benefits with the Cutting-Edge Ampace Andes 1500 Power Station</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-elegance-of-michael-kors-access-expert-review-of-the-mkgo-luxury-wallet-with-smart-design/"><u>Discover the Elegance of Michael Kors Access: Expert Review of the MKGO Luxury Wallet with Smart Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exclusive-review-on-the-elite-oculus-quest-2-straps-boosted-with-additional-power-unit-and-protective-carrying-case-study/"><u>Exclusive Review on the Elite Oculus Quest 2 Straps - Boosted with Additional Power Unit & Protective Carrying Case Study</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7 With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-premier-sounds-selections-for-video-creation/"><u>In 2024, Premier Sounds Selections for Video Creation</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/installing-and-updating-your-hp-n840-g3-printers-drivers-a-complete-walkthrough/"><u>Installing and Updating Your HP N840 G3 Printer's Drivers: A Complete Walkthrough</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/iphone-15-in-depth-analysis-and-top-picks-a-must-have-device-pros-and-cons-unveiled-zdnet/"><u>IPhone 15 In-Depth Analysis & Top Picks - A Must-Have Device, Pros and Cons Unveiled! (ZDNet)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/macbook-showdown-discovering-the-unique-perks-of-air-vs-pro-models/"><u>MacBook Showdown: Discovering the Unique Perks of Air Vs. Pro Models</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-screenshots-simple-tricks-for-toshiba-users/"><u>Mastering the Art of Screenshots: Simple Tricks for Toshiba Users</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/premier-5-iphones-for-podcast-aficionados/"><u>Premier 5 iPhones for Podcast Aficionados</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/superior-speed-with-the-miniature-ourlink-u631-wi-fi-usb-dongle-unmatched-compact-design/"><u>Superior Speed with the Miniature Ourlink U631 Wi-Fi USB Dongle: Unmatched Compact Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-ipad-vs-ipad-air-key-features-and-comparison/"><u>Understanding iPad Vs. IPad Air: Key Features & Comparison</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-crafting-an-apple-powered-athletic-broadcast-platform-for-2024/"><u>[New] Crafting an Apple-Powered Athletic Broadcast Platform for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-faster-viewing-experience-for-instagram-feed/"><u>[New] In 2024, Faster Viewing Experience for Instagram Feed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-unveiling-prime-5-chrome-tools-for-facebook-vids/"><u>[New] In 2024, Unveiling Prime 5 Chrome Tools for Facebook Vids</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-fixing-the-problem-of-stopped-applicationexe/"><u>Diagnosing and Fixing the Problem of Stopped 'Application.exe'</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-advanced-hue-adjustment-strategies-for-professionals/"><u>In 2024, Advanced Hue Adjustment Strategies for Professionals</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-downloading-samfw-frp-tool-30-for-poco-x5-pro-by-drfone-android/"><u>In 2024, Downloading SamFw FRP Tool 3.0 for Poco X5 Pro</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-tp-link-archer-c8e-sub-100-wireless-router-with-impressive-speed/"><u>In Depth Analysis of the TP-Link Archer C8e - Sub $100 Wireless Router with Impressive Speed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-newly-updated-samsung-galaxy-watch3-stylish-vintage-and-contemporary-advancements-combined/"><u>In-Depth Analysis of the Newly Updated Samsung Galaxy Watch3 - Stylish Vintage and Contemporary Advancements Combined</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-bouncie-gps-tracking-device-evaluation-cost-effective-and-user-friendly-navigation-solution/"><u>In-Depth Bouncie GPS Tracking Device Evaluation: Cost-Effective & User-Friendly Navigation Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insightful-guide-top-reasons-to-get-an-ipad-today/"><u>Insightful Guide: Top Reasons to Get An iPad Today</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ios-versus-android-finding-the-ideal-device-for-your-needs/"><u>IOS versus Android – Finding the Ideal Device for Your Needs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/jaco-smartpro-digital-tire-inflator-reviewed-portable-powerhouse-for-puncture-repairs/"><u>Jaco SmartPro Digital Tire Inflator Reviewed – Portable Powerhouse for Puncture Repairs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-budget-and-versatility-with-the-lenovo-chromebook-duet-review/"><u>Navigating Budget and Versatility with the Lenovo Chromebook Duet Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/premium-e-reader-showdown-amazon-kindle-oasis-is-the-expensive-price-worth-it/"><u>Premium E-Reader Showdown: Amazon Kindle Oasis - Is the Expensive Price Worth It?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-solutions-for-an-alexa-that-isnt-reacting/"><u>Step-by-Step Solutions for an Alexa That Isn't Reacting</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/zdnets-review-highlights-exceptional-samsung-tv-on-a-steep-43-off-for-labor-day-festivities/"><u>ZDNet's Review Highlights: Exceptional Samsung TV on a Steep 43% Off for Labor Day Festivities!</u></a></li>
 </ul></div>
 

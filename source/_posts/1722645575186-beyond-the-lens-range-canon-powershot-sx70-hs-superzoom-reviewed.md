@@ -1,7 +1,7 @@
 ---
 title: Beyond the Lens Range - Canon PowerShot SX70 HS Superzoom Reviewed
-date: 2024-08-11T00:02:43.426Z
-updated: 2024-08-12T00:02:43.426Z
+date: 2025-01-18T16:20:46.347Z
+updated: 2025-01-22T22:02:44.160Z
 categories:
   - BestProducts
 description: This Article Describes Beyond the Lens Range - Canon PowerShot SX70 HS Superzoom Reviewed
@@ -13,9 +13,17 @@ thumbnail: https://thmb.techidaily.com/7ac5f26a6db87f846700248f8f73ccc48783db9e1
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -39,14 +47,8 @@ Lifewire / Andy Zahn
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Canon PowerShot SX70
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 Lifewire / Andy Zahn
@@ -81,9 +83,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -101,13 +100,18 @@ Lifewire / Andy Zahn
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -117,9 +121,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -128,9 +129,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -147,9 +145,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -179,8 +174,9 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -219,6 +215,10 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -244,8 +244,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -253,4 +251,26 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-direct-youtube-to-dazzling-gif-creation-with-no-downloads/"><u>[New] In 2024, Direct YouTube to Dazzling Gif Creation with No Downloads</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unlocking-cinematic-magic-top-5-filmmaking-insights/"><u>[New] Unlocking Cinematic Magic Top 5 Filmmaking Insights</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-videocapture-analysis-hub/"><u>[Updated] In 2024, VideoCapture Analysis Hub</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-art-of-digital-cinema-a-detailed-analysis-of-lgs-31mu97-b-monitor/"><u>2024 Approved The Art of Digital Cinema - A Detailed Analysis of LG’s 31MU97-B Monitor</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/evaluating-the-nzxt-h7-flow-chassis-balancing-play-with-protection/"><u>Evaluating the NZXT H7 Flow Chassis: Balancing Play with Protection</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/game-centric-tvs-top-picks-for-ps5xbox-series-x-for-2024/"><u>Game-Centric TVs Top Picks for PS5/Xbox Series X for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-the-impact-of-photoshops-stabilization-on-quality-control/"><u>In 2024, The Impact of Photoshop's Stabilization on Quality Control</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/nvidia-power-issue-troubleshooting-find-out-why-its-not-connected-and-how-to-fix-it/"><u>NVIDIA Power Issue Troubleshooting - Find Out Why It's Not Connected and How To Fix It</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/patek-phenix-12-the-adaptive-travel-companion-review/"><u>Patek Phénix 12: The Adaptive Travel Companion Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/razer-laptop-mini-review-the-ultimate-portable-gaming-machine/"><u>Razer Laptop Mini-Review - The Ultimate Portable Gaming Machine</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-television-experience-with-the-antolink-at-127-outstanding-free-broadcast-signal/"><u>Revolutionize Your Television Experience with the Antolink AT-127 - Outstanding Free Broadcast Signal!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/taking-flight-higher-is-the-updated-dji-phantom-4-pro-v2-a-leap-towards-flawlessness/"><u>Taking Flight Higher: Is the Updated DJI Phantom 4 Pro V2 a Leap Towards Flawlessness?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-allure-of-small-size-mp3-players-sandisk-clip-jam/"><u>The Allure of Small-Size MP3 Players - SanDisk Clip Jam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-the-asus-zephyrus-g14-a-perfect-blend-for-serious-gamers-on-the-go/"><u>The Definitive Guide to the Asus Zephyrus G14: A Perfect Blend for Serious Gamers on the Go</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-blueears-bluetooth-enabled-beanie-fashion-meets-audio-prowess-reviewed/"><u>The Ultimate Guide to Blueear's Bluetooth-Enabled Beanie: Fashion Meets Audio Prowess Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-roku-specials-unbeatable-discounts-during-prime-day/"><u>Top Roku Specials: Unbeatable Discounts During Prime Day</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-router-comparison-why-the-nighthawk-rax120-leads-in-speed/"><u>Top Router Comparison: Why the Nighthawk RAX120 Leads in Speed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unveiling-the-finest-4-sites-for-tones-for-2024/"><u>Unveiling the Finest 4 Sites for Tones for 2024</u></a></li>
+</ul></div>
 

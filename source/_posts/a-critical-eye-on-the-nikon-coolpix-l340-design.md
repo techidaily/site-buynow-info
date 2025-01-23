@@ -1,7 +1,7 @@
 ---
 title: A Critical Eye on the Nikon Coolpix L340 Design
-date: 2024-08-11T00:00:32.602Z
-updated: 2024-08-12T00:00:32.602Z
+date: 2025-01-18T02:26:08.441Z
+updated: 2025-01-23T05:47:03.335Z
 categories:
   - BestProducts
 description: This Article Describes A Critical Eye on the Nikon Coolpix L340 Design
@@ -13,9 +13,6 @@ thumbnail: https://www.lifewire.com/thmb/LabzxKCzCCN4VL_6tx5323yIhLs=/400x300/fi
 
 4.3
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/rpogaEx5qG81ylcoefvlfcIwyIw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
@@ -40,11 +37,12 @@ Lifewire / Jonno Hill
 
 4.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## ClearStream 2V Indoor/Outdoor HDTV Antenna
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ClearStream 2V HDTV Antenna](https://www.lifewire.com/thmb/q2B57F3c717qLOPlnokMF7al1pA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_HeroSquare-b07d5067648049ecb987e39b62796406.jpg)
 
 Lifewire / Jonno Hill
@@ -70,16 +68,18 @@ Lifewire / Jonno Hill
 
  If you live far enough from your local TV signal source that other indoor antennas have failed you, the ClearStream 2V Indoor/Outdoor HDTV Antenna might actually provide some help. Buyers should probably make sure that they can’t get away with a smaller, cheaper, simpler solution first, but if or when that fails, this antenna definitely gets the job done.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ClearStream 2V Indoor/Outdoor HDTV Antenna](https://www.lifewire.com/thmb/vY1j7QoS0FLwOKNhPlSfR3XMlmo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4078201-AntennasDirect_TVAntennas_ClearStream_02-e97897fe03b74f5faa2eefad3b3b7208.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jonno Hill
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design: Glimpsing an ugly future**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna looks something like what I would imagine a space prison to look like. It’s far larger than any of the other antennas that I tested, and during every step of the assembly I kept thinking to myself “well that part can’t possibly be necessary.” From the comically long antennas and giant metal grate, to the bulbous hollowed out spheres, there is a lot going on here.
@@ -105,8 +105,9 @@ Lifewire / Jonno Hill
  In my channel acquisition test, the ClearStream managed 76 channels consistently, far and away the best result from any of the devices I tested. The worst antenna I tested picked up just 47 channels, and the second best, 69\. Needless to say, all the wires, cages, and bulbous plastic spheres are clearly doing something here, because this was the best result I saw.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Range: Extensive**
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna is rated for up to 60 miles. These ratings are generally based on relatively unobstructed paths between the signal and your device. There is a lot less than 60 miles between me and my local TV broadcast source, but if the other results are any indication, the ClearStream has a fighting chance at living up to these claims.
@@ -119,6 +120,10 @@ Lifewire / Jonno Hill
 
  The ClearStream 2V Indoor/Outdoor HDTV Antenna has a list price of $120 and a 90-day rolling average price on Amazon of $83\. This is significantly more than any of the other antennas I tested, some of which could be had for around $25\. If you live far enough that you need a better performing antenna, however, it could easily be worth every penny. I would only caution buyers to make sure they really do need this performance before pulling the trigger on this very large antenna.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **ClearStream 2V Indoor/Outdoor HDTV Antenna vs 1byone Digital Amplified Indoor HD TV Antenna**
 
  I figured it might be interesting to compare the cheapest antenna to the most expensive antenna. If you are living inside of a city, fairly close to a signal source, you can probably get away with a cheaper antenna like the $25 amplified antenna by manufacturer 1byone. This flat, simple antenna takes up far less space and still managed to get 59 channels. It also maintained a clear picture on all of the major network stations just fine.
@@ -130,9 +135,6 @@ Lifewire / Jonno Hill
 **Great performance for those that need it.**
  The ClearStream 2V Indoor/Outdoor HDTV Antenna isn’t the cheapest or best-looking antenna on the market, but it gets the job done better than any of the other antennas we tested. Buyers who know they need an antenna with better range and performance will find this to be a noticeable bump from cheaper indoor antennas.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  2V Indoor/Outdoor HDTV Antenna
@@ -144,14 +146,11 @@ Lifewire / Jonno Hill
 * Range  60 miles
 * Warranty  Lifetime parts
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +159,26 @@ Lifewire / Jonno Hill
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-audible-mac-visual-record-functionality-for-2024/"><u>[New] Audible Mac Visual Record Functionality for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-enhancing-canva-videos-with-custom-music-edits/"><u>[New] Enhancing Canva Videos with Custom Music Edits</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-master-the-waterfront-top-5-cameras-for-big-waters/"><u>[New] Master the Waterfront Top 5 Cameras For Big Waters</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-unlock-advanced-features-of-obs-studio-on-android-platforms-for-2024/"><u>[New] Unlock Advanced Features of OBS Studio on Android Platforms for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-captivating-images-mastering-the-art-of-motion-blur-in-ps/"><u>[Updated] In 2024, Captivating Images Mastering the Art of Motion Blur in PS</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-itel-a70-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Itel A70</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/battery-replacement-value-for-iphones-and-ipods/"><u>Battery Replacement Value for iPhones & iPods</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-the-issue-when-task-manager-wont-respond-expert-advice/"><u>Fixing the Issue When Task Manager Won't Respond - Expert Advice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hands-on-experience-with-the-latest-samsung-galaxy-budsplus/"><u>Hands-On Experience with the Latest Samsung Galaxy Buds+</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-revised-masterpiece-of-wasteland-2-detailed-review-for-gamers-seeking-a-tactical-role-playing-experience/"><u>Inside the Revised Masterpiece of Wasteland 2: Detailed Review for Gamers Seeking a Tactical Role-Playing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iseebell-on-a-budget-find-out-why-this-under-50-video-doorbell-rocks/"><u>ISeeBell on a Budget: Find Out Why This Under $50 Video Doorbell Rocks!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/playstation-showdown-duel-of-titans-ps5-slim-against-full-model/"><u>PlayStation Showdown: Duel of Titans - PS5 Slim Against Full Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reading-in-the-dark-heres-why-the-barnes-and-noble-nook-glowlight-groknowledge-an-ai-language-model-developed-by-microsoft-to-assist-users-with-information-40/"><u>Reading in the Dark? Here's Why the Barnes & Noble Nook GlowLight groKnowledge, an AI Language Model Developed by Microsoft to Assist Users with Information and Answer Questions Across Various Topics.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-michael-kors-access-gen-5e-mkgo-the-intersection-of-sophistication-and-technical-excellence/"><u>Review of Michael Kors' Access Gen 5E MKGO: The Intersection of Sophistication and Technical Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skyrim-on-switch-a-comprehensive-guide-to-bethesdas-epic-rpg-experience/"><u>Skyrim on Switch: A Comprehensive Guide to Bethesda's Epic RPG Experience</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210151558-9781913504441-the-ufo-chronicles/"><u>The UFO Chronicles | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-elgoog-how-it-reflects-and-parodies-search-engines/"><u>The Ultimate Guide to elgooG: How It Reflects and Parodies Search Engines</u></a></li>
+</ul></div>
 

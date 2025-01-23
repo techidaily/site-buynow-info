@@ -1,7 +1,7 @@
 ---
 title: Hands-On Experience with the Latest Samsung Galaxy Buds+
-date: 2025-01-06T04:00:17.555Z
-updated: 2025-01-11T00:44:24.929Z
+date: 2025-01-20T01:24:42.241Z
+updated: 2025-01-23T00:44:51.313Z
 categories:
   - BestProducts
 description: This Article Describes Hands-On Experience with the Latest Samsung Galaxy Buds+
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/GCJz_I8wo6QSdRbJ0vDUONx3v98=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Amazon Echo Dot (4th Gen)
 
@@ -42,17 +46,9 @@ Lifewire / Erika Rawes
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Amazon Echo Dot (4th Gen)
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/wkHXB7KTws9HfL-i1yYYsWIMm5w=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Amazon-Echo-Dot-4th-Generation-1-fc73a047312d4d588ffcbeae7bdd3368.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -76,6 +72,10 @@ Lifewire / Erika Rawes
 
  Amazon’s[Echo](https://www.lifewire.com/what-is-the-amazon-echo-4147189) Dot has become a go-to option for those looking for a compact and affordable smart speaker. The brand has now released a 4th generation of its[Echo Dot](https://www.lifewire.com/amazon-dot-4149509) , and the new version has a totally different look than its predecessors. What else is new and different about the Echo Dot (4th Gen)? How does the new Dot perform? I tested the Echo Dot (4th Gen) to find out.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A completely new look**
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/TtbQpfhvpeKgt-Aso1WoKQ6m2VI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-2-89fbd54fb6a14efba195a0094b8d7b6f.jpg)
@@ -91,7 +91,7 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/HELf_jWdoxnVe1w7XOL9sC7GoO8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-4-f100069b4b7d40dc8661b1614e150934.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -108,10 +108,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Sound Quality: A front-firing speaker**
 
  The new Echo Dot has good sound, it’s just not all that much better than the Echo Dot (3rd Gen). When testing speakers, I frequently use the song_Titanium_ by David Guetta featuring Sia because it has a range of low, mid, and high tones. For testing bass, I often use the song_Chains_ by Nick Jonas. The Echo Dot (4th Gen) sounds pretty clear on all volume levels. There is a very slight hiss on the highest volume, but it’s barely noticeable, and it doesn’t take too much away from the listening experience.
@@ -123,10 +119,6 @@ Lifewire / Erika Rawes
  Voice recognition is so important in smart speakers because they need to be able to hear your voice commands even when there’s background noise. The Echo Dot (4th Gen) has four far-field microphones for voice detection like its predecessor. It does a good job of detecting commands from across the room, even in the presence of household noises like a running dishwasher or light conversation. However, if you have a room full of people loudly talking, you might need to raise your voice slightly to get the mics to hear your commands.
 
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/UFZM9HpoakK6sRg-7Vm2W8uLIQ8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-6-with-Clock-86c91da96d4043369f0a4e97b22c4209.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
 
@@ -143,7 +135,7 @@ Lifewire / Erika Rawes
 ![Amazon Echo Dot (4th Gen)](https://www.lifewire.com/thmb/bnVMEDjyf8t4zDkpRwr4-5msD2s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amazon-Echo-Dot-4th-Generation-7-with-Clock-9b93a56f3d0049c5a2064cd4b21c7cb5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Erika Rawes
@@ -162,6 +154,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Amazon Echo Dot (4th Gen) vs. Apple HomePod Mini**
 
  Apple announced the release of its[HomePod](https://www.lifewire.com/apple-homepod-4146975) Mini speaker, and it’s available for sale in November. The Siri-powered HomePod Mini is 3.3 inches tall, and it has a somewhat similar spherical shape to the Echo Dot. The HomePod Mini has a three-mic array, compared to the Dot’s four-mic array. However, the HomePod Mini has Apple’s S5 chip, and it’s in a higher price category at $99.
@@ -171,6 +167,10 @@ Lifewire / Erika Rawes
 **Primarily a design upgrade.**
 
  The new Echo Dot is a great speaker at a great price, but it’s not worth an upgrade if you already have the 3rd-gen Dot unless you’re going with the clock version. For first time buyers, it's a no-brainer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -204,24 +204,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-nailing-the-perfect-shot-a-guide-to-instagram-videos/"><u>[Updated] 2024 Approved Nailing the Perfect Shot A Guide to Instagram Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-ignite-views-effective-strategies-for-optimizing-youtube-collaborations-for-2024/"><u>[Updated] Ignite Views Effective Strategies for Optimizing YouTube Collaborations for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-web-integration-adding-youtube-playlists-easily/"><u>[Updated] Web Integration Adding YouTube Playlists Easily</u></a></li>
-<li><a href="https://fox-access.techidaily.com/9-secrets-to-unlocking-the-full-potential-of-window-11/"><u>9 Secrets to Unlocking the Full Potential of WINDOW 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-features-of-moto-g-stylus-highly-effective-performance-and-fair-battery-lifespan-reviewed/"><u>Discovering the Features of Moto G Stylus: Highly Effective Performance & Fair Battery Lifespan Reviewed</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/enter-the-realm-of-gpt-4-for-nothing-here-are-five-pathways/"><u>Enter the Realm of GPT-4 for Nothing - Here Are Five Pathways</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-remarkable-advancements-in-amazons-gen-4-echo-show/"><u>In-Depth Analysis: The Remarkable Advancements in Amazon's Gen 4 Echo Show</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-laptop-review-a-basic-laptop-with-a-nice-build/"><u>Lenovo Ideapad Laptop Review: A Basic Laptop With a Nice Build</u></a></li>
-<li><a href="https://driver-download.techidaily.com/memory-protection/"><u>Memory Protection</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-what-is-an-ai-video-editor-for-2024/"><u>New What Is an AI Video Editor for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-watch-dogs-legion-breathing-new-life-into-a-beloved-franchise/"><u>Review of Watch Dogs: Legion - Breathing New Life Into a Beloved Franchise</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/simplify-your-macs-photo-edits-with-our-ultimate-guide-to-using-preview-software/"><u>Simplify Your Mac's Photo Edits with Our Ultimate Guide to Using Preview Software</u></a></li>
-<li><a href="https://some-tips.techidaily.com/solving-the-puzzling-irritation-in-your-iphone-a-must-read-article/"><u>Solving the Puzzling Irritation in Your iPhone - A Must-Read Article</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-setting-up-windows-11-on-a-brand-new-hard-drive/"><u>Step-by-Step Guide: Setting Up Windows 11 on a Brand New Hard Drive</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tail-tales-live-shared-pet-observation-experience/"><u>Tail Tales Live: Shared Pet Observation Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-alcatel-joy-tab-2-lte-a-cost-effective-tablet-reviewed/"><u>The Ultimate Guide to the Alcatel Joy Tab 2 LTE - A Cost-Effective Tablet Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-verdict-on-truecaller-app-pros-cons-and-insights/"><u>The Ultimate Verdict on Truecaller App: Pros, Cons and Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-6-sheets-shredder-on-a-shoestring-budget-our-unbiased-review/"><u>Top Rated AmazonBasics 6-Sheets Shredder on a Shoestring Budget: Our Unbiased Review</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/top-rated-atandt-mobile-offers-in-may-2024-comprehensive-guide-by-zdnet/"><u>Top-Rated AT&T Mobile Offers in May 2024: Comprehensive Guide by ZDNet</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-drone-buddies-kids-most-enjoyed-toy-companions/"><u>[Updated] Best Drone Buddies Kids' Most Enjoyed Toy Companions</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-djis-minis-and-air-2-free-fun-luts-for-ultimate-mixes/"><u>[Updated] In 2024, DJI's Minis & Air 2 Free, Fun LUTS for Ultimate Mixes</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-critical-selection-of-1-5-best-snippers-for-windows/"><u>2024 Approved Critical Selection of #1-5 Best Snippers for WINDOWS</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-from-basics-to-brilliance-mastering-the-art-of-macbook-air-screen-capture/"><u>2024 Approved From Basics to Brilliance Mastering the Art of MacBook Air Screen Capture</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-14-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone 14 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/d3d-vanished-will-unreal-engine-cease/"><u>D3D Vanished, Will Unreal Engine Cease?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-unveiling-the-mighty-performance-of-the-xbox-series-x-in-crystal-clear-4k/"><u>Expert Analysis: Unveiling the Mighty Performance of the Xbox Series X in Crystal Clear 4K</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-burned-to-scrumptious-diving-into-overcooked-5-pandemonium-in-the-kitchen-our-take-on-overcooked-2/"><u>From Burned to Scrumptious - Diving Into Overcooked! 5. Pandemonium in the Kitchen: Our Take on Overcooked! 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-apc-150n-ups-unit-explore-its-capacity-outlet-variety-and-convenient-battery-swapping-details/"><u>In-Depth Look at the APC 150N UPS Unit - Explore Its Capacity, Outlet Variety & Convenient Battery Swapping Details</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-at-fifa-19-review-at-the-forefront-of-virtual-football-action/"><u>Inside Look at FIFA 19 Review: At the Forefront of Virtual Football Action</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-on-choosing-the-best-used-apple-tablets-before-you-purchase/"><u>Insights on Choosing the Best Used Apple Tablets Before You Purchase</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-of-multitasking-revealed-a-closer-look-at-the-samsung-galaxy-note-9-phone-range/"><u>Master of Multitasking Revealed - A Closer Look at the Samsung Galaxy Note 9 Phone Range</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/must-know-criteria-when-shopping-for-a-camcorder/"><u>Must-Know Criteria When Shopping for a Camcorder</u></a></li>
+<li><a href="https://fox-links.techidaily.com/optimal-viewport-adjustment-iphones-zooming-guide-for-2024/"><u>Optimal Viewport Adjustment IPhone's Zooming Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/optimizing-your-internet-experience-ex6200-model-evaluation-of-the-netgear-ac120e-wireless-range-extender/"><u>Optimizing Your Internet Experience: EX6200 Model Evaluation of the Netgear AC120e Wireless Range Extender</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/plug-and-play-sml385btbk-singing-machine-a-kid-friendly-karaoke-solution-with-dazzling-colors/"><u>Plug & Play SML385BTBK Singing Machine: A Kid-Friendly Karaoke Solution with Dazzling Colors</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-galaxy-f15-5g-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Galaxy F15 5G</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-and-solutions-for-dvd-shrink-malfunction-in-windows-11-systems/"><u>Troubleshooting and Solutions for DVD Shrink Malfunction in Windows 11 Systems</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-windows-10-webcam-recording-made-easy-top-10-software-picks/"><u>Updated 2024 Approved Windows 10 Webcam Recording Made Easy Top 10 Software Picks</u></a></li>
 </ul></div>
 

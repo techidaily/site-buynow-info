@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
-date: 2025-01-15T22:45:29.370Z
-updated: 2025-01-16T18:25:35.356Z
+date: 2025-01-18T21:28:24.819Z
+updated: 2025-01-22T19:43:55.860Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
@@ -18,9 +18,17 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/GshnCnk_G-hNSwDTRjGVB28Nl-o=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_HeroSquare-f1971c8abc1a45b7a589b440ee06f5cf.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -44,7 +52,7 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 4.2
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
@@ -84,7 +92,7 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
@@ -98,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  Over and over, the setup process wouldn’t complete… and then it finally did. I ran into similar issues with the other Netgear extenders, in which setup processes didn’t work as expected on the first or second time, but this was a much longer and more arduous ordeal. Finally, however, I got the Nighthawk AX8 up and running. From there, you’ll need to find a new location for the extender—roughly halfway between the router and your Wi-Fi dead zone is ideal, but play around with positioning if you’re not getting the results you seek.
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
 
@@ -121,6 +125,10 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -135,10 +143,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
  Both of these Netgear Nighthawk Wi-Fi extenders will set you back $200 or more, and the key difference between them—aside from design—is the Wi-Fi 6 compatibility of the Nighthawk AX8\. The Nighthawk X6S (see on[Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-Range-Extender-EX8000/dp/B074F3M2W8/?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7C) ) doesn’t have that, but it does deliver excellent 5GHz range and has four Gigabit Ethernet ports for wired devices. The Nighthawk AX8 is more future-proof as a result, but at a greater cost that becomes increasingly difficult to justify the higher, it climbs.
@@ -148,10 +152,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  **Only for early adopters with Wi-Fi 6 routers and devices.**
 
  If you’ve already bought a Wi-Fi 6 router and need a little help extending your signal into further corners of your home and/or property, then the Nighthawk AX 8 (EAX 80) is the extender you’ll want. But if you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi[mesh system](https://www.lifewire.com/what-is-a-mesh-network-4842178) instead. Spending more than $200 on an extender doesn’t make much sense unless you’re adding it to a top-of-the-line system—and don’t mind the significant investment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,24 +179,24 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-the-art-of-perfect-video-quality-in-zoom-sessions/"><u>[New] In 2024, The Art of Perfect Video Quality in Zoom Sessions</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-fresh-perspectives-picture-perfect-collages-for-lifes-highlights/"><u>[Updated] In 2024, Fresh Perspectives Picture-Perfect Collages for Life's Highlights</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-macs-top-screen-recorders-face-off-bandicam-vs-camtasia-for-2024/"><u>[Updated] Mac's Top Screen Recorders Face-Off Bandicam vs Camtasia for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-the-short-form-space-youtubes-bite-vs-tiktok-written-by-a-marketing-analyst-with-expertise-in-social-media-trends-and-platforms/"><u>2024 Approved Navigating the Short-Form Space YouTube's Bite Vs. TikTok' Written by a Marketing Analyst with Expertise in Social Media Trends and Platforms</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-macbook-models-key-distinctions-between-air-and-pro/"><u>Comparing MacBook Models: Key Distinctions Between Air and Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-latest-upgrades-on-classic-looking-samsung-galaxy-watch5/"><u>Comprehensive Review of Latest Upgrades on Classic-Looking Samsung Galaxy Watch5</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-exceptional-performance-of-cycwagens-latest-cargo-e-bike-model/"><u>Discover the Exceptional Performance of CycWagen's Latest Cargo E-Bike Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-value-and-functionality-in-the-tp-link-archer-c50-router-the-budget-winner/"><u>Exploring Value and Functionality in the TP-Link Archer C50 Router: The Budget Winner</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/from-fantasy-to-reality-vrs-path-for-2024/"><u>From Fantasy to Reality VR’s Path for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-new-cpu-transforms-the-apple-macbook-pro-13-an-experts-take-on-the-2020-model/"><u>How the New CPU Transforms the Apple MacBook Pro 13 - An Expert's Take on the 2020 Model</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Vivo T2 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-gopros-greatest-hits-max-360-vs-hero-11-comparison/"><u>In 2024, GoPro's Greatest Hits Max 360 vs Hero 11 Comparison</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-maximize-your-earnings-with-youtube-short-tips/"><u>In 2024, Maximize Your Earnings with Youtube Short Tips</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/petcube-lights-up-affordable-hd-viewing-experience/"><u>Petcube Lights Up Affordable HD Viewing Experience</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/quick-guide-to-rectify-windows-zoom-error-code-1132/"><u>Quick Guide to Rectify Windows Zoom Error Code 1132</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonys-hdrcx405-top-budget-hd-video-maker-reviewed/"><u>Sony's HDRCX405: Top Budget HD Video Maker Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-recommended-external-optical-discs-readers-find-your-perfect-match/"><u>Top Recommended External Optical Discs Readers – Find Your Perfect Match</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-friendly-performance-meets-style-with-samsung-galaxy-tab-s4-review/"><u>User-Friendly Performance Meets Style with Samsung Galaxy Tab S4 Review</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-oneplus-ace-3-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On OnePlus Ace 3? Fixed | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exploring-5-engaging-book-promo-videos/"><u>[New] Exploring 5 Engaging Book Promo Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-editors-dream-machine-top-portable-video-edits-tools/"><u>[New] In 2024, Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-innovative-flying-selecting-the-best-drone-gimbals-today/"><u>[New] Innovative Flying Selecting the Best Drone Gimbals Today</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-dji-phantom-4-extension-pack/"><u>[New] The Ultimate DJI Phantom 4 Extension Pack</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-decoding-the-m1-max-clip-functionality-for-2024/"><u>[Updated] Decoding the M1 Max Clip Functionality for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-access-exclusive-video-artwork-free-flawless-and-fast/"><u>[Updated] In 2024, Access Exclusive Video Artwork – Free, Flawless, and Fast</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-in-depth-look-at-auditory-cutting-techniques/"><u>[Updated] In 2024, In-Depth Look at Auditory Cutting Techniques</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/adherence-to-chemical-safety-regulations-eg-reach-tsca/"><u>Adherence to Chemical Safety Regulations (E.g., REACH, TSCA)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-the-cumulus-pro-anti-fatigue-mat-for-a-healthier-standing-experience/"><u>Expert Evaluation of the Cumulus PRO Anti-Fatigue Mat for a Healthier Standing Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-asus-rog-gt-ac5300-why-its-a-dream-come-true-for-techies-and-gamers/"><u>Expert Insights on the Asus ROG GT-AC5300: Why It's a Dream Come True for Techies and Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-elgoog-a-detailed-analysis-and-reviews-of-the-reflective-online-platform/"><u>Exploring elgooG - A Detailed Analysis and Reviews of The Reflective Online Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gear-up-for-the-best-poolside-experience/"><u>Gear Up for the Best Poolside Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/getting-the-most-bang-for-your-buck-intense-evaluation-of-the-75-inch-4k-caixun-smart-television-running-on-android-os/"><u>Getting the Most Bang for Your Buck: Intense Evaluation of the 75-Inch 4K Caixun Smart Television Running on Android OS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-wireless-nest-doorbell-battery-version-detailed-assessment-and-review/"><u>Google Wireless Nest Doorbell (Battery Version) - Detailed Assessment & Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-lenovo-x12-detachable-exceptional-convertible-and-premium-keyboard-quality/"><u>In-Depth Evaluation of the Lenovo X12 Detachable: Exceptional Convertible and Premium Keyboard Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-photoscape-the-comprehensive-breakdown-of-the-leading-free-picture-manipulation-tool/"><u>Inside PhotoScape: The Comprehensive Breakdown of the Leading Free Picture Manipulation Tool</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-the-rugged-trails-expert-analysis-of-a-top-race-rc-rock-crawler/"><u>Inside the Rugged Trails: Expert Analysis of a Top Race RC Rock Crawler</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/screencast-success-stories-lessons-from-industry-experts-for-2024/"><u>Screencast Success Stories Lessons From Industry Experts for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-multidimensional-views-with-iphone-15-pros-advanced-spatial-video-capture-for-enhanced-ar-experiences/"><u>Unlocking Multidimensional Views with iPhone 15 Pro's Advanced Spatial Video Capture for Enhanced AR Experiences</u></a></li>
 </ul></div>
 

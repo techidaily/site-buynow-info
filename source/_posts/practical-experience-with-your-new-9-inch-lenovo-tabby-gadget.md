@@ -1,7 +1,7 @@
 ---
 title: Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
-date: 2025-01-15T17:19:23.156Z
-updated: 2025-01-16T18:34:11.397Z
+date: 2025-01-16T00:56:08.299Z
+updated: 2025-01-22T21:13:46.873Z
 categories:
   - BestProducts
 description: This Article Describes Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
@@ -21,6 +21,10 @@ thumbnail: https://www.lifewire.com/thmb/madw9taHRwBTZapEMNcHlZMo7i8=/540x405/fi
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/Hagf4IpRh30OapEN21WY2crMw1g=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -47,13 +51,13 @@ Lifewire / Emily Isaacs
 
 4.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -84,10 +88,6 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  The Kinesis Freestyle2 Blue for Mac breaks free of these norms by using a split, modular design that features two keyboard halves, one for each hand, connected via a 9 or 20-inch cable depending upon the chosen model. These pieces were designed with comfort in mind. They may be used separately or connected with a pivot tether at the top of the two halves. This allows you the opportunity to customize your setup and maximize your comfort, whether that’s by placing the halves closer together or further apart.
@@ -98,19 +98,23 @@ Lifewire / Emily Isaacs
 
  Clocking in at 2 pounds, it’s also lightweight which makes it easy to pack. Whether you’re commuting between the home and the office or you’re heading out of town for a vacation, it’s easy to break down and bring anywhere so long as there’s a flat surface to place it during use.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: For Apple products only**
 
  The Kinesis Freestyle2 Blue arrives with the two keyboard halves, the instructional pamphlet, and a six-foot USB charging cable. Designed for use with iPads,[iPhones](https://www.lifewire.com/iphone-and-ios-4781515) , and[Macs](https://www.lifewire.com/macs-4781332) , the setup process is quick and easy to complete. First, we flipped the switch on the right-hand side of the keyboard from the off position to the on position. Then, we flipped the keyboard over and pressed the connect button on the backside. We knew it was ready to begin pairing when the lights on the frontside began flashing blue.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/XHY6Xe9cdaO1U6Uj0wDY6rROlcA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_04-7fad98b589454e0388ecf48afe425e8c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  From here, we followed the instructions in the provided instructional pamphlet and enabled Bluetooth on our iPad. After about a minute of scanning, the Kinesis KB800MB-BT keyboard appeared as an available device. We simply tapped to connect. From here, it prompted us to input a numeric code and press return. Once we’d done this, setup was complete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Features: Efficient hotkeys once you get used to them**
 
@@ -124,15 +128,15 @@ Lifewire / Emily Isaacs
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Excellent for the features**
 
  Full-size ergonomic keyboards tend to retail anywhere from $50 to $200, depending on the features involved. Generally retailing for about $100 on Amazon, the Freestyle2 sits comfortably at the front of this curve. While $100 may seem expensive for a keyboard, consider the features involved. Its travel-friendly build, adjustable setup options, extended battery life, and ability to switch quickly and smoothly between multiple connected devices make it an excellent choice for the features.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/vncgu0FEgBJ69UL6H8BjQ2QoGRI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_03-9055476d1d974c8bbe9b1c39d479b300.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -153,10 +157,6 @@ Lifewire / Emily Isaacs
  **An ideal keyboard for Apple users with its compact design, portability, and long-lasting battery.**
 
  The Kinesis Freestyle2 Blue for Mac is a compact, user-friendly ergonomic keyboard that takes comfort and customization to the next level for Apple users thanks to its split, modular design. Its extended battery life of up to 300 plus hours combined with its ability to connect to multiple iOS devices at a time is a game-changer, making it well worth the splurge.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,22 +189,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-best-approaches-for-quiet-visuals-capture/"><u>[New] In 2024, Best Approaches for Quiet Visuals Capture</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-a-step-by-step-guide-for-earning-with-youtube-shorts/"><u>[Updated] 2024 Approved A Step-by-Step Guide for Earning with YouTube Shorts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazon-basics-tablet-support-perfect-for-on-the-go-users/"><u>Amazon Basics' Tablet Support: Perfect for On-the-Go Users!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cinematic-transformation-best-15-gopro-color-correction-look-ups-explored-for-2024/"><u>Cinematic Transformation Best 15 GoPro Color Correction Look-Ups Explored for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparative-review-choosing-between-the-apple-watch-series-9-and-fitbit-charge-6/"><u>Comparative Review: Choosing Between the Apple Watch Series 9 & Fitbit Charge 6</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-the-least-expensive-ssl-providers/"><u>Comparing the Least Expensive SSL Providers</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-itel-a60-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Itel A60 to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-best-real-time-stage-performances/"><u>In 2024, Best Real-Time Stage Performances</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-the-ultimate-guide-to-tecno-phantom-v-fold-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Tecno Phantom V Fold Pattern Lock Screen Everything You Need to Know</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-android-with-the-latest-google-pixel-4xl-unveiled-in-our-expert-review/"><u>Revolutionizing Android with the Latest Google Pixel 4XL Unveiled in Our Expert Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/rise-and-shine-brighter-with-ihomes-zenergy-an-authoritative-guide-to-next-level-morning-alertness-and-sleep-therapy/"><u>Rise and Shine Brighter with iHome's Zenergy: An Authoritative Guide to Next-Level Morning Alertness and Sleep Therapy</u></a></li>
-<li><a href="https://discover-best.techidaily.com/solving-your-imovie-woes-effortless-conversion-of-avi-files-into-editable-projects/"><u>Solving Your iMovie Woes: Effortless Conversion of AVI Files Into Editable Projects</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/syma-107g-remote-controlled-helicopter-evaluation-budget-friendly-aviation-entertainment/"><u>Syma 107G Remote Controlled Helicopter Evaluation: Budget-Friendly Aviation Entertainment</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/ultimate-recording-companion-az-tests-and-alternatives-for-2024/"><u>Ultimate Recording Companion - AZ Tests & Alternatives for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxed-inside-look-at-the-new-apple-tv-4k-generation-3-features/"><u>Unboxed: Inside Look at the New Apple TV 4K Generation 3 Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-affordable-amazon-kindle-2019-comprehensive-review-and-pricing-insights/"><u>Unveiling the Affordable Amazon Kindle (2019): Comprehensive Review and Pricing Insights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-snap-up-engagement-streamlined-methods-for-crop-and-export-to-instagram/"><u>[New] 2024 Approved Snap Up Engagement Streamlined Methods for Crop & Export to Instagram</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-from-recordings-to-live-streaming-on-youtube-and-twitch-with-obs/"><u>[New] In 2024, From Recordings to Live Streaming on YouTube & Twitch with OBS</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-exploring-vidas-capabilities-in-digital-film-production/"><u>2024 Approved Exploring Vida's Capabilities in Digital Film Production</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/awaken-refreshed-ihome-zenity-sleep-solution-evaluation-your-guide-to-a-vibrant-morning/"><u>Awaken Refreshed: IHome Zenity Sleep Solution Evaluation - Your Guide to a Vibrant Morning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-examination-of-the-sleek-and-functional-fitbit-charge-cuffs-reviewed/"><u>Comprehensive Examination of the Sleek & Functional Fitbit Charge Cuffs – Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-oculus-quest-2-affordable-high-quality-vr-gaming/"><u>Comprehensive Review of the Oculus Quest 2: Affordable High-Quality VR Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-a20-analysis-unlocking-the-secrets-of-an-affordable-powerhouse/"><u>Comprehensive Samsung Galaxy A20 Analysis: Unlocking the Secrets of an Affordable Powerhouse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/digital-masterpiece-brookstone-framing-reviewed/"><u>Digital Masterpiece: Brookstone Framing Reviewed</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-updated-drivers-for-the-hp-deskjet-3050a-compatible-with-any-version-of-windows-beginner-friendly-download-tutorials/"><u>Free, Updated Drivers for the HP Deskjet 3050A - Compatible with Any Version of Windows | Beginner-Friendly Download Tutorials</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-started-with-pokemon-unite-on-your-computer-a-step-by-step-walkthrough/"><u>Get Started with Pokémon Unite on Your Computer – A Step-by-Step Walkthrough</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-11-pro-max-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone 11 Pro Max with iTunes | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/naming-gems-top-strategies-for-exceptional-podcast-titles/"><u>Naming Gems Top Strategies for Exceptional Podcast Titles</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-top-4-morgan-freeman-voice-generator-tools-for-voice-cloning-for-2024/"><u>New Top 4 Morgan Freeman Voice Generator Tools for Voice Cloning for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-instagram-memories-with-these-apps-for-2024/"><u>Unlocking Instagram Memories with These Apps for 2024</u></a></li>
 </ul></div>
 

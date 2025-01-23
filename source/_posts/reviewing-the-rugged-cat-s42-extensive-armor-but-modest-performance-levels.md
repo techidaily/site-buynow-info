@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2025-01-13T21:28:53.766Z
-updated: 2025-01-16T22:57:48.162Z
+date: 2025-01-19T21:09:22.964Z
+updated: 2025-01-22T18:12:16.685Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -18,16 +18,12 @@ thumbnail: https://thmb.techidaily.com/4701af21fbd3236ee27b5d0a75fe2af600bece4b4
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
@@ -52,9 +48,17 @@ Lifewire / Emily Ramirez
 
 2.8
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -86,21 +90,17 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -115,7 +115,7 @@ Lifewire / Emily Ramirez
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -127,7 +127,7 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
@@ -207,18 +207,22 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-steps-to-activate-windows-11-hdr-automatically/"><u>[New] 2024 Approved Steps to Activate Windows 11 HDR Automatically</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/eek-into-personality-traits-top-6-quizzes-to-determine-youtuber-preferences-for-2024/"><u>[New] Peek Into Personality Traits Top 6 Quizzes to Determine YouTuber Preferences for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-ultimate-guide-top-7-superior-wet-proof-camcorders-for-2024/"><u>[New] Ultimate Guide Top 7 Superior Wet-Proof Camcorders for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-webm-to-mp4-the-10-best-webm-to-mp4-converters/"><u>2024 Approved WebM to MP4 The 10 Best WebM to MP4 Converters</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analyzing-mobvois-ticwatch-e2-low-cost-meets-lackluster-performance/"><u>Analyzing Mobvoi's TicWatch E2: Low Cost Meets Lackluster Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ipad-vs-ipad-air-an-in-depth-look-at-what-sets-them-apart/"><u>IPad Vs. IPad Air: An In-Depth Look at What Sets Them Apart</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/is-youtubes-monetization-routine-for-2024/"><u>Is YouTube’s Monetization Routine for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/macbook-air-at-an-unbeatable-price-just-280-on-amazonlearn-more/"><u>MacBook Air at an Unbeatable Price: Just $280 on Amazon![Learn More]</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-paradox-of-value-and-vision-in-the-microsoft-surface-go-unveiled/"><u>Navigating the Paradox of Value and Vision in the Microsoft Surface Go Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-level-tech-showdown-samsung-galaxy-s24-ultra-vs-s23-ultra-which-one-takes-the-crown/"><u>Next-Level Tech Showdown: Samsung Galaxy S24 Ultra Vs. S23 Ultra – Which One Takes the Crown?</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-capturing-a-screen-image-on-your-hp-notebook/"><u>Step-by-Step Guide: Capturing a Screen Image on Your HP Notebook</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-pinning-several-locations-simultaneously-in-google-maps/"><u>Step-by-Step Guide: Pinning Several Locations Simultaneously in Google Maps</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-comprehensive-guide-to-accessible-no-cost-speech-recognition-apps-and-services/"><u>Updated Comprehensive Guide to Accessible, No-Cost Speech Recognition Apps and Services</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exposing-the-accelerating-path-of-8-youtube-content-creators/"><u>[New] 2024 Approved Exposing the Accelerating Path of 8 YouTube Content Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elevate-your-mac-broadcast-top-5-live-streaming-applications/"><u>[Updated] 2024 Approved Elevate Your Mac Broadcast Top 5 Live Streaming Applications</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-future-of-virtual-game-viewership-income/"><u>[Updated] 2024 Approved Future of Virtual Game Viewership Income</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-prime-methods-to-speed-up-or-slow-down-songs-on-spotify/"><u>[Updated] 2024 Approved Prime Methods to Speed Up or Slow Down Songs on Spotify</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-delight-in-delivery-7-upgraded-opening-ways/"><u>[Updated] In 2024, Delight in Delivery 7 Upgraded Opening Ways</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-effective-ways-share-facebook-videos-to-whatsapp/"><u>2024 Approved Effective Ways | Share Facebook Videos to WhatsApp?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-audew-portable-air-compressor-assessment-unmatched-mobility-and-dependability/"><u>Comprehensive Audew Portable Air Compressor Assessment - Unmatched Mobility & Dependability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-evaluation-the-ultimate-portable-and-potent-solution/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation: The Ultimate Portable and Potent Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-ru8000-flex-series-tv-review-intelligent-display-and-stunning-visuals/"><u>Comprehensive Samsung RU8000 Flex Series TV Review - Intelligent Display & Stunning Visuals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/consider-insurance-if-youre-prone-to-accidents-or-dropping-your-devices-consider-getting-insurance-coverage-with-your-purchase-to-protect-against-accidental19/"><u>Consider Insurance: If You're Prone to Accidents or Dropping Your Devices, Consider Getting Insurance Coverage with Your Purchase to Protect Against Accidental Damage.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ddpai-mini3-review/"><u>DDpai Mini3 Review</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/direct-video-access-top-5-ways-to-transfer-igtv-content/"><u>Direct Video Access Top 5 Ways to Transfer IGTV Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-selection-of-mobile-guardians-discover-the-best-iphone-malware-defenders/"><u>Elite Selection of Mobile Guardians: Discover the Best iPhone Malware Defenders</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-the-best-features-of-the-high-end-garmin-forerunner-ebike-sports-watch/"><u>Expert Analysis: The Best Features of the High-End Garmin Forerunner Ebike Sports Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-elite-network-server-racks-and-enclosures-dominating-2024-rankings/"><u>Expert Picks: Elite Network Server Racks and Enclosures Dominating 2024 Rankings</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Realme 12 Pro+ 5G</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unrivaled-cloud-based-chat-platforms/"><u>Unrivaled Cloud-Based Chat Platforms</u></a></li>
 </ul></div>
 

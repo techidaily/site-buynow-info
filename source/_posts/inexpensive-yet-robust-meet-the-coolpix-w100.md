@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2025-01-05T08:43:51.831Z
-updated: 2025-01-11T05:29:17.008Z
+date: 2025-01-20T20:31:33.093Z
+updated: 2025-01-22T23:35:16.522Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -44,7 +44,7 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 3.5
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
@@ -85,10 +85,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
  It doesn’t have a pass-through plug for your wall outlet, but thankfully the compact design should only take up one plug on your outlet.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: It’s straightforward**
 
  You have three different options for setting up the TP-Link RE200, all of which are pretty straightforward. With all three options, you’ll begin setup in close proximity to your router. The first setup option, which is what I chose, is to use TP-Link’s Tether app for iOS or Android devices. You’ll connect to the extender’s own Wi-Fi network, as indicated in the instructions, and then complete the steps to link to your home Wi-Fi network(s).
@@ -99,15 +95,7 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/04F8fDpm18B1nKg67KGE62zSjHI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_02-66c2a71ae40f45de8466ab23b5f96c09.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Solid performance**
 
@@ -118,7 +106,7 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/frUD2wVjOiQ6xyicmibzSTBMRNY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_04-97804e236e3642ca87cfaf2bd29d69c6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andrew Hayward
@@ -139,13 +127,25 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/iIfxo6VdIGO0JQzuzz4G5WeBKA8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_03-a1f202abd7e945a18b08ae3013c9d664.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andrew Hayward
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Impulse buy territory**
 
  Price is definitely one of the strongest suits here. At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home. It may not be a seamless mesh network if you lack a recent, compatible TP-Link router, however, and it won’t hit the higher speeds that some pricier extenders provide. You can do better, but you’ll probably have to spend a lot more to do so.
 
  At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **TP-Link RE200 vs. Netgear Nighthawk X4**
 
@@ -183,21 +183,24 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-exploring-splitcams-recording-capabilities-and-excellence-for-2024/"><u>[New] Exploring SplitCam's Recording Capabilities and Excellence for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-ideal-picks-9-best-video-calling-apps-for-androidios-business-needs/"><u>[New] In 2024, Ideal Picks 9 Best Video Calling Apps for Android/iOS Business Needs</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-ig-peak-performers-iphone-plus-androids-top-covers-app/"><u>[New] In 2024, IG Peak Performers IPhone + Android's Top Covers App</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-inside-vidmas-tech-a-new-era-for-video-capture-in-2024/"><u>[New] Inside Vidma’s Tech A New Era for Video Capture, In 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-ios-integration-listening-to-podcasts-made-easy-for-2024/"><u>[Updated] IOS Integration Listening to Podcasts Made Easy for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-beantech-bitwatch-s1-plus-revealed-the-ultimate-affordable-smartwatch-analysis/"><u>Comprehensive Beantech Bitwatch S1 Plus Revealed: The Ultimate Affordable Smartwatch Analysis</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/discovering-the-best-in-economy-laptops-an-in-depth-review-of-acer-aspire-e-15/"><u>Discovering the Best in Economy Laptops: An In-Depth Review of Acer Aspire E 15</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-of-microsoft-surfaces-superior-ergonomic-keyboard-features-and-quality/"><u>Expert Review of Microsoft Surface's Superior Ergonomic Keyboard Features and Quality</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-15-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on Apple iPhone 15</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-view-mov-files-on-galaxy-xcover-7-by-aiseesoft-video-converter-play-mov-on-android/"><u>How to view MOV files on Galaxy XCover 7 ?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-storm-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Storm 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-amazonbasics-secure-shredder-with-12-sheets-capacity/"><u>In-Depth Analysis: AmazonBasics Secure Shredder with 12 Sheets Capacity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/razer-blade-stealth-13-assessment-unprecedented-advancements-in-portable-powerhouse-tech/"><u>Razer Blade Stealth 13 Assessment: Unprecedented Advancements in Portable Powerhouse Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-b550-xts-command-efficiency/"><u>The Ultimate Guide to B550-XT's Command Efficiency</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-amazonbasics-7-port-usb-30-hub-your-solution-for-connectivity/"><u>Ultimate Guide to the AmazonBasics 7 Port USB 3.0 Hub - Your Solution for Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-performance-insights-on-the-lenovo-ideapad-flex-5-an-alternate-take-on-yoga-a940/"><u>Unveiling Performance Insights on the Lenovo IdeaPad Flex 5 – An Alternate Take on Yoga A940</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dying-light-co-op-gaming-review-mastering-first-person-adrenaline-pumped-parkour-challenges-together/"><u>'Dying Light' Co-Op Gaming Review: Mastering First-Person, Adrenaline-Pumped Parkour Challenges Together.</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-the-depths-of-adobe-cloud-storages-plus-top-non-adobe-choices/"><u>[New] 2024 Approved Exploring the Depths of Adobe Cloud Storages, Plus Top Non-Adobe Choices</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-tactics-to-determine-igtv-viewership-success-for-2024/"><u>[New] Tactics to Determine IGTV Viewership Success for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/outube-essentials-for-successful-channel-creation-for-2024/"><u>[New] Youtube Essentials for Successful Channel Creation for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-unleashing-musical-talent-with-magix-studio/"><u>2024 Approved Unleashing Musical Talent with Magix Studio</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-in-one-info-on-the-upcoming-apple-m4-chip-announcement-date-capabilities-and-core-benefits-exposed/"><u>All-in-One Info on the Upcoming Apple M4 Chip: Announcement Date, Capabilities, and Core Benefits Exposed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apeman-c450-inspection-a-comprehensive-look-at-this-economical-dash-cam-option/"><u>Apeman C450 Inspection: A Comprehensive Look at This Economical Dash Cam Option</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/behind-the-wheel-remotely-testing-and-evaluating-the-galaxy-ford-f150-rc-truck/"><u>Behind the Wheel, Remotely: Testing and Evaluating the Galaxy Ford F150 RC Truck</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-powerhouse-the-apple-ipad-air-4-unveiled/"><u>Budget-Friendly Powerhouse: The Apple iPad Air 4 Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canon-speedlite-430ex-iii-rt-flags-building-excellence/"><u>Canon Speedlite 430EX III-RT Flags Building Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-iphone-and-samsung-smartphones-a-comprehve-comparison-guide/"><u>Choosing Between iPhone & Samsung Smartphones: A Comprehve Comparison Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-vivomove-hr-analysis-the-fashionable-activity-tracker-perfect-for-on-the-go-enthusiasts/"><u>Comprehensive Garmin Vivomove HR Analysis: The Fashionable Activity Tracker Perfect for On-the-Go Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-play-on-a-49-inches-philips-oled-premium-gaming-display/"><u>Elevate Your Play on a 49 Inches Philips OLED Premium Gaming Display</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-realme-gt-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Realme GT 5? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/identifying-fake-chatgpt-websites-tips-on-detecting-and-responding-to-potential-scams/"><u>Identifying Fake ChatGPT Websites: Tips on Detecting and Responding to Potential Scams</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-iphone-13-device-from-icloud-by-drfone-ios/"><u>In 2024, How to Remove iPhone 13 Device from iCloud</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-strong-authentication-protocols/"><u>In 2024, Strong Authentication Protocols</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolving-0x800705b4-troubleshooting-steps-for-windows-update-issues-on-windows-10/"><u>Resolving 0X800705b4 Troubleshooting Steps for Windows Update Issues on Windows 10</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solution-steps-loading-problems-with-chrome-webpages-made-easy/"><u>Solution Steps: Loading Problems with Chrome Webpages Made Easy</u></a></li>
 </ul></div>
 

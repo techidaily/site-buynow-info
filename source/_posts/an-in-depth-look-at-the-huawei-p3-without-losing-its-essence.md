@@ -1,7 +1,7 @@
 ---
 title: An In-Depth Look at the Huawei P3 without Losing Its Essence
-date: 2024-12-05T04:27:28.928Z
-updated: 2024-12-11T05:31:35.428Z
+date: 2025-01-20T22:00:09.394Z
+updated: 2025-01-22T18:41:01.567Z
 categories:
   - BestProducts
 description: This Article Describes An In-Depth Look at the Huawei P3 without Losing Its Essence
@@ -44,13 +44,13 @@ Lifewire / Andy Zahn
 
 3.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Garmin Vivoactive 3 Music
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/FeCJ-wziP0Qoo9-pmifuFx9oZ7E=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Garmin-Vivoactive-3-Music-Smart-Watch-1-a182a2ce6d214080bd38bdb1c85e49a1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
 
@@ -83,7 +83,15 @@ Lifewire / Andy Zahn
 
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/M4iaS5RgiaubncJH8F-ZLVQQ8Po=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-2-a0cd2c48cc0d423d85a3dc1f7e677160.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: On the small side**
 
@@ -93,13 +101,13 @@ Lifewire / Andy Zahn
 
  The included band was a little small for my extra-large 9-inch wrists.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Fairly straightforward**
 
  Getting started with the Vivoactive 3 Music is reasonably easy, though it did take me some time after connecting to my phone to get through all the necessary permissions and connections it requires. There were updates to install, and I needed to create an account with Garmin. I also downloaded Spotify and connected the Vivoactive 3 to my wireless earbuds. Note that you need to connect to Wi-Fi to download music via Spotify or another app.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Hit and miss**
 
@@ -111,10 +119,6 @@ Lifewire / Andy Zahn
 
 The touchscreen interface is responsive, though a bit laggy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery: Variable duration**
 
  How long the battery in the Vivoactive 3 Music lasts depends entirely on how it’s used. If you only use its smartwatch capabilities occasionally then it’s good for a week at a time. However, when I made use of GPS, music, and other power-intensive features, it would run out in less than a full day of use.
@@ -124,7 +128,7 @@ The touchscreen interface is responsive, though a bit laggy.
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Proprietary ecosystem**
@@ -142,14 +146,10 @@ The touchscreen interface is responsive, though a bit laggy.
 ![Garmin Vivoactive 3 Music](https://www.lifewire.com/thmb/dALT4qb1vS9VNEvePqYoZlqXX0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Garmin-Vivoactive-3-Music-Smart-Watch-4-a84ac637f7034353bffd90856070a7d8.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Reasonable value**
 
@@ -195,22 +195,24 @@ The touchscreen interface is responsive, though a bit laggy.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-who-are-the-biggest-watchers-top-amazon-series-liked-by-twitter-2023/"><u>[New] In 2024, Who Are the Biggest Watchers? Top Amazon Series Liked by Twitter, 2023</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-navigating-nerves-in-10-must-do-vlogs/"><u>[New] Navigating Nerves in 10 Must-Do Vlogs</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-video-voyaging-navigating-twittersphere-and-tumbleverse/"><u>[New] Video Voyaging Navigating Twittersphere & Tumbleverse</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-best-practices-in-apple-podcast-file-formatting/"><u>[Updated] 2024 Approved Best Practices in Apple Podcast File Formatting</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-captivating-spokesperson-appraisal-8th-analysis/"><u>[Updated] 2024 Approved Captivating Spokesperson Appraisal 8Th Analysis</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-masterful-moment-preservation-a-gif-collectors-dream-toolkit/"><u>[Updated] 2024 Approved Masterful Moment Preservation - A Gif Collector's Dream Toolkit</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-the-complete-breakdown-of-game-capture-in-overwatch/"><u>[Updated] 2024 Approved The Complete Breakdown of Game Capture in Overwatch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-watch-dogs-legion-an-assessment-of-its-unique-new-world-perspective/"><u>Breaking Down Watch Dogs: Legion - An Assessment of Its Unique New World Perspective</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-security-for-your-macbook-pro-the-procase-13-case-evaluation/"><u>Budget-Friendly Security for Your MacBook Pro: The ProCase 13 Case Evaluation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-play-mov-files-on-samsung-galaxy-s23-ultra-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't play .mov files on Samsung Galaxy S23 Ultra</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-why-the-microsoft-sculpt-is-a-top-pick-for-an-ergonomic-keyboard-on-any-budget/"><u>Comprehensive Evaluation: Why the Microsoft Sculpt Is a Top Pick for an Ergonomic Keyboard on Any Budget</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-insights-on-lenovos-ideapad-computers-strong-build-quality-with-intuitive-use/"><u>Detailed Insights on Lenovo's Ideapad Computers: Strong Build Quality with Intuitive Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-perfect-balance-with-the-michael-kors-access-gen-5e-mkgo-a-comprehensive-analysis/"><u>Discovering the Perfect Balance with the Michael Kors Access Gen 5E MKGO - A Comprehensive Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dissecting-the-delightfully-chaotic-world-of-overcooked-2/"><u>Dissecting the Delightfully Chaotic World of Overcooked 2</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-honor-play-8t-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Honor Play 8T Phones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-sharpness-of-panasonics-hc-wxf991-camcorder/"><u>Unveiling the Sharpness of Panasonic's HC-WXF991 Camcorder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-wonders-of-torment-tides-of-numenera-an-immersive-experience-in-science-fiction-gaming/"><u>Unveiling the Wonders of 'Torment: Tides of Numenera': An Immersive Experience in Science Fiction Gaming</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-enablingdisabling-pip-on-youtube-for-ios-devices-step-by-step-guide/"><u>[New] 2024 Approved Enabling/Disabling PIP on YouTube for iOS Devices Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-apk-journey-to-gaming-bliss-funimate-pro-guide/"><u>[New] APK Journey to Gaming Bliss Funimate Pro Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-inside-story-stock-pictures-and-their-internet-fame/"><u>[New] Inside Story Stock Pictures and Their Internet Fame</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-gamers-guide-to-elite-streaming-platforms/"><u>[Updated] 2024 Approved Gamers' Guide to Elite Streaming Platforms</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-giggle-genesis-creepy-clones-with-a-smile/"><u>[Updated] In 2024, Giggle Genesis Creepy Clones with a Smile</u></a></li>
+<li><a href="https://article-files.techidaily.com/bringing-out-the-best-advanced-color-correction-in-gopro-for-2024/"><u>Bringing Out the Best Advanced Color Correction in GoPro for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-your-health-tracking-experience-discover-how-fitbit-sense-outshines-the-apple-watch/"><u>Elevate Your Health Tracking Experience: Discover How Fitbit Sense Outshines the Apple Watch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-factors-to-ponder-pre-dvr-investment/"><u>Essential Factors to Ponder Pre-DVR Investment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-deals-on-the-oneplus-6t-top-notch-efficiency-explored/"><u>Exceptional Deals on the OnePlus 6T: Top-Notch Efficiency Explored</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experience-a-world-in-wide-view-theta-sc2-overview/"><u>Experience a World in Wide View: Theta SC2 Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-ultimate-jrpg-with-yakuza-like-a-dragon/"><u>Experience the Ultimate JRPG with Yakuza: Like a Dragon!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-dji-mavic-2-pro-unrivaled-dominance-in-the-professional-drone-sphere/"><u>Expert Analysis of DJI Mavic 2 Pro: Unrivaled Dominance in the Professional Drone Sphere</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-similarities-and-disparities-amazon-kindle-and-fire-tablet-compared/"><u>Exploring Similarities and Disparities: Amazon Kindle and Fire Tablet Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-benefits-how-size-matters-with-the-apple-iphone-phone-12-pro-max/"><u>Exploring the Benefits: How Size Matters with the Apple iPhone ^[Phone] 12 Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-netgear-nighthawk-rax80-a-comprehensive-wi-fi-6-experience/"><u>Exploring the Netgear Nighthawk RAX80: A Comprehensive Wi-Fi 6 Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/getting-acquainted-with-the-latest-innovations-in-the-apple-iphone-15-pro/"><u>Getting Acquainted with the Latest Innovations in the Apple iPhone 15 Pro</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211441229-9798330354313-head-heart-crotch-connections/"><u>Head, Heart, Crotch Connections | Free Book</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-oppo-a1-5g-easily-and-safely-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change GPS Location on Oppo A1 5G Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
 </ul></div>
 

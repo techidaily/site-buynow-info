@@ -1,7 +1,7 @@
 ---
 title: 156-Pixel Photo Wonders From $100 Instants, 2024
-date: 2024-08-11T00:00:42.686Z
-updated: 2024-08-12T00:00:42.686Z
+date: 2025-01-21T18:49:14.449Z
+updated: 2025-01-23T04:29:05.752Z
 categories:
   - BestProducts
 description: This Article Describes 156-Pixel Photo Wonders From $100 Instants, 2024
@@ -16,12 +16,13 @@ thumbnail: https://www.lifewire.com/thmb/AlXuChSJGCBA3DqsjdJMKftu2dc=/540x405/fi
 
 of 10
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Best Match-3 Boredom Buster: Candy Crush Saga](https://king.com/game/candycrush)
 
 ![A game of Candy Crush Saga](https://www.lifewire.com/thmb/Hf4kwTbjcQtg5oA_gPLp5DOO1wc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/CandyCrushSaga-3d896c6051c741758be70ebe64cb55fb.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 King
 
@@ -52,9 +53,6 @@ of 10
 
 ## [Best Arcade Game for Zombie Lovers: Plants vs. Zombies](https://www.ea.com/ea-studios/popcap/plants-vs-zombies)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Two plants defend their lawn in Plants vs. Zombies](https://www.lifewire.com/thmb/9mRVdphMGZ4Bt1jRfvqfKsODGGs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-24at9.08.02AM-5bd07cfa46e0fb002632da8d.png)
 
  What We Like
@@ -81,6 +79,10 @@ of 10
 03
 
 of 10
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## [Best Game for Quick Action: Crossy Road](https://www.crossyroad.com/)
 
@@ -112,13 +114,13 @@ _Crossy Road_ has over 200 million downloads due to its addicting gameplay. It's
 
 of 10
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## [Best Game for a Hint of Nostalgia: Super Mario Emulator](https://supermarioemulator.com)
 
 ![Mario stands on a pipe in Super Mario Emulator](https://www.lifewire.com/thmb/OEIXcEP9CDCAsNMBb8ZkqgWM6Do=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-25at7.23.32PM-5bd25ebbc9e77c0051b6ba70.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -138,9 +140,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 of 10
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## [Best Casual Puzzle Game: Two Dots](https://www.dots.co/twodots/)
 
 ![Two Dots is a challenging matching game](https://www.lifewire.com/thmb/DlawY4Pfz62713Tv5MPwWLrQkBY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TwoDots-5bd26032c9e77c005866e643.jpg)
@@ -172,12 +171,16 @@ _Two Dots_ is the follow-up to_Dots_ and also has another sibling:_Dots & Co_ . 
 of 10
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## [Best Game for Music Lovers: Incredibox](https://www.incredibox.com)
 
 ![Craft your own tunes in Incredibox](https://www.lifewire.com/thmb/Dr2OJr00ImseghapjdxRr6RjN0U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-25at8.02.56PM-5bd267d4c9e77c0051b86ac9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -207,10 +210,11 @@ of 10
 
 ## [Best Story-Driven Puzzler: Gardenscapes](https://playrix.com/games/gardenscapes)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Gardenscapes is a match-3 puzzle game with some simulation elements](https://www.lifewire.com/thmb/n7k7EWgT75c4j8tL71IHUOoL1TE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/IMG_7171-5bd26212c9e77c00510b33f2.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -240,10 +244,11 @@ of 10
 
 ## [Most Addicting Building Game: Age of 2048](http://nlabsoft.com/category/games/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![A player builds up their civilization in Age of 2048](https://www.lifewire.com/thmb/TDdAnX1jKCkMytRBWvhnspM-9aY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2048-5bd2646246e0fb0026d3f8c2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  What We Like
 
@@ -272,10 +277,6 @@ of 10
 
 ## [Best Brain Teaser: Unpuzzle 2](https://www.mathplayground.com/logic%5Funpuzzle2.html)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![Unpuzzle 2 is a jigsaw game with a twist](https://www.lifewire.com/thmb/bJiObh6gqNpy2txxMtQNRh-jrr0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/ScreenShot2018-10-25at7.58.06PM-5bd2670dc9e77c0051b84ae0.png)
 
  What We Like
@@ -298,14 +299,8 @@ _Unpuzzle 2_ is only available as a free-to-play game online. There are no mobil
 
 of 10
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ## [Best Social Sim Game: Animal Crossing Pocket Camp](https://ac-pocketcamp.com/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Key art for Animal Crossing: Pocket Camp](https://www.lifewire.com/thmb/TM-EGuJ6Ks0ih4or2Nm-I7xUl8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AnimalCrossingPocketCamp-049e54c6be8143ff953b136ed13e9022.jpg)
 
 Nintendo
@@ -354,8 +349,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -363,4 +356,20 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-deciphering-the-language-of-copyright-notices-from-youtube-for-2024/"><u>[New] Deciphering the Language of Copyright Notices From YouTube for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-20plus-laughs-no-boundaries-crafting-memes-across-metaverse-realms-for-2024/"><u>[Updated] 20+ Laughs, No Boundaries Crafting Memes Across Metaverse Realms for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-zero-price-windows-desktop-snapping-tutorials/"><u>2024 Approved Zero Price Windows Desktop Snapping Tutorials</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/advanced-pc-builds-and-more-your-one-stop-resource-at-toms-hardware/"><u>Advanced PC Builds and More - Your One-Stop Resource at Tom's Hardware</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-between-an-ipad-pro-or-a-macbook-pro-a-comprehensive-guide/"><u>Deciding Between an iPad Pro or a MacBook Pro: A Comprehensive Guide</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/device-unlock-a05s-by-drfone-android-unlock-android-unlock/"><u>Device unlock A05s</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/from-average-to-advanced-graphics-card-revamp/"><u>From Average to Advanced: Graphics Card Revamp</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/important-factors-how-to-pick-your-perfect-gaming-system/"><u>Important Factors: How to Pick Your Perfect Gaming System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inexpensive-yet-robust-meet-the-coolpix-w100/"><u>Inexpensive Yet Robust - Meet the Coolpix W100</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-compact-innovation-an-extensive-evaluation-of-the-iphone-12-mini-from-apple/"><u>Mastering Compact Innovation: An Extensive Evaluation of the iPhone 12 Mini From Apple</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-how-to-correctly-address-error-0x8024002e-in-windows-updates/"><u>Step-by-Step Guide: How to Correctly Address Error 0X8024002E in Windows Updates</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-5-features-of-the-aphaca-bt69-the-ultimate-wireless-fm-transmitter-for-an-immersive-listening-experience/"><u>Top 5 Features of the Aphaca BT69 - The Ultimate Wireless FM Transmitter for an Immersive Listening Experience</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/unveiling-the-ultimate-selection-top-photo-and-document-scanners-2024-edition/"><u>Unveiling the Ultimate Selection: Top Photo and Document Scanners - 2024 Edition</u></a></li>
+</ul></div>
 

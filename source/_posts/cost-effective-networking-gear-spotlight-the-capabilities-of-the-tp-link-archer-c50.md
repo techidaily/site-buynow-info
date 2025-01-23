@@ -1,7 +1,7 @@
 ---
 title: "Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
-date: 2025-01-15T23:03:47.302Z
-updated: 2025-01-16T20:20:14.707Z
+date: 2025-01-15T21:55:28.810Z
+updated: 2025-01-22T19:46:08.603Z
 categories:
   - BestProducts
 description: "This Article Describes Cost-Effective Networking Gear Spotlight: The Capabilities of the TP-Link Archer C50"
@@ -18,13 +18,13 @@ thumbnail: https://thmb.techidaily.com/58350f5e2ca7fe4c9025e8f16557c12c6fe252de2
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Docooler USB 2.0 12 Megapixel
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/9tSqTK9OEckACvQEhU5iBbHvMfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_HERO_1LW4065141_7_Final_Square-bd507bc5d1d646f9a0d8d7466601f569.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / James Huenink
 
@@ -77,7 +77,7 @@ Lifewire / James Huenink
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Flimsy and difficult to use**
@@ -96,6 +96,10 @@ Lifewire / James Huenink
 
  It was easy to set up when we clipped it to a laptop, but terrible when we tried to put it on our HD TV. Every time we moved the computer or the USB cable, the camera slid, twisted, or fell off the TV. The ball joint, which connects the camera to the base, didn’t move smoothly, so we struggled to point the Docooler USB 2.0 12 Megapixel in the right direction, and we were too worried about breaking the plastic to try and force it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Camera Quality: Not even close to advertised**
 
  The Docooler USB 2.0 12 Megapixel is advertised as a 12 megapixel camera capable of HD video, but it wasn’t even close to that. We tested the resolution by taking photos through photobooth, and they were only 640 x 480, or .31 megapixels. We tested the video resolution by using an online webcam testing tool, and it showed exactly the same results. The manufacturer claims the camera has 38 times more resolution than it actually does. We should have known that the manufacturer’s claims were too good to be true given the $8 asking price, but claiming a disparity that huge is really brazen.
@@ -106,14 +110,10 @@ Lifewire / James Huenink
 
 ![Docooler USB 2.0 12 Megapixel](https://www.lifewire.com/thmb/BxI5asxQavdUO5cT3iIpSIqM9Mk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Docooler_USB2_12MegapixelWebCam_1LW4065141_10_Final_Horiz-8acc6be9290c439496f17a63684115ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / James Huenink
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Underwhelming performance in video and audio**
@@ -128,13 +128,13 @@ Lifewire / James Huenink
 
  The audio performance of the Docooler USB 2.0 12 Megapixel was also lackluster. The built-in microphone produced poor quality sound, and when we tested it on Skype, voices were both muffled and echoey. People on the other end could understand what we were saying, but it was an unpleasant experience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Cheap price, even cheaper webcam**
 
  The Docooler USB 2.0 12 Megapixel is the most inexpensive webcam you can buy, ranging from $8 up to around $15, but there’s a reason it’s priced so low. The image and audio quality are both terrible, and the camera is difficult to use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Falls short**
 
@@ -182,20 +182,14 @@ Lifewire / James Huenink
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-guidance.techidaily.com/new-strategies-to-bypass-edgenuity-videos-with-minimal-hassle/"><u>[New] Strategies to Bypass Edgenuity Videos with Minimal Hassle</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-update-complete-shorts-visibility-restored/"><u>[New] Update Complete Shorts Visibility Restored</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-smoothmoves-recordwatcher-study/"><u>[Updated] SmoothMoves RecordWatcher Study</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-vivosmart-4-analysis-exploring-the-features-of-enhanced-body-battery-and-advanced-stress-tracking/"><u>Comprehensive Garmin Vivosmart #4 Analysis: Exploring the Features of Enhanced Body Battery & Advanced Stress Tracking</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experiencing-android-at-its-finest-a-detailed-look-into-google-pixel-3-xt10-review/"><u>Experiencing Android at Its Finest: A Detailed Look Into Google Pixel 3 XT^10 Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/futures-soundtrack-for-future-fitness-enthusiasts/"><u>Future's Soundtrack for Future Fitness Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gopros-boldest-move-in-the-black-hero9-model/"><u>GoPro's Boldest Move in the Black HERO9 Model</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-oneplus-ace-2-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change OnePlus Ace 2 Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-poco-m6-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Poco M6 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/pinnacle-studio-25-review-2023-for-2024/"><u>Pinnacle Studio 25 Review 2023 for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/power-up-your-tech-with-poweradd-pilot-pro2-in-depth-charger-pad-evaluation/"><u>Power Up Your Tech with POWERADD Pilot Pro2 - In-Depth Charger Pad Evaluation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/speed-capture-faceoff-gopro-hero-4-challenges-ghost-s/"><u>Speed Capture Faceoff GoPro Hero 4 Challenges Ghost-S</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-comprehensive-guide-to-choosing-the-right-tv-streamer-app-of-2024/"><u>The Comprehensive Guide to Choosing the Right TV Streamer App of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-features-exploring-timeless-elegance-with-cutting-edge-functionality-on-samsung-galaxy-watch6/"><u>Unveiling the Best Features: Exploring Timeless Elegance with Cutting-Edge Functionality on Samsung Galaxy Watch6</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-beginners-guide-top-cartoon-video-makers-online-and-offline-for-2024/"><u>Updated Beginners Guide Top Cartoon Video Makers Online and Offline for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-pull-the-crowd-tactics-for-viral-instagram-videos/"><u>[Updated] Pull the Crowd Tactics for Viral Instagram Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/an-experts-insight-on-connectivity-and-security-with-the-linksys-wrt1900acs-the-open-source-wifi-router/"><u>An Expert's Insight on Connectivity and Security with the Linksys WRT1900ACS - The Open Source WiFi Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/back-on-track-with-fortnite-in-depth-insights-and-analysis-of-the-latest-gameplay-additions/"><u>Back on Track with Fortnite: In-Depth Insights and Analysis of the Latest Gameplay Additions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/download-and-deploy-llama-2-your-instructional-guide/"><u>Download & Deploy Llama 2: Your Instructional Guide</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>How can I get more stardust in pokemon go On Apple iPhone 6s? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-gmail-password-on-zte-nubia-z60-ultra-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on ZTE Nubia Z60 Ultra Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reimagining-the-taskbar-essential-changes-for-windows-11-enhancement/"><u>Reimagining the Taskbar: Essential Changes for Windows 11 Enhancement</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722727850852-unleash-high-speed-connectivity-and-slim-latency-with-the-innovative-extollo-lansocket-1500-reviewed/"><u>Unleash High-Speed Connectivity & Slim Latency with the Innovative Extollo LANSocket 1500 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-razer-blade-pro-17-review-of-portable-high-performance-gaming/"><u>Unveiling the Razer Blade Pro 17: Review of Portable High-Performance Gaming</u></a></li>
 </ul></div>
 

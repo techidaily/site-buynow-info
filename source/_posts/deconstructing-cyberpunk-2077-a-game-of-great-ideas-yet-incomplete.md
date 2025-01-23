@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2025-01-12T17:25:35.661Z
-updated: 2025-01-16T18:05:51.825Z
+date: 2025-01-18T05:30:51.112Z
+updated: 2025-01-22T23:42:00.903Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -43,12 +43,16 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -70,10 +74,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
@@ -120,21 +120,17 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -147,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,17 +175,19 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-charting-the-course-to-trending-youtubers/"><u>[New] 2024 Approved Charting the Course to Trending YouTubers</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-tips-for-clearing-blank-youtube-playback/"><u>[New] 2024 Approved Tips for Clearing Blank YouTube Playback</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-top-picks-in-affordable-home-cinema-setups-with-4k/"><u>[New] Top Picks in Affordable Home Cinema Setups with 4K</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-an-in-depth-guide-to-every-element-of-srt/"><u>[Updated] An In-Depth Guide to Every Element of SRT</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-key-frames-per-second-in-superior-slow-motion-imaging/"><u>[Updated] In 2024, Key Frames per Second in Superior Slow Motion Imaging</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/madden-19-critique-excellent-functionality-beginning-to-show-its-age/"><u>Madden '19 Critique: Excellent Functionality Beginning to Show Its Age</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/spotlight-on-apple-watch-series-4-a-leap-forward-in-excellence/"><u>Spotlight on Apple Watch Series 4: A Leap Forward in Excellence</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/streamline-your-project-simple-techniques-for-blending-wav-files/"><u>Streamline Your Project: Simple Techniques for Blending WAV Files</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-guide-elevate-your-gaming-experience-with-voice-customization-in-free-fire/"><u>The Ultimate Guide Elevate Your Gaming Experience with Voice Customization in Free Fire</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-a-smart-key-finder/"><u>Ultimate Guide to Choosing a Smart Key Finder</u></a></li>
-<li><a href="https://some-skills.techidaily.com/understanding-crossfade-audio-transitions-for-2024/"><u>Understanding Crossfade Audio Transitions for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-tascam-cd-200bt-a-masterful-music-production-device-with-ble/"><u>Unveiling the Tascam CD-200BT: A Masterful Music Production Device with BLE</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-the-ultimate-guide-to-top-12-html5-video-engines/"><u>[Updated] 2024 Approved The Ultimate Guide to Top 12 HTML5 Video Engines</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elite-online-livestream-frameworks/"><u>[Updated] Elite Online Livestream Frameworks</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-an-android-enthusiasts-dream-customizing-your-phone-alerts-with-style-and-personality/"><u>2024 Approved An Android Enthusiast’s Dream Customizing Your Phone Alerts with Style and Personality</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-live-broadcast-essentials-for-macos-users-on-mixer/"><u>2024 Approved Live Broadcast Essentials for macOS Users on Mixer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-ultimate-list-leading-gaming-consoles-ranked/"><u>2024'S Ultimate List: Leading Gaming Consoles Ranked</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-performance-the-truth-about-the-tp-link-powerline-wifi-signal-expander-av1300/"><u>Assessing Performance: The Truth About the TP-Link Powerline WiFi Signal Expander (AV1300)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-examination-of-the-sony-playstation-5s-superiority-over-its-predecessor/"><u>Comprehensive Examination of the Sony PlayStation 5'S Superiority Over Its Predecessor</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-to-apples-latest-innovation-the-m4-silicon-chip-specs-and-availability-dates/"><u>Comprehensive Guide to Apple's Latest Innovation: The M4 Silicon Chip Specs and Availability Dates</u></a></li>
+<li><a href="https://win-popular.techidaily.com/gpu-troubleshooting-guide-understanding-zero-output-issues-with-expert-insights-from-yl-software/"><u>GPU Troubleshooting Guide: Understanding Zero Output Issues with Expert Insights From YL Software</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-beneath-the-surface-secrets-to-professional-underwater-videos-with-gopro/"><u>In 2024, Beneath the Surface Secrets to Professional Underwater Videos with GoPro</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/sea-of-thieves-wont-launch-here-are-the-fixes-you-need-to-know/"><u>Sea of Thieves Won't Launch? Here Are the Fixes You Need to Know</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/uniden-r3-radar-detector-assessment-durable-construction-and-extended-detection-capabilities/"><u>Uniden R3 Radar Detector Assessment: Durable Construction & Extended Detection Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-yoga-a940-a-series-detailed-review-of-specs-usability-and-design/"><u>Unveiling the Lenovo Yoga A940 ([A Series]): Detailed Review of Specs, Usability & Design</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/1728492721666-windows-11/"><u>Windows 11上有效利用分区阴影复制功能的步骤</u></a></li>
 </ul></div>
 

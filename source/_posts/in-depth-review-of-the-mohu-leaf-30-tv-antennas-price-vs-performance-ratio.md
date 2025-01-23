@@ -1,7 +1,7 @@
 ---
 title: In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
-date: 2025-01-12T19:35:27.935Z
-updated: 2025-01-17T00:17:38.599Z
+date: 2025-01-18T00:23:24.118Z
+updated: 2025-01-23T06:08:33.883Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Review of the Mohu Leaf 30 TV Antenna's Price Vs. Performance Ratio
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/bLtleSUHUny2HyUtrVdOZ9KgFSE=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -45,10 +45,6 @@ Lifewire / Zach Sweat
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
 
 4.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
@@ -79,14 +75,10 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Dark, sturdy, and feature-packed**
@@ -131,11 +123,11 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
- Lifewire / Zach Sweat
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Zach Sweat
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -181,6 +173,10 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -192,7 +188,7 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/6VfCJGOyjLkAkE_mjiHr7rz8Gyw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-6-0c1d7a2ae4e8443ea5b69f559e52bd12.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -210,6 +206,10 @@ Lifewire / Zach Sweat
  **A truly awesome controller with a steep price point.**
 
  Everything we disliked about the original Elite controller has been improved with the second iteration, making it the best first-party controller you can get for XB1 or PC. However, the steep price point might be a hard pill to swallow for users who don’t like to splurge.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -243,19 +243,21 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/est-mac-mp4-cutter-apps-enhance-video-editing/"><u>[New] Best Mac MP4 Cutter Apps Enhance Video Editing</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-captivate-and-conquer-with-customized-content-shorts-for-2024/"><u>[Updated] Captivate and Conquer with Customized Content Shorts for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-shoot-straight-best-tripods-for-smartphones-today/"><u>[Updated] Shoot Straight Best Tripods for Smartphones Today</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-edge-headsets-discovering-2024s-best-wears/"><u>Cutting-Edge Headsets: Discovering 2024'S Best Wears</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-sculpt-social-shares/"><u>In 2024, Sculpt Social Shares</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insights-on-the-affordable-yet-stunning-performance-of-the-samsung-galaxy-s1amobileandroidandplatformios)s10e/"><u>Insights on the Affordable Yet Stunning Performance of the Samsung Galaxy S1amobile=android&platform=ios>S10e</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/masterful-mobile-cinematography-now-at-your-fingertps-how-apple-upgrades-the-iphone-with-final-cut-for-pro-level-shooting/"><u>Masterful Mobile Cinematography Now at Your Fingertps: How Apple Upgrades the iPhone with Final Cut for Pro-Level Shooting</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolving-frequent-microsoft-edge-malfunctions-on-windows-10/"><u>Resolving Frequent Microsoft Edge Malfunctions on Windows 10</u></a></li>
-<li><a href="https://video-capture.techidaily.com/snapshot-success-mastering-the-art-of-xbox-one-captures-for-2024/"><u>Snapshot Success Mastering the Art of Xbox One Captures for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-motorola-razr-40-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Motorola Razr 40 FRP</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-powerhouse-companion-for-your-devices-an-anker-usb-30-speed-test-and-review/"><u>The Powerhouse Companion for Your Devices: An Anker USB 3.0 Speed Test & Review.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-simple-guide-to-bouncies-cost-effective-reliable-gps-tracker-options/"><u>The Simple Guide to Bouncie's Cost-Effective, Reliable GPS Tracker Options</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/topmates-cost-effective-laptop-chiller-c302-a-thorough-examination/"><u>TopMate's Cost-Effective Laptop Chiller (C302) - A Thorough Examination</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-ultimate-list-of-2024s-premier-cable-modems/"><u>Unveiling the Ultimate List of 2024'S Premier Cable Modems</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-mastering-fb-sharing-youtube-videos-directly/"><u>[New] 2024 Approved Mastering FB Sharing YouTube Videos Directly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unlock-the-secrets-of-9gag-for-memetic-success/"><u>[New] 2024 Approved Unlock the Secrets of 9GAG for Memetic Success</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-top-choice-video-capture-apps-iphone/"><u>[New] In 2024, Top Choice Video Capture Apps iPhone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-tunetales-music-and-speech-review/"><u>[Updated] TuneTales Music and Speech Review</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-leading-portals-for-virtual-graffiti-fonts/"><u>2024 Approved Leading Portals for Virtual Graffiti Fonts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-methods-to-refresh-your-desktops-zoom-software-across-platforms/"><u>Easy Methods to Refresh Your Desktop's Zoom Software Across Platforms</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Infinix Hot 30i | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-productivity-with-the-samsung-galaxy-tab-s4-an-android-tablet-exposed/"><u>Mastering Productivity with the Samsung Galaxy Tab S4: An Android Tablet Exposed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-survival-with-friends-in-dying-light-a-co-op-fps-that-pushes-your-limits-through-parkour-skills/"><u>Mastering Survival with Friends in 'Dying Light': A Co-Op FPS That Pushes Your Limits Through Parkour Skills</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nanocoatings-on-dental-implants-improve-osseointegration-enhancing-the-stability-and-lifespan-of-the-implant-within-the-patients-body/"><u>Nanocoatings on Dental Implants Improve Osseointegration, Enhancing the Stability and Lifespan of the Implant Within the Patient's Body</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-performance-motorola-one-5g-ace-impressive-5g-connectivity-and-long-lasting-battery/"><u>Outstanding Performance: Motorola One ‌5G Ace - Impressive 5G Connectivity & Long-Lasting Battery</u></a></li>
+<li><a href="https://win-answers.techidaily.com/revive-your-gaming-experience-overcoming-the-issue-of-multiversus-failure-to-load-on-pc/"><u>Revive Your Gaming Experience – Overcoming the Issue of MultiVersus Failure to Load on PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/shooting-for-fun-in-the-cosmos-a-review-of-the-outer-worlds-sci-fi-tale/"><u>Shooting for Fun in the Cosmos: A Review of 'The Outer Worlds' Sci-Fi Tale</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/shooting-through-the-cosmos-unveiling-the-outer-worlds-engaging-science-fiction-tale/"><u>Shooting Through the Cosmos: Unveiling The Outer Worlds - Engaging Science Fiction Tale</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/singing-mastery-with-sml385btbk-top-rated-no-hassle-and-plug-n-play-karaoke-system/"><u>Singing Mastery with SML385BTBK: Top Rated, No Hassle & Plug 'N Play Karaoke System</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-stabilize-changing-printer-on-desktop-os/"><u>Steps to Stabilize Changing Printer on Desktop OS</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Why You Can't Miss the Epic RPG Adventure in 'Yakuza: Like A Dragon'"
-date: 2025-01-06T19:59:20.727Z
-updated: 2025-01-11T09:21:08.517Z
+date: 2025-01-21T04:09:48.795Z
+updated: 2025-01-23T03:01:42.945Z
 categories:
   - BestProducts
 description: "This Article Describes Why You Can't Miss the Epic RPG Adventure in 'Yakuza: Like A Dragon'"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/dcd52c68a0261301dc49a434565ff933798115ab3
 ## SEGA Yakuza: Like a Dragon
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/a-p7jLzGh5XDa5UjESh5w8kXrPk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -48,6 +52,10 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/2HQ40tAW6PvhutMT0JyWvwFpbdI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_HeroSquare-ea84381e359846e6951c77b6f7e7c5a0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Erika Rawes
 
 [View On Amazon](https://www.amazon.com/dp/B0883VX67Y/?tag=lifewire-onsite-prod-20&ascsubtag=5118337%7Cn65397a42bddb43c7b820823d2a25aca405%7CB0883VX67Y) [View On Walmart](https://www.walmart.com/ip/839348316) [View On Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2F6413107.p)
@@ -68,19 +76,11 @@ Lifewire / Erika Rawes
 
  The[best PC games](https://www.lifewire.com/best-pc-games-4147292) offer something unique that keeps you coming back for more. Yakuza: Like a Dragon takes the standard Yakuza formula and stands it on its head, moving the fighting system from real-time to turn-based and making this entry to the series feel like a true JRPG. I played Yakuza: Like a Dragon[on PC](https://www.lifewire.com/best-pc-games-4147292) to find out if these changes make this game better or worse. Should you play the new Yakuza or skip it? Read on to check out my full review of Yakuza: Like a Dragon.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Setting and Plot: A very long intro
 
  Yakuza: Like a Dragon places you in the shoes of Ichiban Kasuga, a young Yakuza upstart who was raised as an orphan in a Soap House by the owner and the women who worked there. Kasuga gets into a bit of trouble with a Yakuza family but is saved by Masumi Arakawa, the patriarch of the Arakawa family. Because of this, Kasuga pledges his life to Arakawa, promising to repay the debt.
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/Mo4mMH944CddmYJTyCxtMRxK9-k=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_05-e59c99ba9bd249e7a2241f532dd742dc.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Erika Rawes
 
@@ -134,21 +134,17 @@ Lifewire / Erika Rawes
 
 ![Yakuza: Like a Dragon](https://www.lifewire.com/thmb/zrV5S3jL3_76G0PVgT1K_Ty6WWI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Yakuza_LikeADragon_04-e33b82262b344fecae27d668b3c92ba9-55ba8acb6d324eed81fbf5453e770db8.jpg)
 
-Lifewire / Erika Rawes
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Lifewire / Erika Rawes
 
 ## Price: The typical $60
 
  The base version of Yakuza: Like a Dragon comes in at $60 like most new titles. The price is reasonable for the amount of gameplay. However, you have two other purchase options as well. The Hero Edition, which costs $70, includes the Job Set and the Management Mode set and features two extra jobs and three sets of Management mode employees.
 
  The Legendary Hero edition costs $90, and it includes both previously listed sets, as well as the Crafting Mat, Stat Boost, Karaoke, and Ultimate Costume sets. These are all nice bonuses and can certainly add to the experience, but you will also find more than enough gameplay in the base game.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Yakuza: Like a Dragon vs. Dragon Quest Series
 
@@ -161,7 +157,7 @@ Lifewire / Erika Rawes
  A well-crafted masterpiece. Yakuza: Like a Dragon falls into the must-play category for anyone who loves a good story, JRPGs, or a wild game that will make you laugh. It’s definitely a departure from the rest of the series, but that contributes to a lot of the fun and uniqueness of the game.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -169,6 +165,10 @@ Lifewire / Erika Rawes
 * [Cyberpunk 2077](https://www.lifewire.com/cyberpunk-2077-review-5113844)
 * [Godfall](https://www.lifewire.com/godfall-review-5095668)
 * [Torment: Tides of Numenera](https://www.lifewire.com/torment-tides-of-numenera-review-5077302)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,19 +198,17 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ed-best-composers-for-the-ultimate-video-photographic-symphony/"><u>[Updated] Best Composers for the Ultimate Video-Photographic Symphony</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-the-next-level-in-monitor-technology-a-deep-dive-into-p2715qs-wonders/"><u>[Updated] The Next Level in Monitor Technology - A Deep Dive Into P2715Q's Wonders</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-virtual-venture-gears-choosing-best-metaverse-headsets/"><u>2024 Approved Virtual Venture Gears Choosing Best Metaverse Headsets</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s6-features-s-pen-and-dex-mode/"><u>In-Depth Analysis of the Samsung Galaxy Tab S6 Features - S Pen & Dex Mode</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/insignia-ns-4-43df710na19-the-cost-effective-way-to-enjoy-ultra-hd-streaming-with-alexa-integration/"><u>Insignia NS-4 43DF710NA19: The Cost-Effective Way to Enjoy Ultra HD Streaming with Alexa Integration</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insignia-ns-4ns-df710nacd-exploring-the-affordable-fire-tv-edition-with-alexa-and-ultra-hd-capabilities/"><u>Insignia NS-4nS-Df710NACd: Exploring the Affordable Fire TV Edition with Alexa and Ultra HD Capabilities</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-motion-mastery-best-apps-for-android-and-ios-devices/"><u>New 2024 Approved Motion Mastery Best Apps for Android and iOS Devices</u></a></li>
-<li><a href="https://driver-download.techidaily.com/quick-and-simple-download-of-razer-mamba-controller-drivers-do-it-right-away/"><u>Quick & Simple Download of Razer Mamba Controller Drivers – Do It Right Away!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-bargain-for-quality-4k-action-capture-akaso-ek7000/"><u>The Best Bargain for Quality 4K Action Capture - AKASO EK7000</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/the-samsung-galaxy-note-3-debut-schedule-capabilities-and-cost-breakdown/"><u>The Samsung Galaxy Note 3 Debut: Schedule, Capabilities & Cost Breakdown</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-top-racing-rc-rock-crawler-a-comprehensive-off-road-videocamera/"><u>Ultimate Guide to the Top Racing RC Rock Crawler: A Comprehensive Off-Road Videocamera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/uncovering-the-excellence-of-the-acer-aspire-e-15-where-affordability-meets-quality/"><u>Uncovering the Excellence of the Acer Aspire E 15 - Where Affordability Meets Quality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unraveling-the-mobvoi-ticwatch-pro-3-superior-gps-capabilities-meet-enhanced-dual-display-longevity-in-our-test-drive/"><u>Unraveling the Mobvoi TicWatch Pro 3: Superior GPS Capabilities Meet Enhanced Dual Display Longevity in Our Test Drive</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-9-critical-steps-to-double-down-on-your-tiktok-clans-growth/"><u>[New] 2024 Approved 9 Critical Steps to Double Down on Your TikTok Clan's Growth</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-perfect-your-online-storytelling-top-101-tips-for-facebook-biographies-for-2024/"><u>[Updated] Perfect Your Online Storytelling Top 101 Tips for Facebook Biographies for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-phones-to-cameras-enhancing-your-live-stream-setup/"><u>[Updated] Phones to Cameras Enhancing Your Live Stream Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-tp-link-re2n-ac750-wi-fi-repeater-assessment/"><u>Affordable TP-Link RE2n AC750 Wi-Fi Repeater Assessment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-ultra-hd-insignia-ns-43df710na19-with-alexa-a-comprehensive-fire-tv-edition-evaluation/"><u>Affordable Ultra HD Insignia NS-43DF710NA19 with Alexa: A Comprehensive Fire TV Edition Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-you-still-using-a-modern-day-dinosaur-called-the-ipad/"><u>Are You Still Using a Modern-Day Dinosaur Called the iPad?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beginners-insight-into-rebel-t6-dslrs-economy/"><u>Beginner's Insight Into Rebel T6 DSLR's Economy</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/cost-effective-wireless-booster-an-in-depth-analysis-of-the-tp-link-re200-ac750-range-extender/"><u>Cost-Effective Wireless Booster: An In-Depth Analysis of the TP-Link RE200 AC750 Range Extender</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/from-concept-to-completion-utilizing-luts-effectively-in-premiere-pro-for-2024/"><u>From Concept to Completion Utilizing LUTs Effectively in Premiere Pro for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-iphone-14-plus-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix iPhone 14 Plus Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mp4-won-t-play-on-my-redmi-k70e-by-aiseesoft-video-converter-play-mp4-on-android/"><u>MP4 won't play on my Redmi K70E</u></a></li>
+<li><a href="https://fox-access.techidaily.com/preparing-your-pc-and-room-for-the-ultimate-vr/"><u>Preparing Your PC and Room for the Ultimate VR</u></a></li>
 </ul></div>
 

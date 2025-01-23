@@ -1,7 +1,7 @@
 ---
 title: In-Depth Analysis of WebEx's Strengths and Weaknesses in Online Meetings
-date: 2025-01-15T21:15:25.816Z
-updated: 2025-01-16T20:40:55.337Z
+date: 2025-01-19T16:50:12.878Z
+updated: 2025-01-22T17:29:17.932Z
 categories:
   - BestProducts
 description: This Article Describes In-Depth Analysis of WebEx's Strengths and Weaknesses in Online Meetings
@@ -22,6 +22,10 @@ thumbnail: https://www.lifewire.com/thmb/6tPvayBfparNN80H3K-NMdT0Kfc=/400x300/fi
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LJwkWIKV_tIoZmxEqV9kr7ByA1Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_HeroSquare-d40232740fc34cdbb9b7197a7bda177d.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jordan Oloman
 
  What We Like
@@ -40,10 +44,6 @@ Lifewire / Jordan Oloman
 [View On Amazon $93](https://www.amazon.com/NETGEAR-PowerLINE-1200-Gigabit-PL1200-100PAS/dp/B00S6DBGJM/?tag=lifewire-onsite-prod-20&ascsubtag=4775706%7Cnd7ef9f90fead488fa5331864dc7d135e18%7CB00S6DBGJM) [View On Walmart $95](https://www.walmart.com/ip/POWERLINE-1200/45611933) [View On Best Buy $48](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-powerline-ac1200-gigabit-ethernet-adapter-2-pack-white%2F4002029.p%3FskuId%3D4002029)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Powerline PL1200
 
@@ -73,14 +73,10 @@ Lifewire / Jordan Oloman
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/pTY-hBlPDWY0Ns6j4BVyAl75U-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_04-cd509045b4a3477fab85fdf3c69cacb4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jordan Oloman
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Sharp edges and frustration**
@@ -96,6 +92,10 @@ Lifewire / Jordan Oloman
  There’s also only one Ethernet port on the Netgear kit, which means that you can only improve the wired connection of one device—a poor payoff for all of the manoeuvering you may have to do, especially when there’s certainly space for another port. Overall, the design is obtrusive and frustrating, which is a shame given how reliable adapter is.
 
 ![Netgear Powerline 1200](https://www.lifewire.com/thmb/LMrQEcpONDZxLUfoMW6U8sX4dQw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_Powerline1000_02-a8557f722ac84f29b6efb2a763d22a3c.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Jordan Oloman
 
@@ -116,7 +116,7 @@ Lifewire / Jordan Oloman
  Lifewire / Jordan Oloman
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: A solid improvement**
@@ -135,10 +135,6 @@ Lifewire / Jordan Oloman
 
  Out of the adapters we tested, the Netgear Powerline 1200 was one of the cheaper ones on Amazon, ranging between $70-$85\. You can see why when you study the design and the many aesthetic flaws that come with this product. Besides the fact it is bulky and doesn’t play nice with other plugs, it’s a reliable means to improve your home network through the wonders of Powerline. It’s still quite a hard sell at this price compared to other products that hover around the same and offer more ports and socket functionality, but it’s still a worthwhile purchase if you just want to plug and play.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Netgear Powerline 1200 vs. TP-Link AV2000 Powerline Adapter**
 
  Comparing the Netgear Powerline 1200 kit to the TP-Link Powerline AV2000, there are some noticeable pros and cons. The TP-Link kit performs better speed-wise, has serviceable cables, lets you use the socket and doesn’t obstruct other plugs. However, the setup process isn’t as simple and we found some easily-fixed, but frustrating issues with connectivity.
@@ -152,6 +148,10 @@ Lifewire / Jordan Oloman
  **A Powerline kit with solid speeds and an easy setup undermined by poor design.**
 
  The Netgear Powerline 1200 is incredibly reliable, albeit poorly designed. It is obstructive in the design department, fairly ugly to look at and comes with just one connection and awfully short Ethernet cables. Yet it has a true plug and play setup process with no compromises, and offers a reliable upgrade to your home network speeds. If you can look past the strange design choices this is the perfect introductory kit for Powerline beginners that does everything you need it to.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -177,15 +177,22 @@ Lifewire / Jordan Oloman
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/nlocking-youtubes-potential-title-and-tag-best-practices/"><u>[New] Unlocking YouTube's Potential Title and Tag Best Practices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-discovering-calmer-video-consumption-three-ways-to-pause-time-56-chars-slightly-over-but-a-minor-exception-due-to-title-length-for-2024/"><u>[Updated] Discovering Calmer Video Consumption Three Ways to Pause Time (56 Chars, Slightly over but a Minor Exception Due to Title Length) for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-oneplus-nord-n10-5g-analysis-a-must-read/"><u>Comprehensive OnePlus Nord N10 5G Analysis – A Must-Read!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-oneplus-9-pro-style-speed-and-imaging-excellence/"><u>Comprehensive Review of the OnePlus 9 Pro: Style, Speed, and Imaging Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-fitness-tracking-with-a-review-of-the-premium-garmin-forerunner-745/"><u>Elevate Your Fitness Tracking with a Review of the Premium Garmin Forerunner 745</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/expediting-fb-videos-leading-extensions-and-apps-compilation/"><u>Expediting FB Videos Leading Extensions & Apps Compilation</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-hp-thunderbolt-g2-universal-docking-station-drivers-downloaded-compatible-with-120w-and-230w-power-options/"><u>Get Your HP Thunderbolt G2 Universal Docking Station Drivers Downloaded: Compatible with 120W & 230W Power Options</u></a></li>
-<li><a href="https://change-location.techidaily.com/honor-x7b-stuck-on-screen-finding-solutions-for-stuck-on-boot-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Honor X7b Stuck on Screen – Finding Solutions For Stuck on Boot | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-the-music-merger-for-captivating-social-media-vids/"><u>In 2024, Mastering the Music Merger for Captivating Social Media Vids</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-critique-of-hitman-3-a-superior-culmination/"><u>In-Depth Critique of Hitman 3: A Superior Culmination</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-core-principles-for-online-storytelling-craftsmanship-for-2024/"><u>[New] Core Principles for Online Storytelling Craftsmanship for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/reative-channel-themes-get-them-for-free-for-2024/"><u>[New] Creative Channel Themes Get Them for Free for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-innovative-ai-pixel-perfect-editor/"><u>[New] In 2024, Innovative AI Pixel Perfect Editor</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-metaverse-humor-generating-unique-memes/"><u>[New] Innovative Metaverse Humor Generating Unique Memes</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-tweeting-and-blogging-videos-integration-guide/"><u>[New] Tweeting & Blogging Videos Integration Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comment-concevoir-un-diaporama-attrayant-utilisez-movavi-pour-les-etapes-de-creation/"><u>Comment Concevoir Un Diaporama Attrayant ? - Utilisez Movavi Pour Les Étapes De Création</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/dive-into-todays-top-8-viral-video-phenomena-for-2024/"><u>Dive Into Today’s Top 8 Viral Video Phenomena for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-vivo-y56-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Vivo Y56 5G Phones with/without a PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-12r-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus 12R to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-approach-to-animal-care-evaluating-petsafes-automatic-feeding-system-for-effective-nutrition-management/"><u>Innovative Approach to Animal Care: Evaluating PetSafe's Automatic Feeding System for Effective Nutrition Management</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/key-points-to-contemplate-prior-to-investing-in-a-new-print-device/"><u>Key Points to Contemplate Prior to Investing in a New Print Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-your-adventures-with-the-robust-and-portable-kensun-tire-inflator/"><u>Power Up Your Adventures with the Robust and Portable Kensun Tire Inflator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pruveeos-ultimate-deal-the-fhd-1080p-dashcam-review-you-cant-ignore/"><u>Pruveeo's Ultimate Deal: The FHD 1080P Dashcam Review You Can't Ignore</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/quiet-efficiency-with-the-acer-aspire-c27-the-ideal-all-in-one-workstation/"><u>Quiet Efficiency with the Acer Aspire C27 – The Ideal All-in-One Workstation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/rexing-v1-dash-camera-insights-securing-peace-of-mind-at-an-affordable-price-point/"><u>Rexing V1 Dash Camera Insights: Securing Peace of Mind at an Affordable Price Point</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/roku-redefines-entertainment-sounds-and-streaming-unite/"><u>Roku Redefines Entertainment: Sounds and Streaming Unite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stadia-by-google-an-in-depth-analysis-and-potential-enhancements/"><u>Stadia by Google: An In-Depth Analysis and Potential Enhancements</u></a></li>
 </ul></div>
 

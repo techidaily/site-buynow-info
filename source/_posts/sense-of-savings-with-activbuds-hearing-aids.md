@@ -1,7 +1,7 @@
 ---
 title: Sense of Savings with ActivBuds Hearing Aids
-date: 2024-10-24T00:28:18.315Z
-updated: 2024-10-30T18:01:03.897Z
+date: 2025-01-22T02:34:46.045Z
+updated: 2025-01-22T22:30:59.006Z
 categories:
   - BestProducts
 description: This Article Describes Sense of Savings with ActivBuds Hearing Aids
@@ -46,6 +46,10 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/ltgwwtDrSkLcZMSVU6VX1rKcbaA=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_HP-OMEN-Obelisk-Gaming-Desktop-Computer-1-56ba747009334162a328f46d8b4743af.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jonno Hill
 
 [View On Amazon $950](https://www.amazon.com/dp/B07SW895CZ?tag=lifewire-onsite-prod-20&ascsubtag=5072832%7Cnbfa2130ffdd54ba8b950c4ad0f0be8b007%7CB07SW895CZ) [View On Microsoft](https://www.microsoft.com/en-us/p/hp-omen-obelisk-gaming-desktop/8rqn7sf9phfz?activetab=pivot%3aoverviewtab)
@@ -76,6 +80,10 @@ Lifewire / Jonno Hill
 
  Lifewire / Jonno Hill
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design** : **Nice looks and small footprint, with many reservations**
 
  The HP OMEN Obelisk looks good in pictures but starts to fall apart a little when examined up close. Overall, HP did a pretty decent job here, but there are plenty of areas for improvement.
@@ -98,21 +106,7 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/gfeGQoUwG35q5t-JwO07Ax4jm5I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-3-f4e655ec9e684a47855e9ee7373ba4b6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Performance** :**Great components for gaming and productivity**
 
@@ -136,6 +130,10 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/Pz9tV-mhJl_Cjm8HSqEQ_VZPbVE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-5-cdbd9d78a8c14b8e8bce0113d12e9fcc.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Jonno Hill
 
 ## **Network** :**Great speeds, but software that doesn’t do much**
@@ -145,10 +143,7 @@ Lifewire / Jonno Hill
  I made a point to try out the Network Booster software found in the OMEN Command Center and didn’t see anything tremendously useful, unfortunately. I tried setting the priority of Steam to “Low” and downloading a game, but the game still downloaded at my maximum internet speed. I took it one step further and toggled the “Block” option for Steam, and tried to resume the download, but Steam kept on downloading at the maximum speed. The software was successful in blocking Chrome when that option was switched on, however.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Software: Just enough options**
@@ -162,10 +157,7 @@ Lifewire / Jonno Hill
  The option to overclock your system has you first run a nondescript benchmark, which produces a score with no reference point (to establish a baseline). While it’s nice to have the option, this really,_sincerely_ isn’t a system you want to be overclocking. The i9-9900K CPU already runs alarmingly hot, even with its pre-installed water cooling solution. There also isn’t enough room for anything beyond a 120mm AIO watercooler, and not nearly enough clearance for a popular air heatsink like the Noctua NH-D15.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Highly competitive**
@@ -176,14 +168,11 @@ Lifewire / Jonno Hill
 
 ![HP OMEN Obelisk](https://www.lifewire.com/thmb/J3cZUfrEy-ALtFpRbDRhw7FZI8M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HP-OMEN-Obelisk-Gaming-Desktop-Computer-4-f78d504d7bd348eca19b7e65b4d10289.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
-  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Jonno Hill
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **HP OMEN Obelisk vs Corsair One Pro**
 
@@ -231,19 +220,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://ai-vdieo-software.techidaily.com/adobe-premiere-pro-cs6-is-a-kind-of-video-editing-software-which-can-work-natively-and-directly-with-the-latest-mobile/"><u>Adobe Premiere Pro CS6 Is a Kind of Video Editing Software Which Can Work Natively and Directly with the Latest Mobile</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/amd-gpio-control-software-get-your-free-downloads-today/"><u>AMD GPIO Control Software - Get Your Free Downloads Today!</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/bitevideo-innovator/"><u>BiteVideo Innovator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/breaking-down-the-benefits-of-sony-playstation-5s-advanced-technology/"><u>Breaking Down the Benefits of Sony PlayStation 5'S Advanced Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-comparing-connectivity-and-control-between-original-and-new-samsung-galaxy-watch/"><u>Comprehensive Review: Comparing Connectivity and Control Between Original & New Samsung Galaxy Watch</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/how-does-flipbuildercom-offer-comprehensive-user-guide-instructions/"><u>How Does FlipBuilder.com Offer Comprehensive User Guide Instructions?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-itel-p55-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Itel P55 Lock Screen Password?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-nubia-red-magic-9-pro-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Nubia Red Magic 9 Pro? Fixed | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/key-smart-tv-characteristics-to-evaluate/"><u>Key Smart TV Characteristics to Evaluate</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-network-with-netgears-powerful-nighthawk-x10-ad7200-a-detailed-performance-review/"><u>Revolutionize Your Network With Netgear's Powerful Nighthawk X10 (AD7200) - A Detailed Performance Review!</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/understanding-the-risks-in-google-passwords-vault/"><u>Understanding the Risks in Google Passwords Vault</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-huawei-p30-pro-continues-to-captivate-me-a-detailed-look/"><u>Why the Huawei P30 Pro Continues to Captivate Me - A Detailed Look</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-elevate-your-freefire-presence-with-top-tips-and-tricks-for-2024/"><u>[New] Elevate Your FreeFire Presence with Top Tips and Tricks for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-pro-level-7-dslrs-that-transform-your-digital-storytelling/"><u>[New] In 2024, Pro-Level 7 DSLRs That Transform Your Digital Storytelling</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/how-to-take-screenshots-on-a-chromebook-for-2024/"><u>How to Take Screenshots on A Chromebook for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sci-fi-action-gaming-experience-in-the-outer-worlds-an-engaging-narrative-adventure/"><u>Sci-Fi Action Gaming Experience in 'The Outer Worlds': An Engaging Narrative Adventure</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/simple-routines-for-capturing-and-saving-vimeo-videos/"><u>Simple Routines for Capturing and Saving Vimeo Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/simplify-your-tasks-using-our-picks-of-the-5-best-auto-clicking-applications-on-android-without-root-access/"><u>Simplify Your Tasks Using Our Picks of the 5 Best Auto-Clicking Applications on Android Without Root Access</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-to-fixing-acrocef-errors-for-smooth-operation/"><u>Step-by-Step Guide to Fixing AcroCEF Errors for Smooth Operation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-complete-guide-to-uploading-virtual-realities-editing-and-publishing-360-degree-vids/"><u>The Complete Guide to Uploading Virtual Realities Editing & Publishing 360-Degree Vids</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-youth-learning-starts-here-discover-the-robomaster-s1-djiwartz-tank-drone-with-interactive-coding-features/"><u>The Future of Youth Learning Starts Here: Discover the RoboMaster S1 - DJI'wartz Tank Drone with Interactive Coding Features!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-conversion-strategy-for-dall-e-webp-photos/"><u>The Ultimate Conversion Strategy for DALL-E WebP Photos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-unveiling-the-future-of-pc-gaming-with-dells-alienware-aurora-r9/"><u>The Ultimate Review: Unveiling the Future of PC Gaming with Dell's Alienware Aurora R9</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/time-to-get-up-a-comprehensive-guide-to-the-mirari-child-alarm-clock/"><u>Time to Get Up: A Comprehensive Guide to the Mirari Child Alarm Clock</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/ultimate-free-viewer-cam-parties/"><u>Ultimate Free Viewer Cam Parties</u></a></li>
 </ul></div>
 

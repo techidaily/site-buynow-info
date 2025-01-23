@@ -1,7 +1,7 @@
 ---
 title: Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
-date: 2025-01-11T17:01:43.194Z
-updated: 2025-01-16T16:06:05.131Z
+date: 2025-01-19T21:37:54.257Z
+updated: 2025-01-22T21:18:04.105Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -49,6 +49,10 @@ Lifewire / Zach Sweat
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -82,10 +86,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -109,7 +109,7 @@ Lifewire / Zach Sweat
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
@@ -140,6 +140,10 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Gaming: From ok to amazing, if you have the cash**
@@ -158,10 +162,6 @@ Lifewire / Zach Sweat
 
  Your gaming performance in relation to the Aurora is subject to your hardware, peripherals and network speeds if playing an online game, so choose the best model you can afford within your budgetary restrictions and keep in mind how you plan to use your PC.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: Decent prebuilt performance and surround sound**
 
  A quality audio setup is something often overlooked when it comes to computers, but it’s something that can really add to the overall enjoyment of your PC. Immersive soundscapes in games and movies, astounding dynamic range in music and crisp, clear dialogue combine to separate the mediocre computers from the great.
@@ -173,10 +173,6 @@ Lifewire / Zach Sweat
  If you’ve got a beefy external audio setup with lots of speakers, you’re in luck, as the R9 features tons of ports for your equipment. Ports on the back include a center/subwoofer output, rear surround output, side surround output and two coaxial S/PDIF ports for connecting an amplifier, speakers or a TV for digital audio output through a coaxial cable.
 
  Although true audiophiles will still want to stick with a DAC, or digital-to-analog converter, the Aurora R9 packs in pretty decent audio options for most users.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network: Solid Ethernet, average Wi-Fi**
 
@@ -194,10 +190,6 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wMnVqt6RV24C1Vfncnf2J3E0fAg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-15-fe70fca5ffd04da6abd8c0ef8f026eef-f6d5eaf9efcb461a902fc750a192dd0c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
 
 ## **Software: Windows 10 with some bloatware and extras**
@@ -211,6 +203,10 @@ Lifewire / Zach Sweat
  With thermal control, you can monitor internal temperatures and adjust fans to their ideal ranges to help remove excess heat from the system while keeping fan volume down. If you’re someone who’s into overclocking, the Alienware Command Center also has an intuitive overclocking control module for squeezing extra performance from your system. Users can create their own profiles here and activate them on the fly.
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Not the best bang for your buck**
 
@@ -242,6 +238,10 @@ Lifewire / Zach Sweat
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  Aurora R9
@@ -270,20 +270,20 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-best-time-lapse-tools-and-techniques-no5/"><u>[Updated] 2024 Approved Best Time-Lapse Tools & Techniques - No.5</u></a></li>
-<li><a href="https://win-web.techidaily.com/5-techniques-to-restore-unformatted-sd-cards-in-raw-mode/"><u>5 Techniques to Restore Unformatted SD Cards in RAW Mode</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/a-beginners-guide-to-starting-chats-within-the-mozilla-thunderbird-email-client/"><u>A Beginner's Guide to Starting Chats Within the Mozilla Thunderbird Email Client</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/beginners-best-friend-discovering-the-excellence-of-nokia-53/"><u>Beginner's Best Friend? Discovering the Excellence of Nokia 5.3</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-forerunner-nine-four-five-analysis-unveiling-the-ultimate-multifunctional-sports-watch/"><u>Comprehensive Garmin Forerunner Nine Four Five Analysis: Unveiling the Ultimate Multifunctional Sports Watch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experience-the-epicness-an-engrossing-review-of-star-wars-squadrons-cosmic-encounters/"><u>Experience the Epicness: An Engrossing Review of Star Wars: Squadrons' Cosmic Encounters</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-a34-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy A34 5G Phones with/without a PC</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-samsung-note2erama-5g-smartphone-examination/"><u>In-Depth Samsung Note2erama 5G Smartphone Examination</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigate-effortlessly-and-last-all-day-a-deep-dive-into-mobvoi-ticwatch-pro-3s-innovative-gps-tracking-and-enhanced-displays/"><u>Navigate Effortlessly & Last All Day - A Deep Dive Into Mobvoi TicWatch Pro 3’S Innovative GPS Tracking & Enhanced Displays</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/small-yet-mighty-review-of-the-powershot-g7x-ii/"><u>Small Yet Mighty: Review of the PowerShot G7X II</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oppo-a18-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Oppo A18 Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-karaoke-systems-2024-edition/"><u>Top-Rated Karaoke Systems - 2024 Edition</u></a></li>
-<li><a href="https://common-error.techidaily.com/unexpected-absence-of-screen-brightness-control/"><u>Unexpected Absence of Screen Brightness Control</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-screen-clarity-advanced-zoom-techniques-for-2024/"><u>Unlocking Screen Clarity Advanced Zoom Techniques for 2024</u></a></li>
-<li><a href="https://win-premium.techidaily.com/vsphere-replication-vs-site-recovery-manager-which-is-best-for-your-vmware-environment/"><u>VSphere Replication Vs. Site Recovery Manager: Which Is Best for Your VMware Environment?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-by-step-guide-to-creating-curved-graphics/"><u>[New] In 2024, Step-by-Step Guide to Creating Curved Graphics</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-visual-humor-for-iphones-enthusiasts/"><u>[New] Visual Humor for iPhones Enthusiasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-verdict-on-toolwiz-top-notch-mobile-photo-editor/"><u>[Updated] The Verdict on Toolwiz Top-Notch Mobile Photo Editor?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-asuss-proart-pa-329q-a-comprehensive-evaluation-of-a-top-tier-monitoring-solution/"><u>2024 Approved Asus’s ProArt PA 329Q A Comprehensive Evaluation of a Top-Tier Monitoring Solution</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-latest-epson-artisan-mp-p-series-1430-printer-drivers-compatible-with-windows-11-10-and-8/"><u>Download the Latest Epson Artisan MP-P Series (1430) Printer Drivers: Compatible with Windows 11, 10 & 8</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-strategies-for-sharing-and-editing-apple-pages-files-using-icloud-insights/"><u>Effective Strategies for Sharing and Editing Apple Pages Files Using iCloud: Insights</u></a></li>
+<li><a href="https://win-able.techidaily.com/epic-battle-royale-help-eliminating-the-menace-of-dev-error-6634-from-your-warzone-gameplay-tips/"><u>Epic Battle Royale Help: Eliminating the Menace of Dev Error 6634 From Your Warzone Gameplay (Tips )</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-set-up-a-unique-nintendo-network-id-for-your-nintendo-3ds-gaming-experience/"><u>How to Set Up a Unique Nintendo Network ID for Your Nintendo 3DS Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-spot-the-best-for-gaming-notebooks/"><u>How to Spot the Best for Gaming Notebooks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/huawei-p20-pro-evaluation-exceptional-photography-experience-with-an-impressive-smartphone/"><u>Huawei P20 Pro Evaluation: Exceptional Photography Experience with an Impressive Smartphone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/important-aspects-to-examine-when-selecting-a-modern-printer-model/"><u>Important Aspects to Examine When Selecting a Modern Printer Model</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-itel-p40plus-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Itel P40+ PC | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-new-google-nest-hub-gen-2-why-cameras-are-missing/"><u>In-Depth Analysis of the New Google Nest Hub (Gen 2): Why Cameras Are Missing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-ps4-pros-ability-to-deliver-ultra-hd-gaming/"><u>In-Depth Analysis of the PS4 Pro's Ability to Deliver Ultra HD Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-iphone-13-unveiled-pros-cons-and-performance-review/"><u>In-Depth Evaluation: IPhone 13 Unveiled – Pros, Cons & Performance Review</u></a></li>
 </ul></div>
 

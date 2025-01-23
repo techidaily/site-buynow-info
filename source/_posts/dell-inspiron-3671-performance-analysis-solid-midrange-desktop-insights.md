@@ -1,7 +1,7 @@
 ---
 title: "Dell Inspiron 3671 Performance Analysis: Solid Midrange Desktop Insights"
-date: 2025-01-09T17:13:07.050Z
-updated: 2025-01-16T23:08:28.832Z
+date: 2025-01-16T01:16:35.171Z
+updated: 2025-01-22T17:44:14.423Z
 categories:
   - BestProducts
 description: "This Article Describes Dell Inspiron 3671 Performance Analysis: Solid Midrange Desktop Insights"
@@ -19,16 +19,12 @@ thumbnail: https://thmb.techidaily.com/ae96135be8b387f3dfcd58e7778aa73a8a480a5ec
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/425lsqo6i1_7Vzb3ebrBxtVPgfM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -49,6 +45,10 @@ Lifewire / Zach Sweat
 [View On Amazon $150](https://www.amazon.com/Elite-2-Controller-Black-Xbox-One/dp/B07SFKTLZM/?tag=lifewire-onsite-prod-20&ascsubtag=4796457%7Cnbd5105eb0dc54e3e804df51703e5036902%7CB07SFKTLZM) [View On Walmart $150](https://www.walmart.com/ip/Microsoft-Xbox-Elite-Wireless-Controller-Series-2-Black-FST-00001/784834522) [View On Adorama.com $180](https://www.adorama.com/xbfst00001.html)
 
 4.8
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Xbox One Elite Series 2 Controller
 
@@ -81,10 +81,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Dark, sturdy, and feature-packed**
 
  The general format of the Elite Series 2 takes the basic XB1 controller and builds upon that excellent design by adding in tons of extras and features. However, unlike the first Elite controller, this version uses the newer One S model controller as its basis. This means there is no more two-piece design where the top and bottom shells of the controller are separate. The build is less flashy perhaps, no longer sporting a two-tone finish, but it makes it feel much more solid and creates a sleeker look.
@@ -113,6 +109,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Comfort: Hefty, but darn comfy**
 
  The original Elite was perhaps the most comfortable controller I’ve ever used, so with the Series 2, I had high hopes in this department. Thanks to some clever but subtle changes by the Microsoft team, this controller is even better.
@@ -126,6 +126,10 @@ Lifewire / Zach Sweat
  The only real issue some users may see as a downside of this controller is that it’s quite a hefty device. The controller weighs 348 grams with all attachments, so it might take some getting used to compared to the 210 gram S controller. I personally love the bulk, as it feels premium, but it might not be for everyone.
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -150,7 +154,7 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -177,10 +181,6 @@ Lifewire / Zach Sweat
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Like buying a brand new console**
 
  Right now, the Elite Series 2 controller retails at an MSRP of $249.99, about $100 more than its predecessor. This price tag makes it not only the most expensive first-party controller around, but also nearly the cost of a brand new Xbox One S console (or three brand new titles). That can be a tough sell for your average gamer.
@@ -194,7 +194,7 @@ Lifewire / Zach Sweat
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Xbox One Elite Series 2 Controller vs. Xbox One Elite Series 1 Controller**
@@ -243,22 +243,17 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-apex-palette-adjuster/"><u>[New] Apex Palette Adjuster</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-cutting-down-high-bitrate-obs-streams/"><u>[Updated] In 2024, Cutting Down High-Bitrate OBS Streams</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-unveiling-best-practices-in-audio-to-text-translation/"><u>[Updated] In 2024, Unveiling Best Practices in Audio to Text Translation</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-revisit-and-refine-your-past-editing-fbs-look-back-videos/"><u>2024 Approved Revisit and Refine Your Past Editing FB's Look Back Videos</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-and-assessment-of-apples-newly-launched-iphone-13/"><u>Detailed Breakdown & Assessment of Apple's Newly Launched iPhone 13</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/elevating-selfies-and-pics-on-snapchat-edit-like-a-pro-for-2024/"><u>Elevating Selfies and Pics on Snapchat – Edit Like a Pro for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/exploring-the-newly-released-apple-m4-processor-specifications-and-announcement-date/"><u>Exploring the Newly Released Apple M4 Processor - Specifications & Announcement Date</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-samsungs-latest-masterpiece-the-galaxy-tab-s4-for-android-users/"><u>In-Depth Analysis: Samsung's Latest Masterpiece, The Galaxy Tab S4 for Android Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-expense-worth-it-for-apples-ultimate-earbud/"><u>Is the Expense Worth It for Apple's Ultimate Earbud?</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/master-the-art-of-selfies-with-our-top-6-tips-for-selecting-a-quality-selfie-stick/"><u>Master the Art of Selfies with Our Top 6 Tips for Selecting a Quality Selfie Stick</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/perfecting-projects-through-music-addition-in-premiere-pro/"><u>Perfecting Projects Through Music Addition in Premiere Pro</u></a></li>
-<li><a href="https://win-dash.techidaily.com/quick-guide-to-downloading-reliable-wifi-card-drivers-today/"><u>Quick Guide to Downloading Reliable WiFi Card Drivers Today</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/save-big-on-your-phone-bill-with-these-top-7-inexpensive-cell-plans/"><u>Save Big on Your Phone Bill with These Top 7 Inexpensive Cell Plans</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/selecting-supreme-keyboard-wrist-supports-the-best-picks-for-a-healthy-2024/"><u>Selecting Supreme Keyboard Wrist Supports - The Best Picks for a Healthy 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-6-iphone-antivirus-programs-for-optimal-mobile-security/"><u>Top 6 iPhone Antivirus Programs for Optimal Mobile Security</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-essential-iphone-add-ons-the-ultimate-shopping-guide/"><u>Top Essential iPhone Add-Ons: The Ultimate Shopping Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-archer-a9-examined-exceptional-networking-solutions-at-a-wallet-friendly-price-point-below-100-usd/"><u>TP-Link Archer A9 Examined – Exceptional Networking Solutions at a Wallet-Friendly Price Point Below 100 USD</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-professional-drone-use-in-visual-storytelling/"><u>[Updated] Professional Drone Use in Visual Storytelling</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mp3-ogg-movavi/"><u>網路移動平台免費 MP3 Ogg 格式切換 - 使用 Movavi 編輯器</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-rx-5700-xt-driver-installation-guide-for-windows-users-windows-111087/"><u>AMD RX 5700 XT Driver Installation Guide for Windows Users (Windows 11/10/8/7)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unlock-the-secrets-capturing-apple-devices-for-engaging-videos/"><u>In 2024, Unlock the Secrets Capturing Apple Devices for Engaging Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/master-the-art-of-subtitling-a-brief-blueprint-for-your-fb-video-uploads/"><u>Master the Art of Subtitling A Brief Blueprint for Your FB Video Uploads</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/olympic-ice-racers-moments-from-the-short-track-games-for-2024/"><u>Olympic Ice Racers Moments From the Short Track Games for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-troubled-reality-of-cyberpunk-nk-2077-a-game-beyond-its-unpolished-state/"><u>The Troubled Reality of Cyberpunk Nk 2077: A Game Beyond Its Unpolished State</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-midland-lxt500vp3-an-insight-into-its-effective-utilization-despite-feature-rich-design/"><u>The Verdict on Midland LXT500VP3 - An Insight Into Its Effective Utilization Despite Feature-Rich Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transform-your-gameplay-the-xbox-series-x-unveiled-brilliance-in-4k-graphics-and-playability/"><u>Transform Your Gameplay: The Xbox Series X Unveiled - Brilliance in 4K Graphics and Playability</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/transform-your-mac-storage-with-this-formatting-tutorial/"><u>Transform Your Mac Storage with This Formatting Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-netgear-orbi-top-pick-for-home-wifi/"><u>Ultimate Guide to Netgear Orbi: Top Pick for Home WiFi</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-discover-the-6-most-effective-virus-protectors-for-iphone-users/"><u>Ultimate Guide: Discover the 6 Most Effective Virus Protectors for iPhone Users</u></a></li>
 </ul></div>
 

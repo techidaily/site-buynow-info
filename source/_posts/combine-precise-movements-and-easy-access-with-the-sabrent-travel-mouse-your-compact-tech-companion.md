@@ -1,7 +1,7 @@
 ---
 title: Combine Precise Movements & Easy Access with the Sabrent Travel Mouse - Your Compact Tech Companion
-date: 2024-12-08T09:43:59.058Z
-updated: 2024-12-10T23:47:29.212Z
+date: 2025-01-19T01:54:44.413Z
+updated: 2025-01-23T00:10:05.274Z
 categories:
   - BestProducts
 description: This Article Describes Combine Precise Movements & Easy Access with the Sabrent Travel Mouse - Your Compact Tech Companion
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/-_iV1Mooi46f-WT6ARwL2rf_pgY=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
@@ -45,12 +49,16 @@ Lifewire / Andy Zahn
 4.3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/2_6hdMU_X4AgILY2u59V9GRJ7ZM=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -85,7 +93,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Built to last, great to use**
@@ -104,19 +112,11 @@ Lifewire / Andy Zahn
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Battery life: No worries**
 
  Even after extended use, we had barely scratched the surface of the SX70 HS’s considerable battery life. It was still going strong after shooting dozens of photos and video clips, so you won’t have to worry about running out of battery life in the middle of a trip.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display and Viewfinder: Saturated and clear**
 
@@ -135,7 +135,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
@@ -153,10 +153,6 @@ Lifewire / Andy Zahn
  RAW files are rich and detailed, and[JPEG images](https://www.lifewire.com/jpeg-myths-and-facts-1701548) are well-rendered, though JPEG images do show the compression artifacts typical of point-and-shoot cameras. The built-in flash raises and lowers manually and is functional if unexceptional.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Modes: Plenty to choose from (and only some are useful)**
 
@@ -185,6 +181,10 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -258,17 +258,18 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-convenient-video-sharing-on-microsoft-hub-for-2024/"><u>[New] Convenient Video Sharing on Microsoft Hub for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exploring-5-engaging-book-promo-videos/"><u>[Updated] Exploring 5 Engaging Book Promo Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-six-offbeat-sources-for-customized-video-theme-elements/"><u>[Updated] In 2024, Six Offbeat Sources for Customized Video Theme Elements</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-compact-drone-guide-unraveling-dji-sparks-selfie-prowess-for-2024/"><u>[Updated] The Ultimate Compact Drone Guide Unraveling DJI Spark's Selfie Prowess for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/effective-temperature-regulation-with-kooteks-laptop-cooler-an-in-depth-product-review/"><u>Effective Temperature Regulation with Kootek's Laptop Cooler - An In-Depth Product Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevating-your-pc-experience-from-windows-10-to-11/"><u>Elevating Your PC Experience: From Windows 10 To 11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-cost-effective-apeman-c450-a-complete-guide-to-your-next-dash-cam-purchase/"><u>Evaluating the Cost-Effective Apeman C450: A Complete Guide to Your Next Dash Cam Purchase</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-netgears-powerline-with-1200-mbps-is-the-bulky-look-worth-it-for-high-speed-internet/"><u>Expert Analysis: Netgear's Powerline with 1200 Mbps – Is the Bulky Look Worth It for High-Speed Internet?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-expensive-and-exquisite-glion-dolly-high-speed-electric-scooter/"><u>Expert Insights on the Expensive & Exquisite Glion Dolly High-Speed Electric Scooter</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-activation-lock-on-iphone-12-pro-or-ipad-by-drfone-ios/"><u>In 2024, How to Bypass Activation Lock on iPhone 12 Pro or iPad?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/precise-methods-to-address-windows-activation-failure-code-0x803f700f/"><u>Precise Methods to Address Windows Activation Failure Code 0X803F700f</u></a></li>
-<li><a href="https://driver-download.techidaily.com/successful-broadcom-ethernet-driver-installation-guide-on-windows-10/"><u>Successful Broadcom Ethernet Driver Installation Guide on Windows 10</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixed-borderlands-3-lag-issues/"><u>[FIXED] Borderlands 3 Lag Issues</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-breaking-language-barriers-with-these-top-20-video-translators/"><u>[New] Breaking Language Barriers with These Top 20 Video Translators</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlock-creator-studio-secrets-a-step-by-step-tutorial-for-2024/"><u>[Updated] Unlock Creator Studio Secrets A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-solving-obs-high-bitrate-issues/"><u>2024 Approved Solving OBS High Bitrate Issues</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/cyberlink-screen-recorder-review/"><u>Cyberlink Screen Recorder Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hands-on-tech-showcase-premium-dell-monitor-elite-anc-earphones-and-top-quality-webcam/"><u>Hands-On Tech Showcase: Premium Dell Monitor, Elite ANC Earphones & Top-Quality Webcam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hisense-40h5590f-smart-tv-review/"><u>Hisense 40H5590F Smart TV Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-kobo-clara-hds-vibrant-display-and-reading-experience/"><u>In-Depth Analysis: Kobo Clara HD's Vibrant Display and Reading Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-the-google-pixel-6-performance-assessment-and-photo-quality/"><u>In-Depth Evaluation of the Google Pixel 6: Performance Assessment and Photo Quality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lackluster-experience-in-godfall-the-first-and-only-sony-ps5-game-struggles-to-impress/"><u>Lackluster Experience in Godfall: The First and Only Sony PS5 Game Struggles to Impress</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-power-analysis-exceptional-endurance-and-consistent-efficiency/"><u>Moto G Power Analysis: Exceptional Endurance & Consistent Efficiency</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/precision-perfecting-10-must-know-pixlr-hacks/"><u>Precision Perfecting 10 Must-Know Pixlr Hacks</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/updated-top-10-storyboarding-software/"><u>Updated Top 10 Storyboarding Software</u></a></li>
 </ul></div>
 

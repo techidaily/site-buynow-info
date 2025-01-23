@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo P11 Pro Examined: Outstanding Qualities Marred by Small Issues"
-date: 2025-01-13T16:02:59.182Z
-updated: 2025-01-16T23:42:12.805Z
+date: 2025-01-22T00:17:46.969Z
+updated: 2025-01-23T03:58:41.685Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo P11 Pro Examined: Outstanding Qualities Marred by Small Issues"
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Ergodriven Topo Standing Desk Mat
 
@@ -45,10 +49,6 @@ Lifewire / Rebecca Isaacs
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
 [View On Amazon $99](https://www.amazon.com/Ergodriven-Not-Flat-Anti-Fatigue-Calculated-Must-Have/dp/B00V3TO9EK/?tag=lifewire-onsite-prod-20&ascsubtag=4775310%7Cn915a9e38dc0349c7bf58e56fac1a735710%7CB00V3TO9EK)
@@ -71,7 +71,7 @@ Lifewire / Rebecca Isaacs
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -83,10 +83,6 @@ Lifewire / Rebecca Isaacs
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/0MLp0JKyXodrqDxUdun30XlUicQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-3-5e85cbed72974e018684fe954f0ddf1b-75abe4f41eba41c3b202cdf74fbf3caa.jpg)
 
 Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Flawed, but still solid**
 
@@ -103,7 +99,7 @@ Lifewire / Rebecca Isaacs
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Pretty steep for a mat**
@@ -111,6 +107,10 @@ Lifewire / Rebecca Isaacs
  At around $100 on Amazon, the Topo is in the higher price range for a standing desk mat. We could find models that don’t have the massage mound in the center, however, the steep power wedges in the back make it a reasonable investment for anyone who really wants to stretch out their legs.
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Topo Ergodriven vs. CubeFit TerraMat**
 
@@ -127,7 +127,7 @@ Lifewire / Rebecca Isaacs
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice. While we think there are other, better mats out there, but the Topo does hide dirt better, and the deep rear wedges stretch the hamstrings more than most other models on the market. If you want a solid stretch, then the Ergodriven Topo is the best choice for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -155,24 +155,20 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/nhance-your-profile-with-free-imagery-for-2024/"><u>[New] Enhance Your Profile with Free Imagery for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-navigating-mac-screenshot-file-type-changes/"><u>[Updated] 2024 Approved Navigating Mac Screenshot File Type Changes</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-expert-moves-for-sharing-youtube-and-twitter-on-whatsapp-platform-for-2024/"><u>[Updated] Expert Moves for Sharing YouTube and Twitter on WhatsApp Platform for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/artful-expression-outperforms-algorithmic-text-crafting/"><u>Artful Expression Outperforms Algorithmic Text Crafting</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-netgear-c3700-top-tier-combo-of-modem-and-router/"><u>Expert Analysis: Netgear C3700 - Top-Tier Combo of Modem and Router</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/high-hopes-minor-letdowns-a-closer-look-at-the-motorola-edgeplus/"><u>High Hopes, Minor Letdowns: A Closer Look at the Motorola Edge+</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/how-to-use-green-screen-for-streaming/"><u>How to Use Green Screen for Streaming</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-xiaomi-redmi-note-12-pro-4g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Xiaomi Redmi Note 12 Pro 4G</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-essential-strategies-for-professional-grade-video-editing/"><u>In 2024, Essential Strategies for Professional-Grade Video Editing</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-leading-25-icons-setting-social-trends-on-insta/"><u>In 2024, The Leading 25 Icons Setting Social Trends on Insta</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-apple-watch-series-6-slight-enhancements-preserve-its-leading-status/"><u>In-Depth Analysis of Apple Watch Series 6: Slight Enhancements Preserve Its Leading Status</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kensuns-handheld-tire-inflator-reviewed-dependable-quality-and-compact-design/"><u>Kensun's Handheld Tire Inflator Reviewed - Dependable Quality and Compact Design</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mlb-the-show-2019-where-cutting-edge-graphics-collide-with-unexpected-role-playing-mechanics-review/"><u>MLB The Show 2019 – Where Cutting Edge Graphics Collide with Unexpected Role-Playing Mechanics (Review)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/motorola-one-hyper-reviewed-standing-out-as-an-exceptional-choice-among-mid-range-smartphones/"><u>Motorola One Hyper Reviewed: Standing Out as an Exceptional Choice Among Mid-Range Smartphones</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-unify-your-visuals-how-to-match-colors-across-video-clips-in-final-cut-pro/"><u>New 2024 Approved Unify Your Visuals How to Match Colors Across Video Clips in Final Cut Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reigning-king-hero7-blacks-unrivaled-adventure-features/"><u>Reigning King: HERO7 Black's Unrivaled Adventure Features!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-smartwatch-that-offers-more-for-less-unveiling-the-benefits-of-the-fitbit-versa-lite/"><u>The Smartwatch That Offers More for Less: Unveiling the Benefits of the Fitbit Versa Lite</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-oq2e-a-comprehensive-review-of-the-enhanced-elite-strap-additional-power-bank-and-rugged-carrying-kit-for-virtual-reality-gaming/"><u>Unveiling the OQ2E: A Comprehensive Review of the Enhanced Elite Strap, Additional Power Bank, and Rugged Carrying Kit for Virtual Reality Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-guide-to-overcome-challenges-with-pioneers-bdr-xd05b-blu-ray-burner/"><u>User Guide to Overcome Challenges with Pioneer's BDR-XD05B Blu-Ray Burner</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-master-your-remote-work-with-these-5-video-conference-recorders/"><u>[New] In 2024, Master Your Remote Work with These 5 Video Conference Recorders</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/effortless-installation-of-microsoft-ergokey-4000-get-your-drivers-downloaded-in-no-time/"><u>Effortless Installation of Microsoft ErgoKey 4000 - Get Your Drivers Downloaded in No Time</u></a></li>
+<li><a href="https://games-able.techidaily.com/essential-ram-upgrades-of-2023-boosting-gaming-and-productivity-with-expert-picks-from-zdnet/"><u>Essential RAM Upgrades of 2023: Boosting Gaming and Productivity with Expert Picks From ZDNet</u></a></li>
+<li><a href="https://win-able.techidaily.com/game-on-without-stutters-troubleshooting-fallout-76-performance-problems/"><u>Game On Without Stutters: Troubleshooting Fallout 76 Performance Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-serious-book-lovers-device-kobo-forma/"><u>In Depth Analysis of the Serious Book Lover's Device - Kobo Forma</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-miniature-powerhouse-acer-predator-triton-se-review/"><u>In-Depth Look at the Miniature Powerhouse - Acer Predator Triton 지저분하다 SE Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-apcs-back-ups-pro-1500va-high-wattage-multiple-connectors-and-hot-swappable-battery-packs-featured/"><u>In-Depth Review of APC's Back-UPS Pro 1500VA - High Wattage, Multiple Connectors and Hot Swappable Battery Packs Featured</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-vs-android-a-comprehensive-guide-to-choosing-your-next-phone/"><u>IPhone Vs. Android – A Comprehensive Guide to Choosing Your Next Phone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-the-high-end-kindle-oasis-worth-its-skyrocketing-price-a-comprehensive-review/"><u>Is the High-End Kindle Oasis Worth Its Skyrocketing Price? A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-long-distance-wifi-routers-the-ultimate-guide-to-2024s-best-models/"><u>Leading Long-Distance WiFi Routers: The Ultimate Guide to 2024'S Best Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mapmyride-features-assessment-a-thorough-performance-check-for-fitness-enthusiasts/"><u>MapMyRide Features Assessment: A Thorough Performance Check For Fitness Enthusiasts</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/mastering-creativity-top-10-yt-reaction-hacks-for-2024/"><u>Mastering Creativity Top 10 YT Reaction Hacks for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/plating-perfection-tips-for-shooting-culinary-content-for-2024/"><u>Plating Perfection Tips for Shooting Culinary Content for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unmatched-durability-meets-personalization-inside-the-ultimate-laptop-experience-beyond-getac-tech-insights/"><u>Unmatched Durability Meets Personalization: Inside the Ultimate Laptop Experience Beyond Getac | Tech Insights</u></a></li>
 </ul></div>
 
