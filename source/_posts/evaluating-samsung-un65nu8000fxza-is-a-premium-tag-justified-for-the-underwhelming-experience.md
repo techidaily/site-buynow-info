@@ -1,7 +1,7 @@
 ---
 title: Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
-date: 2025-01-19T21:37:54.257Z
-updated: 2025-01-22T21:18:04.105Z
+date: 2025-01-26T18:02:13.060Z
+updated: 2025-01-30T17:44:08.598Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/SBirmVys72S63lQd4lWukO_gXRw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -46,13 +46,13 @@ Lifewire / Zach Sweat
 
 3.3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Alienware Aurora R9
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/BiBvvSXCg5l15o1T-fJmijAM9PQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-07-ede55bf68e6b4e0d8c05296170570c4d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -86,6 +86,10 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/wRBNGBQw39Gc3PVZ6i0PJB4LuWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-08-406d659ae21641d2b9df53303e8f6d76.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Zach Sweat
 
 ## **Design: Polarizing sci-fi aesthetics**
@@ -109,7 +113,7 @@ Lifewire / Zach Sweat
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: Plug and play**
@@ -140,11 +144,11 @@ Lifewire / Zach Sweat
 
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
 
@@ -205,7 +209,7 @@ Lifewire / Zach Sweat
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Not the best bang for your buck**
@@ -238,10 +242,6 @@ Lifewire / Zach Sweat
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Aurora R9
@@ -270,20 +270,24 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-step-by-step-guide-to-creating-curved-graphics/"><u>[New] In 2024, Step-by-Step Guide to Creating Curved Graphics</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-visual-humor-for-iphones-enthusiasts/"><u>[New] Visual Humor for iPhones Enthusiasts</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-verdict-on-toolwiz-top-notch-mobile-photo-editor/"><u>[Updated] The Verdict on Toolwiz Top-Notch Mobile Photo Editor?</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-asuss-proart-pa-329q-a-comprehensive-evaluation-of-a-top-tier-monitoring-solution/"><u>2024 Approved Asus’s ProArt PA 329Q A Comprehensive Evaluation of a Top-Tier Monitoring Solution</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/download-the-latest-epson-artisan-mp-p-series-1430-printer-drivers-compatible-with-windows-11-10-and-8/"><u>Download the Latest Epson Artisan MP-P Series (1430) Printer Drivers: Compatible with Windows 11, 10 & 8</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/effective-strategies-for-sharing-and-editing-apple-pages-files-using-icloud-insights/"><u>Effective Strategies for Sharing and Editing Apple Pages Files Using iCloud: Insights</u></a></li>
-<li><a href="https://win-able.techidaily.com/epic-battle-royale-help-eliminating-the-menace-of-dev-error-6634-from-your-warzone-gameplay-tips/"><u>Epic Battle Royale Help: Eliminating the Menace of Dev Error 6634 From Your Warzone Gameplay (Tips )</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-set-up-a-unique-nintendo-network-id-for-your-nintendo-3ds-gaming-experience/"><u>How to Set Up a Unique Nintendo Network ID for Your Nintendo 3DS Gaming Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-to-spot-the-best-for-gaming-notebooks/"><u>How to Spot the Best for Gaming Notebooks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/huawei-p20-pro-evaluation-exceptional-photography-experience-with-an-impressive-smartphone/"><u>Huawei P20 Pro Evaluation: Exceptional Photography Experience with an Impressive Smartphone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/important-aspects-to-examine-when-selecting-a-modern-printer-model/"><u>Important Aspects to Examine When Selecting a Modern Printer Model</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-itel-p40plus-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Itel P40+ PC | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-new-google-nest-hub-gen-2-why-cameras-are-missing/"><u>In-Depth Analysis of the New Google Nest Hub (Gen 2): Why Cameras Are Missing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-ps4-pros-ability-to-deliver-ultra-hd-gaming/"><u>In-Depth Analysis of the PS4 Pro's Ability to Deliver Ultra HD Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-iphone-13-unveiled-pros-cons-and-performance-review/"><u>In-Depth Evaluation: IPhone 13 Unveiled – Pros, Cons & Performance Review</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-a-step-by-step-process-for-twitch-streamers-for-2024/"><u>[New] A Step-by-Step Process for Twitch Streamers for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-best-nature-friendly-video-capture-tools-explained/"><u>[Updated] Best Nature-Friendly Video Capture Tools Explained</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-transformative-tips-on-crafting-engaging-cover-art/"><u>[Updated] In 2024, Transformative Tips on Crafting Engaging Cover Art</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-mastering-video-playback-issues-on-instagram-for-2024/"><u>[Updated] Mastering Video Playback Issues on Instagram for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-premium-choices-for-unparalleled-video-communication/"><u>[Updated] Premium Choices for Unparalleled Video Communication</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2023s-elite-selection-of-sony-playstation-5-headphones-and-microphones/"><u>2023'S Elite Selection of Sony PlayStation 5 Headphones & Microphones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-leading-smart-electric-radiators-reviewed-for-ultimate-home-comfort/"><u>2024'S Leading Smart Electric Radiators Reviewed for Ultimate Home Comfort</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-cat-entertainment-discover-the-premier-electronic-toy-picks-for-your-pet-in-2-techcattoys2023/"><u>Cutting-Edge Cat Entertainment: Discover the Premier Electronic Toy Picks for Your Pet in 2# Tech_CatToys_2023</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-speed-kings-a-comprehensive-review-of-the-quickest-photo-printers/"><u>Discover the Speed Kings: A Comprehensive Review of the Quickest Photo Printers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-unveiling-the-most-durable-and-stylish-11-ipad-air-cases-for-this-year/"><u>Expert Reviews: Unveiling the Most Durable & Stylish 11 iPad Air Cases for This Year</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-enable-interaction-when-your-screen-has-no-pentouch-input/"><u>How to Enable Interaction When Your Screen Has No Pen/Touch Input</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-iphone-13-without-apple-id-password-by-drfone-ios/"><u>How To Erase an iPhone 13 Without Apple ID Password?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/immediate-installation-fastest-usb-to-serial-communicator-drivers-available/"><u>Immediate Installation: Fastest USB to Serial Communicator Drivers Available</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-balancing-core-and-supporting-visual-elements/"><u>In 2024, Balancing Core & Supporting Visual Elements</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-innovations-a-comprehensive-guide-to-2024s-most-advanced-drones/"><u>Leading Innovations: A Comprehensive Guide to 2024'S Most Advanced Drones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lincoln-arboretum-and-nature-center/"><u>Lincoln Arboretum & Nature Center</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lincoln-memorial-stadium-the-unfinished-tower/"><u>Lincoln Memorial Stadium (The Unfinished Tower)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quick-fire-methods-to-record-and-save-your-virtual-gatherings-windows-and-mac-for-2024/"><u>Quick-Fire Methods to Record and Save Your Virtual Gatherings (Windows & Mac) for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-selection-of-professional-dslrs/"><u>The Ultimate Selection of Professional DSLRs</u></a></li>
 </ul></div>
 

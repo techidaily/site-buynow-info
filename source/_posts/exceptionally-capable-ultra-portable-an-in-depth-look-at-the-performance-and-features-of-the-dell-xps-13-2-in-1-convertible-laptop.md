@@ -1,7 +1,7 @@
 ---
 title: "Exceptionally Capable, Ultra Portable: An In-Depth Look at the Performance and Features of the Dell XPS 13 2-in-1 Convertible Laptop"
-date: 2024-08-19T16:20:20.493Z
-updated: 2024-08-20T16:20:20.493Z
+date: 2025-01-29T17:35:22.177Z
+updated: 2025-01-30T17:51:16.309Z
 categories:
   - BestProducts
 description: "This Article Describes Exceptionally Capable, Ultra Portable: An In-Depth Look at the Performance and Features of the Dell XPS 13 2-in-1 Convertible Laptop"
@@ -14,8 +14,9 @@ thumbnail: https://thmb.techidaily.com/9e326dc97d7b2a04840d4bac29152fee0a09ec2e5
 4.5
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
@@ -39,14 +40,8 @@ Lifewire / Danny Chadwick
 
 4.5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ## Z-Edge Z3 Plus Dashcam
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
 Lifewire / Danny Chadwick
@@ -74,9 +69,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Small but solid**
 
  If you didn’t know this device was a dashcam, you could be forgiven for mistaking it for a point-and-shoot camera. It has a three-inch screen, and while that is small by the standards of today’s mobile devices, it’s a great size for your windshield. All the indicator lights and icons fit nicely on the screen and you only need to glance at it briefly while you drive to see that it’s recording.
@@ -104,8 +96,9 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -117,8 +110,9 @@ Lifewire / Danny Chadwick
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -131,6 +125,10 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Never failed**
 
  We tested the Z-Edge Z3 Plus on a six-hour road trip, and throughout the drive, the Z3 Plus nor the suction cup failed. So long as it was plugged into power, it functioned flawlessly.
@@ -138,6 +136,10 @@ Lifewire / Danny Chadwick
  The only complaint we have about the performance of the dashcam is its battery life. When we unplugged it, it only lasted about 20 minutes before shutting down. You need to keep it connected constantly and can only rely on the battery to capture footage in Parking Mode.
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Fair price for a fair product**
 
@@ -182,8 +184,6 @@ Lifewire / Danny Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -191,4 +191,24 @@ Lifewire / Danny Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-personalizing-communication-sounds-a-comprehensive-guide-for-whatsapp-ringtone-lovers/"><u>2024 Approved Personalizing Communication Sounds A Comprehensive Guide for WhatsApp Ringtone Lovers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-oppo-a79-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Oppo A79 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-reviews-on-superior-cars-gps-trackers/"><u>Expert Reviews on Superior Cars' GPS Trackers</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/frame-freedom-top-9-ways-to-banish-lag-from-your-windows-videos/"><u>Frame Freedom: Top 9 Ways to Banish Lag From Your Windows Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hp-zbook-firefly-15-g8-analysis-the-ultimate-portable-powerhouse/"><u>HP ZBook Firefly 15 G8 Analysis - The Ultimate Portable Powerhouse</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-how-to-enhance-audibility-with-adjusted-obs-settings/"><u>In 2024, How to Enhance Audibility with Adjusted OBS Settings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-mastering-mac-basic-sound-recording-in-audacity/"><u>In 2024, Mastering Mac Basic Sound Recording in Audacity</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unlocking-youtube-on-facebook-feeds/"><u>In 2024, Unlocking YouTube on Facebook Feeds</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/motorola-one-hyper-an-in-depth-review-of-an-exceptional-and-eye-catching-mid-range-smartphone/"><u>Motorola One Hyper: An In-Depth Review of an Exceptional and Eye-Catching Mid-Range Smartphone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-guide-to-full-sphere-video-via-iphone-for-2024/"><u>Step-by-Step Guide to Full-Sphere Video via iPhone for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-comprehensive-family-friendly-review-of-the-popular-minecraft-sandbox-game/"><u>The Comprehensive Family-Friendly Review of the Popular Minecraft Sandbox Game</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-guide-to-the-samsung-galaxy-watch-active-your-partner-in-wellness-and-activity-monitoring/"><u>The Essential Guide to the Samsung Galaxy Watch Active - Your Partner in Wellness and Activity Monitoring</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-vivo-s17t-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Vivo S17t Phone</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/understanding-blockchain-its-connection-with-cryptocurrency-explained-by-yl-computing/"><u>Understanding Blockchain: Its Connection with Cryptocurrency Explained by YL Computing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unfolding-the-pros-and-cons-of-the-lenovo-thinkpad-x1-fold/"><u>Unfolding the Pros & Cons of the Lenovo ThinkPad X1 Fold</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-confusion-a-comprehensive-look-at-the-pixel-slate-and-chromeos-mismatches/"><u>Unpacking the Confusion: A Comprehensive Look at the Pixel Slate and ChromeOS Mismatches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-seatech-external-blu-ray-usb-drive-is-it-a-game-changer-or-just-average-product-review/"><u>Unveiling the SeaTech External Blu-Ray USB Drive: Is It a Game Changer or Just Average? - Product Review</u></a></li>
+</ul></div>
 

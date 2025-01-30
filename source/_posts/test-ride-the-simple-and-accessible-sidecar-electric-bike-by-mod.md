@@ -1,7 +1,7 @@
 ---
 title: Test Ride the Simple and Accessible Sidecar Electric Bike by Mod
-date: 2024-08-19T16:21:50.358Z
-updated: 2024-08-20T16:21:50.358Z
+date: 2025-01-23T16:01:13.325Z
+updated: 2025-01-30T16:07:41.728Z
 categories:
   - BestProducts
 description: This Article Describes Test Ride the Simple and Accessible Sidecar Electric Bike by Mod
@@ -13,14 +13,8 @@ thumbnail: https://www.lifewire.com/thmb/vrvcsQpTnyw8ljb_94NXYrb-9vk=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -43,20 +37,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
-<!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -82,8 +68,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -106,9 +93,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: T-minus one minute**
 
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
@@ -116,8 +100,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -138,9 +123,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -172,8 +165,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -181,4 +172,26 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/updated-understanding-haul-content-production-and-post-production-techniques-for-2024/"><u>[Updated] Understanding Haul Content Production & Post-Production Techniques for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-how-to-make-money-from-instagram/"><u>2024 Approved How to Make Money From Instagram</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-lenovo-chromebook-duet-insight-excellent-2-in-1-functionality-at-a-bargain-price/"><u>Budget-Friendly Lenovo Chromebook Duet Insight: Excellent 2-in-1 Functionality at a Bargain Price</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/empowering-education-find-the-best-10-apps-designed-just-for-high-school-students/"><u>Empowering Education: Find the Best 10 Apps Designed Just for High-School Students</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/handling-http-status-code-401unauthorized-tips-and-solutions/"><u>Handling HTTP Status Code 401Unauthorized: Tips and Solutions</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-locked-xiaomi-redmi-a2-phone-by-drfone-android/"><u>How to Reset a Locked Xiaomi Redmi A2 Phone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-tackle-the-user-login-problems-in-counter-strike-global-offensive-a-5-step-guide/"><u>How to Tackle the User Login Problems in Counter-Strike Global Offensive - A 5 Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-xbox-series-s-robust-performance-in-a-small-frame/"><u>In-Depth Look at Xbox Series S: Robust Performance in a Small Frame</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-your-routes-a-review-of-map-my-ride-functionality/"><u>Navigating Your Routes: A Review of Map My Ride Functionality</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-top-10-animation-video-creators-for-mobile-devices/"><u>New In 2024, Top 10 Animation Video Creators for Mobile Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/revolutionize-your-livestreams-with-manycam-top-of-the-line-live-video-software-and-fake-cam-solutions/"><u>Revolutionize Your Livestreams with ManyCam – Top-of-the-Line Live Video Software and Fake Cam Solutions</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-gain-full-control-over-your-android-device-using-kingroot/"><u>Step-by-Step Guide: Gain Full Control Over Your Android Device Using KingRoot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-definitive-review-of-microsofts-finest-a-closer-look-at-the-laptop-4/"><u>The Definitive Review of Microsoft's Finest: A Closer Look at the Laptop 4</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-tcl-32s325-2019-roku-enabled-smart-led-tv-reviewed/"><u>The Ultimate Guide to TCL 32S325: 2019 Roku-Enabled Smart LED TV Reviewed</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/top-dvd-ripper-software-thats-compatible-with-windows-11/"><u>Top DVD Ripper Software That's Compatible With Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tropico-exploring-dominion-and-resistance-in-the-tropical-utopia-of-tropico-6/"><u>Tropico Exploring Dominion and Resistance in the Tropical Utopia of Tropico 6</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-excellence-of-samsung-galaxy-s21-ultra-why-it-reigns-supreme-in-the-android-realm/"><u>Unveiling the Excellence of Samsung Galaxy S21 Ultra: Why It Reigns Supreme in the Android Realm</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-factors-contributing-to-the-unexpected-popularity-of-the-wii-u/"><u>Unveiling the Factors Contributing to the Unexpected Popularity of the Wii U</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-experience-and-features-in-depth-look-at-the-google-nest-doorbell-with-batteries/"><u>User Experience & Features: In-Depth Look at the Google Nest Doorbell with Batteries</u></a></li>
+</ul></div>
 

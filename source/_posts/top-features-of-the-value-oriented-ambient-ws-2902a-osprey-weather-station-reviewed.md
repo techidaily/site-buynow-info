@@ -1,7 +1,7 @@
 ---
 title: Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
-date: 2025-01-18T03:52:26.014Z
-updated: 2025-01-22T16:01:28.007Z
+date: 2025-01-28T16:54:50.995Z
+updated: 2025-01-30T16:43:32.663Z
 categories:
   - BestProducts
 description: This Article Describes Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
@@ -18,13 +18,13 @@ thumbnail: https://www.lifewire.com/thmb/kWo7HN6oemoL0YOU54NCjKSHuJs=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Mohu Leaf 30
 
 ![Mohu Leaf 30 TV Antenna](https://www.lifewire.com/thmb/AyUAqIhKcHESYKlEswC1pUtS1Po=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3LW4078201-Mohu_TVAntennas_Leaf_HeroSquare-364a530da97b4c23b31d8c10157c01f4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jonno Hill
 
@@ -45,10 +45,6 @@ Lifewire / Jonno Hill
 [View On Amazon](https://www.amazon.com/Mohu-Television-Paper-thin-Performance-MH-110598/dp/B00HSMK580/?tag=lifewire-onsite-prod-20&ascsubtag=4843108%7Cnc1d14f8f39df4c2dac4b8d8ca33f9ac217%7CB00HSMK580) [View On Walmart $48](https://www.walmart.com/ip/Mohu-Leaf-30-Flat-30-Mile-Indoor-HDTV-Antenna/36126033) [View On Home Depot $41](https://www.homedepot.com/p/Mohu-Leaf-30-HDTV-Indoor-Antenna-MH-110583/205146429?slfpid=3)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Mohu Leaf 30
 
@@ -84,12 +80,16 @@ Lifewire / Jonno Hill
  The matte surface is white on one side and black on the other, which could be useful for helping blend the device in with your surroundings. The Mohu Leaf 30 TV Antenna is neither the thickest or the thinnest version of this design that we’ve seen. Some are closer to paper thin and extremely flexible, and others were more rigid. If you need to be able to bend the antenna quite a bit to fit it where you need to, this might not be the right one for you.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup: Dead simple**
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Acceptable but not incredible**
 
@@ -97,12 +97,16 @@ Lifewire / Jonno Hill
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
@@ -110,10 +114,6 @@ Lifewire / Jonno Hill
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -151,18 +151,18 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/new-clash-of-shadows-and-lightning-black-vs-silver-for-2024/"><u>[New] Clash of Shadows and Lightning BLACK vs SILVER for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-zoom-mastery-creating-seamless-virtual-sessions/"><u>[New] Zoom Mastery Creating Seamless Virtual Sessions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-12-live-video-streaming-app-for-watching-and-streaming-videos/"><u>[Updated] 2024 Approved 12 Live Video Streaming App for Watching and Streaming Videos</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-optimal-platforms-for-youtube-video-exposure/"><u>[Updated] 2024 Approved Optimal Platforms for YouTube Video Exposure</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/beginners-ultimate-resource-mastering-home-audio-setup/"><u>Beginner's Ultimate Resource: Mastering Home Audio Setup</u></a></li>
-<li><a href="https://article-files.techidaily.com/innovating-visual-storytelling-exploring-the-world-of-smart-hdr-photography-for-2024/"><u>Innovating Visual Storytelling Exploring the World of Smart HDR Photography for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-auditory-adventure-best-24-audio-gear-guide/"><u>The Ultimate Auditory Adventure: Best '24 Audio Gear Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-selection-of-cutting-edge-bluetooth-phones-for-this-year/"><u>The Ultimate Selection of Cutting-Edge Bluetooth Phones for This Year</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-lgs-basic-4k-tv-model-um73eekv1-a-savvy-buyers-guide/"><u>Unveiling the Features of LG's Basic 4K TV Model, UM73eekv1: A Savvy Buyer’s Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-of-a-budget-beast-a-comprehensive-review-of-the-tp-link-archer-c80-router/"><u>Unveiling the Performance of a Budget Beast: A Comprehensive Review of the TP-Link Archer C80 Router</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vanguard-voyager-full-featured-hefty-stand-explored/"><u>Vanguard Voyager: Full-Featured, Hefty Stand Explored</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211400515-9798987071724-when-spirits-speak/"><u>When Spirits Speak | Free Book</u></a></li>
-<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-beyond-the-viewfinder-top-6-android-and-ios-video-apps/"><u>[New] Beyond the Viewfinder Top 6 Android and iOS Video Apps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransform-your-viewership-with-immersive-360-livestreams-on-youtube/"><u>[New] Transform Your Viewership with Immersive 360° Livestreams on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-perfect-your-presence-with-solo-video-setups-and-techniques/"><u>[Updated] Perfect Your Presence with Solo Video Setups and Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-on-the-move-precision-with-the-sabrent-mini-cordless-mouse-the-perfect-blend-of-functionality-and-portability/"><u>Experience On-The-Move Precision with the Sabrent Mini Cordless Mouse - The Perfect Blend of Functionality and Portability</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/extensive-analysis-best-cloud-storage-recommendations/"><u>Extensive Analysis Best Cloud Storage Recommendations</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/future-proof-your-network-top-rated-low-cost-wi-fi-routers-of-2024-with-support-for-emerging-standards-like-wi-fi-66e-and-upcoming-wi-fi-7/"><u>Future-Proof Your Network: Top Rated Low Cost Wi-Fi Routers of 2024 with Support for Emerging Standards Like Wi-Fi 6/6E & Upcoming Wi-Fi 7</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mp4-files-on-moto-g-stylus-2023-by-aiseesoft-video-converter-play-mp4-on-android/"><u>How do you play MP4 files on Moto G Stylus (2023)?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ideal-iphone-extras-maximize-your-phone-experience/"><u>Ideal iPhone Extras: Maximize Your Phone Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-google-pixelbook-go-exceptional-chromebook-performance-meets-high-cost/"><u>In-Depth Analysis of the Google Pixelbook Go: Exceptional Chromebook Performance Meets High Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-morning-routine-with-heimvisions-sunrise-alarm-clock-a80-a-comprehensive-review/"><u>Innovative Morning Routine with HeimVision's Sunrise Alarm Clock A80: A Comprehensive Review</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/inside-obs-studios-latest-version-202/"><u>Inside OBS Studio's Latest Version (202</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-cable-modem-with-integrated-wifi-routers/"><u>Leading Cable Modem with Integrated WiFi Routers</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/quicker-launches-for-better-productivity-expert-advice-by-yl-computing/"><u>Quicker Launches for Better Productivity: Expert Advice by YL Computing</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Sony WH-1000XM4 Headphones Reviewed - Industry Pioneers
-date: 2024-08-19T16:21:49.314Z
-updated: 2024-08-20T16:21:49.314Z
+date: 2025-01-25T16:34:06.966Z
+updated: 2025-01-30T17:57:59.336Z
 categories:
   - BestProducts
 description: This Article Describes Sony WH-1000XM4 Headphones Reviewed - Industry Pioneers
@@ -14,8 +14,9 @@ thumbnail: https://www.lifewire.com/thmb/5S8xpr946IHbwJZO4KOyD9PhuRY=/400x300/fi
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Garmin Forerunner 45
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/9iHW-uJhBOq8W0g0_3J6JJ3oe10=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
@@ -41,11 +42,16 @@ Lifewire / Todd Braylor
 4.3
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Garmin Forerunner 45
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/o718az7uF1ea0o2yiaw0vFBeQvU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-HeroSquare-2cc58de569434b0fa44a3c79eb0c1777.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -73,11 +79,16 @@ Lifewire / Todd Braylor
 
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/oA3-JLbM6PIUG83S2eDF63Qprhs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-02-2ae60f7c5a5345ccad8649eadf02637c.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Setup Process: Charge, sync, and go**
 
  The Garmin Forerunner 45 is easy and quick to set up. Download the Garmin Connect app on your phone or tablet (available in the Apple App Store or Google Play Store) and you can easily sync it to the watch.
@@ -100,10 +111,11 @@ Lifewire / Todd Braylor
 
  The wristband is made of a flexible silicone material and has a lightly textured exterior side, while the interior side of the band (against your skin) is smooth. Thanks to its comfortable band and smaller overall size, it’s can be worn overnight to get 24/7 heart rate data and sleep monitoring.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Garmin Forerunner 45](https://www.lifewire.com/thmb/nHZkcIXB7C8qBgrCAwhmdxoMV0Y=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4057119-03-b3713bbdd0f244b889d434fbe17613b7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Todd Braylor
 
@@ -127,9 +139,6 @@ Lifewire / Todd Braylor
 
  Garmin Coach can also adjust itself based on performance metrics like heart rate and V02 max to either push you if you’re improving or dial things back if you're going too hard.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ## **Battery: Long battery life for days of activity or races**
 
  The Garmin Forerunner 45 has a rechargeable lithium battery that can last up to seven days in normal watch mode and up to 13 hours continuously when in GPS mode.
@@ -140,9 +149,6 @@ Lifewire / Todd Braylor
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software: Minimal graphics with widgets in place of apps**
 
  The FR45 has a minimal OS and the visuals of the display are quite basic. The screen is always on and the simple graphics are designed for high visibility when you are on the move and working out, which is ideal for checking your progress during exercise. The display feels very utilitarian and the graphics do exactly what they intend to do: tell you the info you need to know without any distractions.
@@ -157,9 +163,6 @@ Lifewire / Todd Braylor
 
  The safety alert is similar, allowing you to send a preset alert message with your location as a follow link to a designated emergency contact. But unlike incident detection, the safety alert is sent manually and designed to be used any time you find yourself in a potentially unsafe situation while out running or biking. Both of these features require that your smartphone is within Bluetooth range.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Training essentials for a decent price**
 
  The Garmin Forerunner 45 carries an MSRP of $199.99, which is a pretty decent deal for a GPS watch with the added Garmin Coach features.
@@ -194,9 +197,6 @@ Lifewire / Todd Braylor
 * [Garmin Forerunner 945](https://www.lifewire.com/garmin-forerunner-945-review-4768586)
 * [Fitbit Inspire HR](https://www.lifewire.com/fitbit-inspire-hr-review-4768656)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Forerunner 45
@@ -223,8 +223,6 @@ Lifewire / Todd Braylor
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -232,4 +230,20 @@ Lifewire / Todd Braylor
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-capturing-your-touch-top-8-free-android-recorders/"><u>[New] In 2024, Capturing Your Touch Top 8 Free Android Recorders</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-step-by-step-guide-to-enhancing-instagram-stories-with-photos/"><u>[New] In 2024, Step-by-Step Guide to Enhancing Instagram Stories with Photos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhance-youtube-livestreams-webcam-selection-mastery/"><u>[Updated] 2024 Approved Enhance YouTube Livestreams Webcam Selection Mastery</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-premier-biking-game-showcase-for-2024/"><u>[Updated] Premier Biking Game Showcase for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor 90 GT | Dr.fone</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/data-salvage-solution-for-windows-devices/"><u>Data Salvage Solution for Windows Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-most-efficient-power-inverters-on-the-market-2024-edition/"><u>Discover the Most Efficient Power Inverters on the Market - 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-logitech-c615-webcam-a-deep-dive-into-its-value-and-functions/"><u>Exploring the Logitech C615 Webcam: A Deep Dive Into Its Value and Functions</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/protect-and-preserve-your-iphone-es-aesthetics-with-these-3-must-have-accessories-insights/"><u>Protect and Preserve Your iPhone E's Aesthetics with These 3 Must-Have Accessories | Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-bybs-premium-e430-swing-led-torch-illumination-review/"><u>The Ultimate Guide to BYB's Premium E43#0 Swing LED Torch Illumination Review</u></a></li>
+<li><a href="https://driver-error.techidaily.com/unlocking-solution-to-error-code-52/"><u>Unlocking Solution to Error Code 52</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-nokia-c110-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/x-plane-ebytes-11-takes-flight-innovative-visuals-and-features-in-a-cutting-edge-avionics-simulator/"><u>X-Plane Ebytes 11 Takes Flight: Innovative Visuals and Features in a Cutting-Edge Avionics Simulator</u></a></li>
+</ul></div>
 

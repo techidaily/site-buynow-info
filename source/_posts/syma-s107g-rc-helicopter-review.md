@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2025-01-19T05:37:14.213Z
-updated: 2025-01-23T05:56:22.570Z
+date: 2025-01-26T16:23:33.922Z
+updated: 2025-01-30T16:44:56.991Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Canon PowerShot SX70
 
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -80,10 +88,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Built to last, great to use**
 
  The SX70 HS is a tiny little camera considering the zoom range it packs in, yet it never felt too small in our hands. The exterior is composed of grippy texturized plastic and features a generous leather grip. We never worried about dropping it, and it feels tough enough to take the odd jolt and jostle in stride.
@@ -95,6 +99,10 @@ Lifewire / Andy Zahn
 [Mini HDMI](https://www.lifewire.com/hdmi-cables-and-connectors-what-you-need-to-know-4685377) , Remote shutter, USB, and microphone ports are included, though unfortunately for audio monitoring, the SX70 HS lacks a headphone jack and hot shoe mount. The port covers are durable and easy to use, and we appreciated the well-placed location of the 3.5mm microphone jack.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
@@ -115,7 +123,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
@@ -125,10 +133,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -160,6 +164,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -184,10 +192,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
@@ -210,10 +214,6 @@ Lifewire / Andy Zahn
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Similar Products We've Reviewed
 
 * [Panasonic Lumix DC-FZ80](https://www.lifewire.com/panasonic-lumix-dc-fz80-review-4691071)
@@ -221,7 +221,7 @@ Lifewire / Andy Zahn
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -258,22 +258,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-aurora-in-the-market-is-it-a-premium-need-in-2024/"><u>[New] Aurora in the Market Is It a Premium Need, In 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-discover-a-broad-array-top-15-cams-not-like-gopro/"><u>[New] In 2024, Discover a Broad Array Top 15 Cams Not Like GoPro</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-women-in-warfare-youtubes-elite-ten/"><u>[New] Women in Warfare YouTube’s Elite Ten</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-exclusive-insights-viewing-nba-games-remotely/"><u>2024 Approved Exclusive Insights Viewing NBA Games Remotely</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-social-media-trends-visualized/"><u>2024 Approved Social Media Trends Visualized</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-about-the-fitbit-inspire-hr-an-ultimate-review-of-a-247-wearable-tracker-for-active-lifestyles/"><u>All About The Fitbit Inspire HR: An Ultimate Review of a 24/7 Wearable Tracker for Active Lifestyles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/complete-ipad-showdown-which-one-wins/"><u>Complete iPad Showdown: Which One Wins?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-lg-k51-critique-impressive-style-hindered-by-inadequate-cpu-power/"><u>Comprehensive LG K51 Critique: Impressive Style Hindered By Inadequate CPU Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-dreame-bot-l10-pro-the-advanced-autonomous-cleaning-system-using-lidar-technology/"><u>Comprehensive Review of Dreame Bot L10 Pro: The Advanced Autonomous Cleaning System Using LiDAR Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-testing-on-the-affordable-amazonbasics-6-sheet-cross-cut-document-shredder/"><u>Comprehensive Testing on the Affordable AmazonBasics 6 Sheet Cross-Cut Document Shredder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/convenient-and-space-saving-way-of-following-valuables-using-a-miniature-gps-tracker-a-user-review-on-primetrack-154-characters/"><u>Convenient and Space-Saving Way of Following Valuables Using a Miniature GPS Tracker: A User Review on PrimeTrack (154 Characters)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-indoor-drone-delights-a-review-of-the-cost-effective-syma-x8ehfq-rc-helicopter/"><u>Discover Indoor Drone Delights: A Review of the Cost-Effective Syma X8EHFQ RC Helicopter</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-hidden-gems-of-m3-macbook-air/"><u>Discovering the Hidden Gems of M3 MacBook Air</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-2023s-premier-action-cameras-for-ocean-thrills/"><u>In 2024, 2023'S Premier Action Cameras for Ocean Thrills</u></a></li>
-<li><a href="https://fox-access.techidaily.com/in-2024-revealing-the-quintessential-5-titling-visionaries-online/"><u>In 2024, Revealing the Quintessential 5 Titling Visionaries Online</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-smart-techniques-for-large-video-movement-between-iphones-and-macs/"><u>In 2024, Smart Techniques for Large Video Movement Between iPhones & Macs</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/t6-camera-breakdown-affordable-dslr-starter/"><u>T6 Camera Breakdown: Affordable DSLR Starter</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-amplifying-audience-engagement-on-igtv-for-2024/"><u>[New] The Art of Amplifying Audience Engagement on IGTV for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-home-theater-excellence-the-best-blu-ray-selections-for-2024/"><u>[Updated] Home Theater Excellence The Best Blu-Ray Selections for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-tickling-your-sense-of-humor-tiktoks-20-joke-highlights/"><u>[Updated] Tickling Your Sense of Humor TikTok's 20 Joke Highlights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-shorts-ultimate-guide/"><u>2024 Approved YouTube Shorts Ultimate Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-6s-plus-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone 6s Plus Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1726028831466-windowspc/"><u>複数ウィンドウ同時録画:WindowsPC用ガイドライン</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-competition-a-closer-look-at-ipad-pro-vs-surface-pro-differences/"><u>Decoding the Competition: A Closer Look at iPad Pro Vs. Surface Pro Differences</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exceptional-acoustics-of-the-soundbot-sb210-unveiling-its-hibernation-period-and-effective-functioning/"><u>Exceptional Acoustics of the Soundbot SB210: Unveiling Its Hibernation Period and Effective Functioning</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-photoscape-a-premier-freeware-for-graphic-tweaks-and-edits/"><u>Exploring the Features of PhotoScape: A Premier Freeware for Graphic Tweaks and Edits</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-apple-iphone-14-pro-max-location-on-viber-drfone-by-drfone-virtual-ios/"><u>How to Change/Fake Your Apple iPhone 14 Pro Max Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-se-2022-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your iPhone SE (2022)?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-powerhouse-features-inside-the-netgear-nighthawk-x6-extender/"><u>In-Depth Analysis: The Powerhouse Features Inside the Netgear Nighthawk X6 Extender</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-storm-tracker-apps-of-2024/"><u>The Best Storm Tracker Apps of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-pick-outstanding-external-blu-ray-players-and-burners/"><u>Top Pick: Outstanding External Blu-Ray Players and Burners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-6-sheet-cross-cut-shredder-budget-friendly-reviews/"><u>Top Rated AmazonBasics 6-Sheet Cross-Cut Shredder: Budget-Friendly Reviews</u></a></li>
 </ul></div>
 

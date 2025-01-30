@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2025-01-20T04:07:37.789Z
-updated: 2025-01-22T19:31:43.182Z
+date: 2025-01-27T17:03:14.283Z
+updated: 2025-01-30T16:23:06.734Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -42,10 +42,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
@@ -72,6 +68,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -95,7 +95,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -105,7 +105,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
@@ -128,13 +128,13 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
@@ -151,7 +151,7 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -179,18 +179,21 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-elevating-your-ig-aesthetics-with-top-10-grid-builders-for-2024/"><u>[New] Elevating Your IG Aesthetics with Top 10 Grid Builders for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-seamless-podcast-journey-from-creation-to-google-submission/"><u>[Updated] 2024 Approved Seamless Podcast Journey From Creation to Google Submission</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/facebook-verification-how-to-get-the-blue-verified-badge-easily-for-2024/"><u>Facebook Verification How to Get the Blue Verified Badge (Easily) for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/innovative-strategies-for-elevating-your-onestream-experience-for-2024/"><u>Innovative Strategies for Elevating Your OneStream Experience for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-price-worth-it-a-thorough-examination-of-the-alienware-aurora-r7s-capabilities/"><u>Is the Price Worth It? A Thorough Examination of the Alienware Aurora R7's Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-17-inch-gaming-and-work-laptops-for-tech-savvy-consumers/"><u>Leading 17-Inch Gaming & Work Laptops for Tech Savvy Consumers</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/leading-apps-to-monitor-facebook-twitter-and-instagram-tags/"><u>Leading Apps to Monitor Facebook, Twitter and Instagram Tags</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-flex-5-spin-detailed-unboxing-and-performance-insights/"><u>Lenovo IdeaPad Flex 5 Spin - Detailed Unboxing and Performance Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/record-spinning-made-easy-exploring-the-lp60xbt/"><u>Record Spinning Made Easy: Exploring the LP60XBT</u></a></li>
-<li><a href="https://common-error.techidaily.com/sync-your-xbox-one-controller-easily-with-this-simple-troubleshoot-tutorial/"><u>Sync Your Xbox One Controller Easily with This Simple Troubleshoot Tutorial</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-aesthetic-appeal-and-lightweight-advantage-of-the-acer-chromebook-r-11-unveiled/"><u>The Aesthetic Appeal & Lightweight Advantage of the Acer Chromebook R 11 Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-samsung-galaxy-watch3-through-a-critical-lens-classic-elegance-pairing-with-latest-innovations/"><u>The Samsung Galaxy Watch3 Through a Critical Lens: Classic Elegance Pairing With Latest Innovations</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-steps-for-unsticking-the-loading-screen-in-among-us/"><u>Troubleshooting Steps for Unsticking the Loading Screen in Among Us</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-stream-smoothness-tweets-buffering-in-chrome/"><u>[Updated] 2024 Approved Stream Smoothness Tweets Buffering in Chrome</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-beginners-guide-to-ps4-game-broadcasting-with-obs/"><u>[Updated] Beginner's Guide to PS4 Game Broadcasting with OBS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-find-your-favorite-download-free-slide-show-patterns-today-for-2024/"><u>[Updated] Find Your Favorite, Download-Free Slide Show Patterns Today for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-conclusion/"><u>2024 Approved Conclusion</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-integrating-your-social-network-four-ways-for-fb-story-sharing/"><u>2024 Approved Integrating Your Social Network Four Ways for FB Story Sharing</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-6-plus-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 6 Plus Without Apple ID Password?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/invisible-display-post-graphic-card-change/"><u>Invisible Display Post Graphic Card Change</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/reimagined-ultrahd-2023s-samsung-bdplus-k850/"><u>Reimagined UltraHD 2023'S Samsung BD+ K850</u></a></li>
+<li><a href="https://win11.techidaily.com/tackling-d3d11-compatible-gpu-setbacks-on-win11-and-win10/"><u>Tackling D3D11 Compatible GPU Setbacks on Win11 & Win10</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-gpus-a-comprehensive-list/"><u>Top Rated GPUs : A Comprehensive List</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-ipad-holders-and-supports-top-picks/"><u>Top-Rated iPad Holders & Supports - Top Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-lightning-cable-options-your-guide/"><u>Top-Rated Lightning Cable Options : Your Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-magsafe-enhancements-for-your-iphone/"><u>Top-Rated MagSafe Enhancements for Your iPhone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-professional-photography-lenses/"><u>Top-Rated Professional Photography Lenses</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-protective-gear-for-google-pixel-8a-a-comprehensive-buyers-guide/"><u>Top-Rated Protective Gear for Google Pixel 8A : A Comprehensive Buyer's Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-leading-air-cleaners-ranked-for-2n33/"><u>Ultimate Guide: Leading Air Cleaners Ranked for 2N33</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
-date: 2025-01-22T03:21:00.331Z
-updated: 2025-01-22T17:10:36.335Z
+date: 2025-01-24T16:54:23.918Z
+updated: 2025-01-30T16:19:26.123Z
 categories:
   - BestProducts
 description: This Article Describes The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
@@ -48,7 +48,7 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -70,6 +70,10 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -79,7 +83,7 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -97,10 +101,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -121,7 +121,7 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Decent for what you get**
@@ -130,11 +130,11 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -175,18 +175,21 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-aesir-clash-in-the-shadow-of-ragnarok/"><u>[New] 2024 Approved Aesir Clash In the Shadow of Ragnarok</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/a-buyers-selection-of-ergonomic-keyboard-cushions-top-picks/"><u>A Buyer's Selection of Ergonomic Keyboard Cushions: Top Picks</u></a></li>
-<li><a href="https://driver-install.techidaily.com/advance-graphics-capabilities-for-windows-10/"><u>Advance Graphics Capabilities for Windows 10</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/convenzione-di-licenza-per-lutente-finale-con-software-winxdvd-prodotto-digiarty/"><u>Convenzione Di Licenza per L'utente Finale Con Software WinXDVD - Prodotto Digiarty</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enhance-photos-a-guide-to-adobe-corrections/"><u>Enhance Photos A Guide to Adobe Corrections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/1722717806006-for-non-circular-shapes-express-all-dimensions-through-a-single-variable-for-ease-of-calculation/"><u>For Non-Circular Shapes, Express All Dimensions Through a Single Variable for Ease of Calculation.</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-lava-yuva-2-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Lava Yuva 2 Phone With/Without IMEI Number</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/proven-approaches-for-effective-windows-file-browsing-sans-ls/"><u>Proven Approaches for Effective Windows File Browsing Sans LS</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-fundamentals-crafting-your-podcasts-rss-feed-for-2024/"><u>The Fundamentals Crafting Your Podcast's RSS Feed for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-canons-handy-sx620-powershot-camera/"><u>Unveiling Canon’s Handy SX620 PowerShot Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-the-echo-show-5th-generation-an-in-depth-review/"><u>Unveiling the Power of the Echo Show 5Th Generation: An In-Depth Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pros-and-cons-of-viber-out-calls-a-detailed-analysis/"><u>Unveiling the Pros & Cons of Viber Out Calls - A Detailed Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-zte-blade-a3y-outstanding-capabilities-for-cost-conscious-consumers/"><u>Unveiling the ZTE Blade A3Y: Outstanding Capabilities for Cost-Conscious Consumers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-halo-review/"><u>Amazon Halo Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-x441ba-review-a-big-screen-laptop-with-tradeoffs/"><u>Asus X441BA Review: A Big Screen Laptop With Tradeoffs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-parent-and-child-the-amazon-fire-hd-10-kid-editions-secure-environment/"><u>Comprehensive Evaluation of Parent & Child The Amazon Fire HD 10 Kid Edition's Secure Environment</u></a></li>
+<li><a href="https://blog-min.techidaily.com/die-allerbesten-gratis-programme-fur-ip-kameras-von-movavi-und-alternativen/"><u>Die Allerbesten Gratis Programme Für IP-Kameras Von Movavi Und Alternativen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-controversy-in-tropico-6-critique-of-a-sun-soaked-tyranny/"><u>Exploring the Controversy in Tropico 6: Critique of a Sun-Soaked Tyranny</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-mastering-mov-file-management-on-modern-windows-10/"><u>In 2024, Mastering .mov File Management on Modern Windows 10</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphone-sky-photography-essential-tips-and-tricks/"><u>In 2024, Mastering iPhone Sky Photography Essential Tips & Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-lensdirect-prescription-sunglasses-the-ultimate-defense-against-digital-screen-glare/"><u>In-Depth Look at LensDirect Prescription Sunglasses: The Ultimate Defense Against Digital Screen Glare</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastering-multi-device-connectivity-an-experts-review-on-the-amazon-basics-7-port-usb-3-hub/"><u>Mastering Multi-Device Connectivity: An Expert's Review on the Amazon Basics 7 Port USB 3 Hub</u></a></li>
+<li><a href="https://techtrends.techidaily.com/offline-minecraft-adventures-configuring-your-game-on-windows-10/"><u>Offline Minecraft Adventures: Configuring Your Game on Windows 10</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/superior-watchlist-analyzer-highest-chart-positions-for-2024/"><u>Superior Watchlist Analyzer Highest Chart Positions for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranking-windows-ultrabooks-and-gaming-laptops-comprehensive-tests-by-tech-experts-zdnet/"><u>Top-Ranking Windows Ultrabooks & Gaming Laptops - Comprehensive Tests by Tech Experts | ZDNet</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oneplus-12r-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change OnePlus 12R IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/universal-data-revival-set-for-windowsmaclinux-users/"><u>Universal Data Revival Set - For Windows/Mac/Linux Users</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/unleash-your-inner-star-in-the-new-calendar-year-discover-exciting-karaoke-tunes-on-karaoke-cloud-pro/"><u>Unleash Your Inner Star in the New Calendar Year: Discover Exciting Karaoke Tunes on Karaoke Cloud Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-economical-xiaomi-mi-smart-band-4-is-my-preferred-choice-for-fitness-tracking/"><u>Why the Economical Xiaomi Mi Smart Band 4 Is My Preferred Choice for Fitness Tracking</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
-date: 2025-01-17T16:36:24.422Z
-updated: 2025-01-23T01:17:15.802Z
+date: 2025-01-23T17:14:32.392Z
+updated: 2025-01-30T16:35:02.160Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Evaluation of the Portable Lenovo Ideapad ^320 - Featuring Lenovo’s Signature Keyboard Experience
@@ -19,12 +19,16 @@ thumbnail: https://www.lifewire.com/thmb/G1oG26gp57YAB7fy1gGV5fHuw8Q=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Escort Passport S55
 
 ![Escort Passport S55](https://www.lifewire.com/thmb/f0RN56-eh6pu8aD6gCixTQbPxa8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_PassportS55_HeroSquare-cf0bc8f027124f10ae69543a9ad91418.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -45,10 +49,6 @@ Lifewire / Todd Braylor
 [View On Amazon $280](https://www.amazon.com/dp/B019HF60EI/?tag=lifewire-onsite-prod-20&ascsubtag=4799949%7Cncd245a3f879640b69fbbb5e95c20e78e20%7CB019HF60EI) [View On Walmart $140](https://www.walmart.com/ip/Escort-Passport-S55-High-Performance-Pro-Radar-and-Laser-Detector-w-DSP/49140972)
 
 3.8
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Escort Passport S55
 
@@ -75,10 +75,6 @@ Lifewire / Todd Braylor
 
  The Escort Passport S55 is designed to deliver high-performance features in a low-budget package; this model has a great range and a high-intensity LED display. Let's take a closer look at some strengths and weaknesses to evaluate what kind of performance you can expect on the road.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design:** **A bit cheap**
 
  The S55 is palm-sized, about comparable in size and shape to most other radar detectors. The plastic material feels a bit cheaper than other radar detectors I've tested, though the control buttons worked well and felt long-lasting and I never had issues with them sticking. The Passport S55 comes with a very small windshield mount that's functional, but you may want to consider an aftermarket mount. It's minimal with small suction cups and I'm not confident it will last long. Luckily, the lightweight design of the S55 means it doesn't need much to hold it in place.
@@ -96,7 +92,7 @@ Lifewire / Todd Braylor
  Lifewire / Todd Braylor
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Range: Impressive detection**
@@ -114,7 +110,7 @@ Lifewire / Todd Braylor
  In terms of false alerts, the AutoSensitivity feature didn't really help in directing the overall high-sensitivity. This radar detector gave frequent false alerts from commercial door-openers and vehicle anti-collision warning systems. Unfortunately, the S55 lacks the advanced filters of more expensive models that help reduce the annoying frequency of false alerts.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: You get what you pay for**
@@ -134,6 +130,10 @@ Lifewire / Todd Braylor
  **A basic radar detector that's ideal for beginners or anyone on a budget.**
 
  The Escort Passport S55 has reliable long-range detection, but I found its performance and range of features to be pretty basic. This unit never missed the presence of parked police down the highway who appeared to be using radar guns, which means I'm confident in recommending this model for those on a budget. However, buyer beware that false alerts are an unavoidable inconvenience with this model.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,24 +164,15 @@ Lifewire / Todd Braylor
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enhancing-video-discoverability-with-effective-titles-and-tags/"><u>[Updated] In 2024, Enhancing Video Discoverability with Effective Titles & Tags</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/acclaimed-editing-software-for-virtual-recordings/"><u>Acclaimed Editing Software for Virtual Recordings</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-enabled-solutions-for-superior-search-engine-optimization-success/"><u>Cookiebot-Enabled Solutions for Superior Search Engine Optimization Success</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-evaluation-pros-and-cons-of-pioneers-bdr-xd05b-blu-ray-burning-device/"><u>Expert Evaluation: Pros and Cons of Pioneer's BDR-XD05B Blu-Ray Burning Device</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-review-how-the-samsung-galaxy-watch-active-is-revolutionizing-personal-health-monitoring/"><u>Expert Review: How the Samsung Galaxy Watch Active Is Revolutionizing Personal Health Monitoring</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-take-on-the-creative-labs-sound-blaster-zxr-2013-a-must-have-for-audio-enthusiasts/"><u>Expert Take on the Creative Lab's Sound Blaster ZxR (2013) - A Must-Have for Audio Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-best-features-in-nixplay-seed-smart-frames/"><u>Exploring the Best Features in Nixplay Seed Smart Frames</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/garmin-forerunner-745-review-a-premium-multisport-fitness-tracker/"><u>Garmin Forerunner 745 Review: A Premium Multisport Fitness Tracker</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-any-lenovo-thinkphone-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Lenovo ThinkPhone Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-lava-yuva-3-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Lava Yuva 3 Location | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-samsung-galaxy-tab-s5e-top-of-the-line-android-tablet-unveiled/"><u>In-Depth Analysis of the Samsung Galaxy Tab S5e: Top-of-the-Line Android Tablet Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-evaluation-of-apples-homepod-mini-features-on-music-and-siri/"><u>In-Depth Evaluation of Apple's HomePod Mini: Features on Music & Siri</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-mlb-the-show-19-analysis-beautiful-sportscraft-meets-unforeseen-role-playing-elements/"><u>In-Depth MLB The Show 19 Analysis: Beautiful Sportscraft Meets Unforeseen Role-Playing Elements</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/invest-in-your-pets-security-with-petcubes-economical-hd-monitor/"><u>Invest in Your Pet's Security with Petcube's Economical HD Monitor</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/is-it-time-to-switch-to-an-apple-m1-macbook-pro-from-a-previous-generation-model-tech-insights-by-zdnet/"><u>Is It Time to Switch to an Apple M1 MacBook Pro From a Previous Generation Model? | Tech Insights by ZDNET</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/masterclass-in-monochrome-magic-a-professionals-guide/"><u>Masterclass in Monochrome Magic A Professional's Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/step-by-step-guide-extracting-audio-from-webm-videos/"><u>Step-by-Step Guide: Extracting Audio From WebM Videos</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/streamline-your-youtube-thumbnail-process/"><u>Streamline Your YouTube Thumbnail Process</u></a></li>
-<li><a href="https://article-tips.techidaily.com/twirling-titans-olympic-ice-revelations/"><u>Twirling Titans Olympic Ice Revelations</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-ultimate-chuckles-and-pixels-suite-for-2024/"><u>[New] Ultimate Chuckles and Pixels Suite for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-practical-technique-swap-film-direction-in-vlc-player/"><u>[Updated] 2024 Approved Practical Technique Swap Film Direction in VLC Player</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723262426272-dont-miss-out-upgrade-to-a-superior-gaming-experience-with-the-nvidia-rtx-4080-powered-lenovo-legion-desktop-for-just-over-2000/"><u>Don't Miss Out: Upgrade to a Superior Gaming Experience with the NVIDIA RTX 4080-Powered Lenovo Legion Desktop for Just Over $2,000!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-oneplus-ace-2v-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your OnePlus Ace 2V Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-oneplus-ace-2-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of OnePlus Ace 2 Pro Without PUK Codes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-10-portable-generators-on-sale-this-festive-season-find-your-perfect-gift-techsavvy/"><u>Top 10 Portable Generators on Sale This Festive Season – Find Your Perfect Gift! | TechSavvy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-android-vpn-services-a-comprehensive-guide/"><u>Top Rated Android VPN Services: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-compact-digital-cameras-a-comprehensive-guide/"><u>Top Rated Compact Digital Cameras : A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-automatic-floor-cleaners/"><u>Top-Rated Automatic Floor Cleaners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-canine-gps-tracker-models-in-2-a-comprehensive-guide/"><u>Top-Rated Canine GPS Tracker Models in 2# - A Comprehensive Guide</u></a></li>
 </ul></div>
 

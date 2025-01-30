@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Guide to the Dependable Kensun Portable Tire Inflator - Travel Companion!
-date: 2024-08-11T00:05:07.439Z
-updated: 2024-08-12T00:05:07.439Z
+date: 2025-01-24T17:23:46.688Z
+updated: 2025-01-30T16:02:14.765Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Guide to the Dependable Kensun Portable Tire Inflator - Travel Companion!
@@ -15,10 +15,11 @@ thumbnail: https://www.lifewire.com/thmb/I3Lw1-ZvxZTUUfmJAFzoHuPKj_k=/400x300/fi
 
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/mk2ndJKMrOgGOYfE8uNwJVYkaTk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
 
@@ -41,11 +42,12 @@ Lifewire / Nick Jaynes
 
 4.5
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Anker PowerDrive 2 24W Dual USB Car Charger
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 Lifewire / Nick Jaynes
@@ -69,6 +71,10 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -82,8 +88,9 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -94,19 +101,12 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## **Competition: A handful of rivals**
 
  The RAVPower 24W charger is one of Anker’s main rivals. It has a metal exterior, a lower price tag, and theoretically identical power output. However, its construction is far less robust. In fact, its metal outside easily separates from the internal components easily making Anker a better pick for longevity.
@@ -122,8 +122,9 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  PowerDrive 2 24W Dual USB Car Charger
@@ -141,8 +142,6 @@ Lifewire / Nick Jaynes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -150,4 +149,24 @@ Lifewire / Nick Jaynes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/nlocking-profits-the-essential-3-step-guide-for-gauging-youtube-earnings/"><u>[New] Unlocking Profits The Essential 3-Step Guide for Gauging YouTube Earnings</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-the-ultimate-upgrade-list-best-accessories-for-phantom-4/"><u>[Updated] The Ultimate Upgrade List Best Accessories for Phantom 4</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/a-comprehensive-look-at-what-sets-ipad-pro-apart-from-macbook-pro/"><u>A Comprehensive Look at What Sets iPad Pro Apart From MacBook Pro</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/expertise-amplified-excels-new-horizons-with-ai-specifically-chatgpt/"><u>Expertise Amplified: Excel's New Horizons with AI, Specifically ChatGPT</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hassle-free-driver-installation-and-download-for-surface-books/"><u>Hassle-Free Driver Installation and Download for Surface Books!</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>How to share/fake gps on Uber for Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-at-the-dell-inspiron-n3671-how-this-middle-tier-desktop-stacks-up-against-competitors/"><u>Inside Look at the Dell Inspiron N3671: How This Middle Tier Desktop Stacks Up Against Competitors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/kootek-cooler-an-essential-gadget-for-your-laptop-backed-by-positive-reviews/"><u>Kootek Cooler: An Essential Gadget for Your Laptop, Backed by Positive Reviews</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lightzone-unveiled-revolutionary-free-software-for-windows-mac-and-linux-users/"><u>LightZone Unveiled: Revolutionary Free Software for Windows, Mac & Linux Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mixing-style-with-workouts-the-verdict-on-the-amazfit-gts-smartwatch/"><u>Mixing Style with Workouts: The Verdict on the Amazfit GTS Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mohu-leaf-30-tv-antenna-review-does-its-affordable-pricing-match-up-to-excellent-performance/"><u>Mohu Leaf 30 TV Antenna Review - Does Its Affordable Pricing Match Up to Excellent Performance?</u></a></li>
+<li><a href="https://network-issues.techidaily.com/normalizing-window-upside-down-in-w11/"><u>Normalizing Window Upside Down in W11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outstanding-beginners-guide-unpacking-the-amazfit-bip-smartwatch/"><u>Outstanding Beginner's Guide: Unpacking the Amazfit Bip Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-inexpensive-ssl-certificate-providers/"><u>Review of Inexpensive SSL Certificate Providers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sony-wh-1000xm4-headphones-reviewed-industry-pioneers/"><u>Sony WH-1000XM4 Headphones Reviewed - Industry Pioneers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-tutorial-to-access-group-policy-editor-in-windows-10-home-version/"><u>Step-by-Step Tutorial to Access Group Policy Editor in Windows 10 Home Version</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/1728476829830-usbwindows-11/"><u>USBメモリをWindows 11で使えない場合、どうすれば良いか：改めて考える方法</u></a></li>
+</ul></div>
 

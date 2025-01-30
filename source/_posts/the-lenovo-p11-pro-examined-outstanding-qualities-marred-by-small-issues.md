@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo P11 Pro Examined: Outstanding Qualities Marred by Small Issues"
-date: 2025-01-22T00:17:46.969Z
-updated: 2025-01-23T03:58:41.685Z
+date: 2025-01-23T18:04:06.137Z
+updated: 2025-01-30T16:53:34.380Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo P11 Pro Examined: Outstanding Qualities Marred by Small Issues"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/2fd2af990894cf11cb2087adc0179e8a43be6adf1
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Ergodriven Topo Standing Desk Mat
 
@@ -45,9 +41,17 @@ Lifewire / Rebecca Isaacs
 
 4.6
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Ergodriven Topo Standing Desk Mat
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/GZTKidZtByl51GvkYiB-jNjEjbE=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Ergodriven-Topo-Comfort-Mat-1-ccd96f7c454945c3b974a2f5cba4fe79.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -70,10 +74,6 @@ Lifewire / Rebecca Isaacs
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/KYfJPJ0jHZhmy15IUeGxDL8kmRw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-2-547d9823c4ac47cbb5a360040866172a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 ## **Design: Simply modern**
@@ -81,6 +81,10 @@ Lifewire / Rebecca Isaacs
  At 26.2 inches by 29 inches (LW), the Topo is a fairly wide mat, giving the user lots of berth to shift around. It comes with two power wedges in the back with calf-stretching inclines in the front that end up going 2.7 inches high, though the bottom platform of the mat is much thinner. It also comes with a massage mound in the center of the mat. For the most part, we liked the mat, but placing the massage mound in the center we felt was detrimental for standing space.
 
 ![Ergodriven Topo Standing Desk Mat](https://www.lifewire.com/thmb/0MLp0JKyXodrqDxUdun30XlUicQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Ergodriven-Topo-Comfort-Mat-3-5e85cbed72974e018684fe954f0ddf1b-75abe4f41eba41c3b202cdf74fbf3caa.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -99,7 +103,7 @@ Lifewire / Rebecca Isaacs
  We also liked how the mat slides around on various surfaces, but it’s not too slippery. We hauled it around to various offices with tile and carpet. Each time we set it down, we could push it under the desk with ease if we needed to sit for extended lengths of time and pull it out just as easily when we wanted to stand.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Pretty steep for a mat**
@@ -109,7 +113,7 @@ Lifewire / Rebecca Isaacs
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Topo Ergodriven vs. CubeFit TerraMat**
@@ -125,10 +129,6 @@ Lifewire / Rebecca Isaacs
 **Pricey, but solid for the features.**
 
  For a standing desk mat with some exercise features, the Ergodriven Topo is a fairly decent choice. While we think there are other, better mats out there, but the Topo does hide dirt better, and the deep rear wedges stretch the hamstrings more than most other models on the market. If you want a solid stretch, then the Ergodriven Topo is the best choice for you.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -155,20 +155,24 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-master-your-remote-work-with-these-5-video-conference-recorders/"><u>[New] In 2024, Master Your Remote Work with These 5 Video Conference Recorders</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo Reno 11F 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-installation-of-microsoft-ergokey-4000-get-your-drivers-downloaded-in-no-time/"><u>Effortless Installation of Microsoft ErgoKey 4000 - Get Your Drivers Downloaded in No Time</u></a></li>
-<li><a href="https://games-able.techidaily.com/essential-ram-upgrades-of-2023-boosting-gaming-and-productivity-with-expert-picks-from-zdnet/"><u>Essential RAM Upgrades of 2023: Boosting Gaming and Productivity with Expert Picks From ZDNet</u></a></li>
-<li><a href="https://win-able.techidaily.com/game-on-without-stutters-troubleshooting-fallout-76-performance-problems/"><u>Game On Without Stutters: Troubleshooting Fallout 76 Performance Problems</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-serious-book-lovers-device-kobo-forma/"><u>In Depth Analysis of the Serious Book Lover's Device - Kobo Forma</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-miniature-powerhouse-acer-predator-triton-se-review/"><u>In-Depth Look at the Miniature Powerhouse - Acer Predator Triton 지저분하다 SE Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-of-apcs-back-ups-pro-1500va-high-wattage-multiple-connectors-and-hot-swappable-battery-packs-featured/"><u>In-Depth Review of APC's Back-UPS Pro 1500VA - High Wattage, Multiple Connectors and Hot Swappable Battery Packs Featured</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/iphone-vs-android-a-comprehensive-guide-to-choosing-your-next-phone/"><u>IPhone Vs. Android – A Comprehensive Guide to Choosing Your Next Phone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-high-end-kindle-oasis-worth-its-skyrocketing-price-a-comprehensive-review/"><u>Is the High-End Kindle Oasis Worth Its Skyrocketing Price? A Comprehensive Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-long-distance-wifi-routers-the-ultimate-guide-to-2024s-best-models/"><u>Leading Long-Distance WiFi Routers: The Ultimate Guide to 2024'S Best Models</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mapmyride-features-assessment-a-thorough-performance-check-for-fitness-enthusiasts/"><u>MapMyRide Features Assessment: A Thorough Performance Check For Fitness Enthusiasts</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/mastering-creativity-top-10-yt-reaction-hacks-for-2024/"><u>Mastering Creativity Top 10 YT Reaction Hacks for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/plating-perfection-tips-for-shooting-culinary-content-for-2024/"><u>Plating Perfection Tips for Shooting Culinary Content for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unmatched-durability-meets-personalization-inside-the-ultimate-laptop-experience-beyond-getac-tech-insights/"><u>Unmatched Durability Meets Personalization: Inside the Ultimate Laptop Experience Beyond Getac | Tech Insights</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-unlocking-youtubes-earning-potential-in-the-new-year/"><u>[New] 2024 Approved Unlocking YouTube's Earning Potential in the New Year</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-vimeo-basic-vimeo-plus-or-vimeo-pro-which-is-right-for-you-for-2024/"><u>[Updated] Vimeo Basic, Vimeo Plus or Vimeo Pro Which Is Right for You for 2024</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/abbyy-setzt-mit-der-akquisition-von-timelinepi-neue-massstabe-im-bereich-der-digitalen-transformation/"><u>ABBYY Setzt Mit Der Akquisition Von TimelinePI Neue Maßstäbe Im Bereich Der Digitalen Transformation</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-infinix-note-30-vip-racing-edition-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Infinix Note 30 VIP Racing Edition For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-economical-lenovo-chromebook-duet-the-dual-function-device-breakdown/"><u>In-Depth Review of the Economical Lenovo Chromebook Duet: The Dual-Function Device Breakdown</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/integrated-iptv-accessibility-for-2024/"><u>Integrated IPTV Accessibility for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/navigate-through-ai-jargon-discover-29-crucial-terminologies-for-tech-enthusiasts/"><u>Navigate Through AI Jargon: Discover 29 Crucial Terminologies for Tech Enthusiasts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-from-slow-to-fast-how-to-create-time-lapses-in-final-cut-pro/"><u>New In 2024, From Slow to Fast How to Create Time Lapses in Final Cut Pro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/one-connected-video-experience-joining-on-youtube-for-2024/"><u>One Connected Video Experience Joining on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/online-radio-a-timeless-choice-amidst-the-rise-of-streaming-platforms/"><u>Online Radio: A Timeless Choice Amidst the Rise of Streaming Platforms</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/potential-security-flaw-at-ticketmaster-risks-data-of-over-560-million-patrons/"><u>Potential Security Flaw at Ticketmaster Risks Data of Over 560 Million Patrons</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ps5-pro-release-on-horizon-however-many-gamers-are-happy-with-their-current-ps4-systems/"><u>PS5 Pro Release on Horizon; However, Many Gamers Are Happy with Their Current PS4 Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revamp-and-organize-your-audio-files-with-mp3tag-version-327/"><u>Revamp and Organize Your Audio Files with Mp3tag Version 3.27</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviving-a-classic-the-case-for-including-wii-u-gamepad-support-in-the-next-gen-switch-console/"><u>Reviving a Classic: The Case for Including Wii U GamePad Support in the Next-Gen Switch Console</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-gaming-a-beginners-guide-to-simple-and-effective-pc-game-modding-techniques/"><u>Revolutionize Your Gaming: A Beginner's Guide to Simple and Effective PC Game Modding Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stream-in-harmony-with-the-latest-bundled-app-for-hulu-and-disneyplus-members/"><u>Stream in Harmony with the Latest Bundled App for Hulu and Disney+ Members!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/streamlining-your-workflow-with-macs-finest-snipers-for-2024/"><u>Streamlining Your Workflow with Mac's Finest Snipers for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/surprising-truth-vintage-handheld-games-outperform-todays-phones-on-playability/"><u>Surprising Truth: Vintage Handheld Games Outperform Today’s Phones on Playability!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-advantages-of-owning-mp3-files-over-streaming-services/"><u>The Advantages of Owning MP3 Files Over Streaming Services</u></a></li>
 </ul></div>
 

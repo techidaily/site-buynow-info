@@ -1,7 +1,7 @@
 ---
 title: "Monoprice Graphics Art Pen Display Review: Affordable Quality & Features"
-date: 2024-08-19T16:21:00.120Z
-updated: 2024-08-20T16:21:00.120Z
+date: 2025-01-24T16:49:39.169Z
+updated: 2025-01-30T17:36:08.771Z
 categories:
   - BestProducts
 description: "This Article Describes Monoprice Graphics Art Pen Display Review: Affordable Quality & Features"
@@ -13,14 +13,8 @@ thumbnail: https://thmb.techidaily.com/1ccd2dbf2e6000433c361586dbc867e80efe1088f
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
 Lifewire / Jeffrey Daniel Chadwick
@@ -43,9 +37,17 @@ Lifewire / Jeffrey Daniel Chadwick
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -69,9 +71,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -101,8 +100,9 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Reliable, accurate, quick and loud**
 
  When we tested the tire inflator, we took it on a road trip that took us to the states of Nevada, Utah, Idaho, and Wyoming. Along the way, we stopped at rural rest areas and gas stations. In order to use them in the circumstances, they were designed for. Throughout it all, the Kensun Portable Tire Inflator never failed to work when we needed it.
@@ -124,14 +124,9 @@ Lifewire / Jeffrey Daniel Chadwick
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
@@ -151,8 +146,9 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  AC/DC Portable Air Pump Tire Inflator
@@ -169,8 +165,6 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -178,4 +172,24 @@ Lifewire / Jeffrey Daniel Chadwick
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-the-complete-zoom-guidebook-for-sessions-for-2024/"><u>[New] The Complete Zoom Guidebook for Sessions for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/outube-revenue-pathways-and-payments-for-2024/"><u>[New] YouTube Revenue Pathways and Payments for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-a-detailed-guide-to-extract-and-save-audio-from-popular-video-sharing-sites/"><u>[Updated] In 2024, A Detailed Guide to Extract and Save Audio From Popular Video Sharing Sites</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unveiling-the-veil-insta-story-exploration-without-trace/"><u>[Updated] Unveiling the Veil Insta Story Exploration without Trace</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/5-of-our-favorite-free-language-learning-apps-of-2024/"><u>5 of Our Favorite Free Language Learning Apps of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-apeman-c450-dashcam-examined-ideal-choice-for-cost-conscious-consumers/"><u>Affordable Apeman C450 Dashcam Examined: Ideal Choice for Cost-Conscious Consumers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-lg-24lh4830-smart-tv-quality-entertainment-at-a-great-price/"><u>Affordable LG 24LH4830 Smart TV: Quality Entertainment at a Great Price</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/crafting-a-new-reality-in-torment-a-comprehensive-guide-to-science-fiction-rpg-and-its-unique-setting-in-numenera/"><u>Crafting a New Reality in Torment: A Comprehensive Guide to Science Fiction RPG and Its Unique Setting in Numenera</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/digitalisierung-des-edinburgher-koniglichen-botanischen-gartens-mit-abbyy-eine-innovation-im-bereich-der-pflanzenwissenschaften/"><u>Digitalisierung Des Edinburgher Königlichen Botanischen Gartens Mit ABBYY: Eine Innovation Im Bereich Der Pflanzenwissenschaften</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-smartphone-review-why-the-google-pixel-4a-might-be-perfect-for-you/"><u>Essential Smartphone Review: Why the Google Pixel 4a Might Be Perfect for You</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-the-new-apple-ipad-os-changes-the-game-a-deep-dive-into-enhanced-efficiency/"><u>How the New Apple iPad OS Changes the Game: A Deep Dive Into Enhanced Efficiency</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-honor-x50iplus-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Honor X50i+ to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/new-era-in-smart-home-tech-an-in-depth-review-of-the-fourth-generation-echo-dot/"><u>New Era in Smart Home Tech: An In-Depth Review of the Fourth Generation Echo Dot</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-how-to-convert-video-voice-to-text-online-for-free/"><u>New How To Convert Video Voice to Text Online for Free?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/revolutionize-unboxing-on-instagram-a-guide-to-popularity-for-2024/"><u>Revolutionize Unboxing on Instagram A Guide to Popularity for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tech-upgrade-for-superior-laptop-graphics/"><u>Tech Upgrade for Superior Laptop Graphics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-online-arena-of-nhl-19-an-intriguing-gaming-journey-unveiled/"><u>The Online Arena of NHL 19: An Intriguing Gaming Journey Unveiled</u></a></li>
+</ul></div>
 

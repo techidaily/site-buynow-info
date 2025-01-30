@@ -1,7 +1,7 @@
 ---
 title: 5 Key Points for Savvy Shoppers Before Buying an Older Generation iPad
-date: 2024-08-11T00:03:18.873Z
-updated: 2024-08-12T00:03:18.873Z
+date: 2025-01-25T16:08:39.959Z
+updated: 2025-01-30T16:46:06.981Z
 categories:
   - BestProducts
 description: This Article Describes 5 Key Points for Savvy Shoppers Before Buying an Older Generation iPad
@@ -13,8 +13,9 @@ thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7
 [AppleCare+ is an extended warranty](https://www.lifewire.com/iphone-warranty-plus-applecare-1999284) for Apple products, including iPads, iPhones, Macs, and Apple Watches. AppleCare+ gives you some extra time to get repairs at no extra cost and around-the-clock support by chat and phone, but is it worth the extra cost?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Does AppleCare+ Work?
 
  You can buy AppleCare+ when you first get your new device, or you have a window to decide. In most regions, you have 60 days to decide. You can also choose between one and two or three years of coverage, depending on the device. You may also be able to get an ongoing plan.
@@ -47,20 +48,18 @@ thumbnail: https://thmb.techidaily.com/b5dfde40e2a9ad5275b840b5f0fbb161aac4de7d7
 
 ![iCloud on various apple devices](https://www.lifewire.com/thmb/Adwk3MSADnnF9LOmRK-gh2zCEKM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/iCloud-5804f1923df78cbc288fae54.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Apple Inc.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Does AppleCare+ Cover?
 
  Apple products typically have a one-year warranty and 90 days of technical support. AppleCare+ extends this, covering up to four years from the date of purchase, and covers hardware and technical support.
 
  It also covers up to two incidents of accidental damage. Each claim is subject to a deductible. Still, this is less than the total price of a typical repair.  
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ## The True Cost to You and Apple
 
  What are you buying with an extended warranty? The most significant benefit of AppleCare+ is coverage for accidental damage. It's unlikely you'll have a hardware failure that happens to occur in Year Two. Most hardware failures occur in the first year due to a defect or after several years of use.  
@@ -68,8 +67,9 @@ Apple Inc.
  However, you can drop your iPad and[crack the screen](https://www.lifewire.com/what-to-do-cracked-ipad-screen-4056453) anytime. If you're particularly accident-prone or use your device in a challenging environment, the coverage can buy you peace of mind.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Extended Warranty or Case
 
  An alternative to the extended warranty is a[good case for your iPad](https://www.lifewire.com/best-ipad-cases-4046942) . For example, the[Smart Case sold by Apple](https://www.apple.com/shop/ipad/accessories/cases-protection) is cheaper than the warranty and can protect an iPad if you drop it. It's also slim and form-fitting, and it wakes up the device when you open the cover. You won't notice any added bulk in size or inconvenience.
@@ -77,6 +77,10 @@ Apple Inc.
  Companies such as OtterBox and Trident also offer a variety of well-reviewed cases that are cheaper than the one-year warranty. These provide protection that ranges from the everyday, around-the-house type to rugged, waterproof options that can survive weather, mud, and larger drops.
 
  Good cases are available for iPads, iPhones, and Apple Watches. You may also find some for a MacBook, but they're less common, and you definitely won't see one for an Apple TV. These limitations may factor in to your decision to get coverage if other protection options exist.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Extended Warranty or a Jar of Money
 
@@ -89,17 +93,15 @@ Apple Inc.
 [Is AppleCare Plus Worth It? 5 Reasons Why You Should Get an Extended Warranty](https://www.lifewire.com/is-applecare-plus-worth-it-8426183)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The Kid Factor
 
  The one situation in which extended warranties may be worth their cost is when kids are involved, primarily if, for example, your[iPad is intended for those kids](https://www.lifewire.com/should-your-toddler-or-preschooler-use-an-ipad-4069908) . Even a heavy-duty case won't protect a cracked screen if a kid slams the iPad against the corner of a table.  
 
  It is still an expensive warranty, but it might protect the device until the kids are old enough not to subject it to the kinds of abuse kids typically dish out.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## The AppleCare+ Verdict
 
  Skip it. Most of us have tablets, smartphones, and other electronic devices, such as gaming consoles and laptop computers.
@@ -126,8 +128,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -135,4 +135,21 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-image-isolation-pro-eliminate-backgrounds-in-affinity/"><u>[New] Image Isolation Pro Eliminate Backgrounds in Affinity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-seamless-editing-removing-out-of-place-backgrounds/"><u>[New] Seamless Editing Removing Out-of-Place Backgrounds</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-guard-your-images-with-top-photo-watermarks/"><u>2024 Approved Guard Your Images with Top Photo Watermarks</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-methodology-for-adding-srt-in-mp4-files/"><u>2024 Approved In-Depth Methodology for Adding SRT in MP4 Files</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-nokia-c12-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Nokia C12 Phone? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/shared-sights-behind-the-memeayer-for-2024/"><u>Shared Sights Behind the Meme'ayer for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-to-control-steam-web-helpers-memory-usage/"><u>Strategies to Control Steam Web Helper's Memory Usage</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-sturdy-and-cost-effective-solution-to-holding-your-tablet-omoton-t1-reviewed/"><u>The Sturdy and Cost-Effective Solution to Holding Your Tablet - Omoton T1 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-the-ultimate-list-of-2024s-finest-17-inch-laptop-models/"><u>Top Picks: The Ultimate List of 2024'S Finest 17-Inch Laptop Models</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranked-value-pick-comprehensive-guide-to-fellowes-microban-wired-keyboard/"><u>Top-Ranked Value Pick - Comprehensive Guide to Fellowes Microban Wired Keyboard</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/transforming-your-workflow-a-review-of-the-102-inch-apple-ipad-7th-gen-ipados-the-game-changer-for-professionals/"><u>Transforming Your Workflow: A Review of the 10.2-Inch Apple iPad (7Th Gen) - IPadOS, The Game Changer for Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-selection-7-premier-platforms-for-watching-trailers-online/"><u>Ultimate Selection: 7 Premier Platforms for Watching Trailers Online</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-possible-vulnerabilities-in-chatgpt/"><u>Unveiling Possible Vulnerabilities in ChatGPT</u></a></li>
+</ul></div>
 

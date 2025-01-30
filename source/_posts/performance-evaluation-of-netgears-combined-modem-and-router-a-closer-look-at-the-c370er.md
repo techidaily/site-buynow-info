@@ -1,7 +1,7 @@
 ---
 title: "Performance Evaluation of Netgear's Combined Modem & Router: A Closer Look at the C370er"
-date: 2024-08-11T00:06:19.938Z
-updated: 2024-08-12T00:06:19.938Z
+date: 2025-01-23T16:47:02.919Z
+updated: 2025-01-30T16:15:00.489Z
 categories:
   - BestProducts
 description: "This Article Describes Performance Evaluation of Netgear's Combined Modem & Router: A Closer Look at the C370er"
@@ -14,14 +14,16 @@ thumbnail: https://thmb.techidaily.com/1a5a77b6bb8382f9ae076aba5fd29ec526a718550
 3.4
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Netgear C3700 Cable Modem Router
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear C3700](https://www.lifewire.com/thmb/HeiIUMzNfcdABm8uXby7X0Qo3dE=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Bill Thomas
 
@@ -43,11 +45,12 @@ Lifewire / Bill Thomas
 
 3.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Netgear C3700 Cable Modem Router
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear C3700](https://www.lifewire.com/thmb/CWSAqFXf9klr-Fs5mU-YkCpwF9Q=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_4082541-5-1-668cca140a8e4c1ba59c13f4f2a8d8ec.jpg)
 
 Lifewire / Bill Thomas
@@ -74,18 +77,12 @@ Lifewire / Bill Thomas
 
  We got our hands on the Netgear C3700 for testing and put it through the wringer to see whether or not it’s worth your cash, and what kind of performance you can expect.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Design: Small and inconspicuous
 
  With a device that packs[both a cable modem and a wireless router](https://www.lifewire.com/best-cable-modem-router-combos-to-buy-4082541) , you might expect the Netgear C3700 to be a bulky device, but that’s not the case. It’s actually quite small, measuring just 7.6 inches high and weighing a scant 0.77 pounds. This, combined with the low-key black finish and lack of external antennas means that it won’t stick out, no matter where you put it.
 
  This definitely works in the Netgear C3700’s favor. The[wireless performance](https://www.lifewire.com/ways-to-boost-a-wifi-signal-818296) is already weak (which we’ll go into a bit later), so the fact that you can leave it out and unobscured is a benefit.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Netgear C3700](https://www.lifewire.com/thmb/kBtdcSRxoIsQvqmnO6OVYnfZ9z8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-4-ad3408c39a524e14a6cebcce10d3be44.jpg)
 
  Lifewire / Bill Thomas
@@ -98,9 +95,6 @@ Lifewire / Bill Thomas
 
  Lifewire / Bill Thomas
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Setup: Nice and simple
 
  If you’ve ever set up a cable modem, then you’ll breeze through the setup on the C3700\. We just unplugged our existing cable modem, plugged all the cables into this new one, and waited for the lights to turn on. Then all we had to do was phone our ISP to activate it.
@@ -127,16 +121,14 @@ Lifewire / Bill Thomas
 
  Thankfully, this means that an attached router would be able to keep up, which is what we’d recommend. The wireless performance isn’t great and you’re going to have a much better experience with a separate router.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Netgear C3700](https://www.lifewire.com/thmb/lPF7EXzNUljkXFySwthTmhwRbiY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4082541-5-6-1c4a748dd9b644c39d8bd8c47180c74f.jpg)
 
  Lifewire / Bill Thomas
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Software: No frills
 
  We prefer a network backend that’s straight to the point, and that’s exactly what we got with the Netgear C3700.
@@ -146,6 +138,10 @@ Lifewire / Bill Thomas
  We were able to click over into the “advanced” tab to gain access to more robust controls, but this shouldn’t be necessary for most users. Power users will probably appreciate the fine controls.
 
  You can also download the Netgear Genie app on your phone, which allows you to manage your network from a more attractive interface. Much of the same functionality is here, but it might be a more approachable interface for those who don’t really know where to start with their router settings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Price: It pays for itself
 
@@ -166,6 +162,10 @@ Lifewire / Bill Thomas
 
 * [Motorola MG7700](https://www.lifewire.com/motorola-mg7700-review-4589346)
 * [Netgear Nighthawk C7000](https://www.lifewire.com/netgear-nighthawk-c7000-review-4686068)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -193,8 +193,6 @@ Lifewire / Bill Thomas
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +200,26 @@ Lifewire / Bill Thomas
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-superior-20-anime-song-intros/"><u>[Updated] 2024 Approved Superior 20 Anime Song Intros</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-optimal-2024-cloud-services-for-minimum-spend/"><u>[Updated] Optimal 2024 Cloud Services for Minimum Spend</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-8-most-viewed-videos-on-facebook/"><u>2024 Approved 8 Most Viewed Videos on Facebook</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-laugh-ledger-top-10-tweets-for-a-smile/"><u>2024 Approved Laugh Ledger Top 10 Tweets for a Smile</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-soundtrack-to-life-fbs-music-offerings/"><u>2024 Approved Soundtrack to Life FB's Music Offerings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-a-list-of-external-cddvd-players-expertly-curated-top-drives-for-tech-savvy-users/"><u>2024'S A-List of External CD/DVD Players: Expertly Curated Top Drives for Tech Savvy Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-comparison-of-ipad-vs-ipad-air-features/"><u>A Comprehensive Comparison of iPad Vs. IPad Air Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-your-collection-with-the-finest-external-bd-drives/"><u>Ace Your Collection with the Finest External BD Drives</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722520307450-comprehensive-analysis-of-the-antolink-antenna-at-127-exceptional-picture-quality-at-no-cost/"><u>Comprehensive Analysis of the Antolink Antenna AT-127 - Exceptional Picture Quality at No Cost!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-artful-iphone-snaps-master-these-top-10-design-tactics-for-2024/"><u>Crafting Artful iPhone Snaps - Master These Top 10 Design Tactics for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/end-of-the-line-no-more-direct3d-rendering-setbacks/"><u>End of the Line: No More Direct3D Rendering Setbacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722629809261-garmin-vivosmart-4/"><u>Garmin Vivosmart 4에 대한 평가: 신체 성능을 향상시키는 보조도구 역할, 스트레스를 관리하고 신원 지속성을 최대화합니다.</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-xiaomi-redmi-k70-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Xiaomi Redmi K70 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-se-2020ipad-drfone-by-drfone-virtual-ios/"><u>In 2024, A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone SE (2020)/iPad | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-oppo-f25-pro-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Oppo F25 Pro 5G Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722703720590-is-hewlett-packards-newly-released-15-inch-budget-laptop-equipped-for-success-investigating-its-amd-powers-and-performance/"><u>Is Hewlett-Packard’s Newly Released 15-Inch Budget Laptop Equipped for Success? Investigating Its AMD Powers and Performance.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722808430181-star-wars-squadrons-an-exciting-odyssey-into-the-heart-of-spectacular-interstellar-combat/"><u>Star Wars: Squadrons – An Exciting Odyssey Into the Heart of Spectacular Interstellar Combat.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722698679432-ultimate-battle-of-giants-samsung-galaxy-s23-ultra-versus-s21-ultra-reviewed/"><u>Ultimate Battle of Giants: Samsung Galaxy S23 Ultra Versus S21 Ultra Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722672890208-unlocking-ultimate-speed-and-connectivity-with-netgears-newest-innovation-the-ax8-wi-fi-6-mesh-extender-reviewed/"><u>Unlocking Ultimate Speed and Connectivity with Netgear's Newest Innovation: The AX8 Wi-Fi 6 Mesh Extender Reviewed</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2025-01-19T21:09:22.964Z
-updated: 2025-01-22T18:12:16.685Z
+date: 2025-01-29T17:16:56.055Z
+updated: 2025-01-30T16:02:52.785Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/4701af21fbd3236ee27b5d0a75fe2af600bece4b4
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -48,17 +44,9 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -90,17 +78,21 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -112,10 +104,14 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
@@ -126,10 +122,6 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
 
 ## **Software: Lots of options with mixed utility**
@@ -139,6 +131,10 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -168,6 +164,10 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,22 +207,19 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exposing-the-accelerating-path-of-8-youtube-content-creators/"><u>[New] 2024 Approved Exposing the Accelerating Path of 8 YouTube Content Creators</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-elevate-your-mac-broadcast-top-5-live-streaming-applications/"><u>[Updated] 2024 Approved Elevate Your Mac Broadcast Top 5 Live Streaming Applications</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-future-of-virtual-game-viewership-income/"><u>[Updated] 2024 Approved Future of Virtual Game Viewership Income</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-prime-methods-to-speed-up-or-slow-down-songs-on-spotify/"><u>[Updated] 2024 Approved Prime Methods to Speed Up or Slow Down Songs on Spotify</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-delight-in-delivery-7-upgraded-opening-ways/"><u>[Updated] In 2024, Delight in Delivery 7 Upgraded Opening Ways</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-effective-ways-share-facebook-videos-to-whatsapp/"><u>2024 Approved Effective Ways | Share Facebook Videos to WhatsApp?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-audew-portable-air-compressor-assessment-unmatched-mobility-and-dependability/"><u>Comprehensive Audew Portable Air Compressor Assessment - Unmatched Mobility & Dependability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-jaco-smartpro-digital-tire-inflator-evaluation-the-ultimate-portable-and-potent-solution/"><u>Comprehensive Jaco SmartPro Digital Tire Inflator Evaluation: The Ultimate Portable and Potent Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-ru8000-flex-series-tv-review-intelligent-display-and-stunning-visuals/"><u>Comprehensive Samsung RU8000 Flex Series TV Review - Intelligent Display & Stunning Visuals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/consider-insurance-if-youre-prone-to-accidents-or-dropping-your-devices-consider-getting-insurance-coverage-with-your-purchase-to-protect-against-accidental19/"><u>Consider Insurance: If You're Prone to Accidents or Dropping Your Devices, Consider Getting Insurance Coverage with Your Purchase to Protect Against Accidental Damage.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ddpai-mini3-review/"><u>DDpai Mini3 Review</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/direct-video-access-top-5-ways-to-transfer-igtv-content/"><u>Direct Video Access Top 5 Ways to Transfer IGTV Content</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-selection-of-mobile-guardians-discover-the-best-iphone-malware-defenders/"><u>Elite Selection of Mobile Guardians: Discover the Best iPhone Malware Defenders</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-the-best-features-of-the-high-end-garmin-forerunner-ebike-sports-watch/"><u>Expert Analysis: The Best Features of the High-End Garmin Forerunner Ebike Sports Watch</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-picks-elite-network-server-racks-and-enclosures-dominating-2024-rankings/"><u>Expert Picks: Elite Network Server Racks and Enclosures Dominating 2024 Rankings</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-realme-12-proplus-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Realme 12 Pro+ 5G</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/unrivaled-cloud-based-chat-platforms/"><u>Unrivaled Cloud-Based Chat Platforms</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-essential-steps-to-utilizing-azures-speech-to-text-service-effectively-for-2024/"><u>[New] Essential Steps to Utilizing Azure's Speech-to-Text Service Effectively for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-create-stunning-tiktok-videos-with-templates/"><u>2024 Approved How To Create Stunning TikTok Videos With Templates</u></a></li>
+<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-ipad-air-2019-review/"><u>Apple iPad Air (2019) Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/best-8-ai-tools-you-can-download-today-enhancing-your-smartphone-experience-on-any-platform/"><u>Best 8 AI Tools You Can Download Today: Enhancing Your Smartphone Experience on Any Platform</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comprehensive-guide-the-role-and-operation-of-chatgpt-shared-links/"><u>Comprehensive Guide: The Role and Operation of ChatGPT Shared Links</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/decoding-the-swedes-alphabet-and-sounds-guide/"><u>Decoding the Swedes: Alphabet & Sounds Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/mastering-the-conversion-of-smacker-video-smk-files-a-step-by-step-guide/"><u>Mastering the Conversion of Smacker Video SMK Files – A Step-by-Step Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-value-with-acer-aspire-e-15-a-thorough-budget-laptop-critique/"><u>Maximizing Value with Acer Aspire E 15 – A Thorough Budget Laptop Critique</u></a></li>
+<li><a href="https://howto.techidaily.com/play-store-not-working-on-vivo-s17-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo S17? 8 Solutions Inside | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/prime-positioner-tripod-your-portable-photography-partner/"><u>Prime Positioner Tripod: Your Portable Photography Partner</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-compact-gaming-laptop-reviewed-acers-predator/"><u>The Best Compact Gaming Laptop Reviewed: Acer's Predator</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unearthing-the-potential-a-thorough-google-pixel-4a-android-masterclass/"><u>Unearthing the Potential: A Thorough Google Pixel 4a Android Masterclass</u></a></li>
 </ul></div>
 

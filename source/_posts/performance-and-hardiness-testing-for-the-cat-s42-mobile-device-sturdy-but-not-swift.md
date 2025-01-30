@@ -1,7 +1,7 @@
 ---
 title: "Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
-date: 2025-01-22T01:07:23.276Z
-updated: 2025-01-22T16:05:30.324Z
+date: 2025-01-24T17:38:33.435Z
+updated: 2025-01-30T16:35:17.550Z
 categories:
   - BestProducts
 description: "This Article Describes Performance and Hardiness Testing for the CAT S42 Mobile Device: Sturdy but Not Swift"
@@ -44,6 +44,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Just Buy This (All Around Best)
 
 [Apple Watch Series 9 GPS + Cellular 45mm](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656)
@@ -55,10 +59,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$457 at Amazon](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656) [$439 at Walmart](https://www.walmart.com/ip/Apple-Watch-Series-9-GPS-45mm-Pink-Aluminum-Case-with-Light-Pink-Sport-Band-S-M/5032289284) [$429 at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fapple-watch-series-9-gps-45mm-midnight-aluminum-case-with-midnight-sport-band-m-l-midnight%2F6340284.p%3FskuId%3D6340284)
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -108,7 +108,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why We Recommend This
@@ -141,6 +141,10 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **Who else recommends it?** TechRadar, BuzzFeed, PCMag, T3, Tom’s Guide, and Digital Trends all recommend the Samsung Galaxy Watch 6\.
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Easiest on the Budget
 
 [Garmin Vivoactive 5](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
@@ -152,10 +156,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [$267 at Amazon](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
 
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Why We Recommend This
 
@@ -190,7 +190,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Garmin Vivoactive 5 has over 1,800 ratings on Amazon, with 76% of them rating it five or four stars. Its average rating is 4.4 out of 5.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How We Test
@@ -220,7 +220,7 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
@@ -258,20 +258,24 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-unveiling-the-elite-video-cameras-for-2-point-zero-four-two/"><u>[New] 2024 Approved Unveiling the Elite Video Cameras for 2 Point Zero Four Two</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ubscribers-on-a-shoestring-grow-your-channel-fast/"><u>[New] Subscribers on a Shoestring Grow Your Channel Fast</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-balancing-width-and-height-for-ultimate-videography/"><u>[Updated] 2024 Approved Balancing Width and Height for Ultimate Videography</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-pinnacle-ai-transcribers-for-speech/"><u>[Updated] Pinnacle AI Transcribers for Speech</u></a></li>
-<li><a href="https://windows11.techidaily.com/cutting-edge-windows-11-shortcut-personalization-techniques/"><u>Cutting-Edge Windows 11 Shortcut Personalization Techniques</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/decoding-script-annotations-slug-lines-explained/"><u>Decoding Script Annotations Slug Lines Explained</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/green-internet-alert-zdnet-reveals-most-polluting-urls-and-their-environmental-toll-ranked-from-worst-to-less-damaging/"><u>Green Internet Alert: ZDNet Reveals Most Polluting URLs and Their Environmental Toll, Ranked From Worst to Less Damaging</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/guide-to-completely-erase-data-on-iphone-15-pro-max-to-avoid-privacy-leak-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Guide to Completely Erase Data on iPhone 15 Pro Max to Avoid Privacy Leak | Stellar</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-tutorial-on-utilizing-the-arlo-surveillance-network/"><u>Step-by-Step Tutorial on Utilizing the Arlo Surveillance Network</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-balanced-approach-to-smartphones-a-thorough-review-of-the-new-apple-iphone-se-2/"><u>The Balanced Approach to Smartphones: A Thorough Review of the New Apple iPhone SE (2#)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-most-advanced-workout-trackers-on-the-market/"><u>The Most Advanced Workout Trackers on the Market</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-mesh-wi-fi-solutions/"><u>Top Rated Mesh Wi-Fi Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-performing-asus-wireless-routers-reviewed-2024-edition/"><u>Top-Performing ASUS Wireless Routers Reviewed: 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-document-and-photo-scanners-in-2e24/"><u>Top-Rated Document & Photo Scanners in 2E24</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tp-link-archer-c80-evaluated-delivering-rapid-connectivity-for-less-than-a-hundred-dollars/"><u>TP-Link Archer C80 Evaluated: Delivering Rapid Connectivity for Less Than a Hundred Dollars</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-ideal-pc-recording-software-for-windows-enthusiasts-for-2024/"><u>[Updated] Ideal PC Recording Software for Windows Enthusiasts for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-overlooked-marvels-free-transcription-tools-for-macos/"><u>[Updated] Overlooked Marvels Free Transcription Tools for macOS</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-unlock-multi-window-video-experience-in-edge/"><u>2024 Approved Unlock Multi-Window Video Experience in Edge</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/winx-dvd-ripperhd/"><u>官方WinX 下載平台：免費DVD Ripper及HD影片編解碼工具</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-basics-tablet-accessory-a-game-changer-for-mobile-device-enthusiasts/"><u>Amazon Basics Tablet Accessory: A Game-Changer for Mobile Device Enthusiasts</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/discover-superior-audio-performance-with-our-detailed-midland-gxt1000vp4-test-drive/"><u>Discover Superior Audio Performance with Our Detailed Midland GXT1000VP4 Test Drive</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-experience-embracing-enjoyment-in-pokemon-shining-pearl/"><u>Elevating Your Experience: Embracing Enjoyment in 'Pokemon Shining Pearl'</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ensuring-optimal-pet-health-an-in-depth-look-at-petsafes-automatic-weight-control-feeder/"><u>Ensuring Optimal Pet Health: An In-Depth Look at PetSafe's Automatic Weight Control Feeder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-the-latest-a-hands-on-review-of-the-newly-unveiled-iphone-15-pro/"><u>Experiencing the Latest: A Hands-On Review of the Newly Unveiled iPhone 15 Pro</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-location-on-facebook-dating-for-your-honor-90-pro-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-with-pen-feature-budget-friendly-smartphone-with-a-built-in-stylus/"><u>Moto G with Pen Feature: Budget-Friendly Smartphone with a Built-In Stylus</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/photo-perfection-erasing-with-ease-in-photoshop/"><u>Photo Perfection Erasing with Ease in Photoshop</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/pros-picks-elevating-gaming-broadcast-with-top-5-cam-tech/"><u>Pro's Picks Elevating Gaming Broadcast with Top 5 Cam Tech</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-2evolution-behind-the-creative-sound-blaster-zxr-expert-insight-on-the-2013-audio-powerhouse/"><u>The 2Evolution Behind the Creative Sound Blaster ZxR - Expert Insight on the 2013 Audio Powerhouse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-is-here-with-xbox-series-x-a-game-changer-in-high-definition-gaming/"><u>The Future Is Here with Xbox Series X: A Game Changer in High Definition Gaming</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-game-changing-eighth-generation-102-apple-ipad-review-when-high-quality-meets-savings/"><u>The Game-Changing Eighth Generation 10.2 Apple iPad Review - When High Quality Meets Savings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-review-of-the-microsoft-sculpt-ergonomic-keyboard-excellent-for-your-wallet-and-wrists/"><u>Top-Rated Review of the Microsoft Sculpt Ergonomic Keyboard: Excellent for Your Wallet and Wrists!</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/transform-your-low-profile-keyboard-setup-the-ultimate-comfort-addition-for-just-11-featuring-logitechs-mx-palm-rest/"><u>Transform Your Low-Profile Keyboard Setup: The Ultimate Comfort Addition for Just $11 – Featuring Logitech's MX Palm Rest</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-honor-magic-vs-2-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Honor Magic Vs 2.</u></a></li>
 </ul></div>
 

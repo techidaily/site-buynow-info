@@ -1,7 +1,7 @@
 ---
 title: "Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
-date: 2025-01-22T00:07:00.091Z
-updated: 2025-01-22T17:35:33.485Z
+date: 2025-01-25T16:44:37.219Z
+updated: 2025-01-30T16:36:00.058Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/4494210181b361ed33c42bb9503adb4d12c1be013
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/VaOshLbjt_41gksIyYfg24DF6KM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -51,10 +47,6 @@ Lifewire / Andy Zahn
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -98,9 +90,17 @@ Lifewire / Andy Zahn
 
  For such a thin laptop, there’s a surprising amount of ports included with the Book 13\. You get 4[Thunderbolt ports](https://www.lifewire.com/what-is-thunderbolt-832713) , a USB type-A port,[HDMI port](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) , a microSD slot, and a 3.5mm headphone/microphone combo port. Such a versatile array of inputs is not to be taken for granted these days, and is a big point in the Book 13’s favor.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Setup Process: Very straightforward
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Display: Positively stunning
 
@@ -109,10 +109,6 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Lean and mean
 
@@ -139,7 +135,7 @@ Lifewire / Andy Zahn
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Battery: Juice for the day
@@ -149,13 +145,13 @@ Lifewire / Andy Zahn
 ![Razer Book 13](https://www.lifewire.com/thmb/6yYQ1e8vR0Ldvs2GP61CrvFy3zg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_05-1c8a8e1bdd78413fb72cc6307a07ea40.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Audio: Big sound for a small laptop
@@ -167,6 +163,10 @@ Lifewire / Andy Zahn
 Lifewire / Andy Zahn
 
  It’s particularly good in the mids and highs, but as you’d expect, loses something in the bass range. However, it’s more than adequate for listening to music, gaming, or watching movies.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Camera: Competent webcam
 
@@ -199,7 +199,7 @@ Lifewire / Andy Zahn
 * [Razer Blade 15](https://www.lifewire.com/razer-blade-15-review-4845229)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -234,21 +234,24 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-mp3-recording-made-simple-with-skype-for-free/"><u>[New] In 2024, MP3 Recording Made Simple with Skype for FREE</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-premier-ios-choice-best-emulators-of-psp-games/"><u>[Updated] 2024 Approved Premier iOS Choice Best Emulators of PSP Games</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/face-obscuring-made-easy-expert-video-editing-solutions-for-2024/"><u>Face Obscuring Made Easy Expert Video Editing Solutions for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-12-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock iPhone 12 Without Passcode? 4 Easy Methods</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-tecno-pova-6-pro-5g-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Tecno Pova 6 Pro 5G Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-offline-android-delights-9-most-addictive-mobile-games/"><u>In 2024, Offline Android Delights 9 Most Addictive Mobile Games</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/investigating-financial-gains-from-product-reviews/"><u>Investigating Financial Gains From Product Reviews</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-through-numenera-a-riveting-review-of-torment-the-ultimate-sci-fi-worldbuilding-adventure/"><u>Navigating Through Numenera: A Riveting Review of Torment, The Ultimate Sci-Fi Worldbuilding Adventure</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/navigating-vietnam-with-essential-vocabulary/"><u>Navigating Vietnam with Essential Vocabulary</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgear-nighthawk-x6s-wi-fi-extender-a-more-robust-extender/"><u>Netgear Nighthawk X6S Wi-Fi Extender: A More Robust Extender</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/next-gen-vs-mid-gen-console-dilemma-ps5ps4-pro-analysis/"><u>Next Gen vs Mid-Gen Console Dilemma: PS5/PS4 Pro Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premier-at-home-weather-sensors-a-comparative-guide-to-the-best-of-2-groceries/"><u>Premier At-Home Weather Sensors: A Comparative Guide to the Best of 2 Groceries</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/prepare-your-device-for-apples-ventura-system-transition/"><u>Prepare Your Device for Apple's Ventura System Transition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/print-ready-tips-how-to-prepare-digital-art-in-photoshop/"><u>Print Ready Tips: How to Prepare Digital Art in Photoshop</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ideal-accessory-companion-list-for-your-apple-device-experience/"><u>The Ideal Accessory Companion List for Your Apple Device Experience</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/watermark-free-video-editing-top-10-online-tools-you-need/"><u>Watermark-Free Video Editing Top 10 Online Tools You Need</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-how-to-use-voicemod-on-discord/"><u>[Updated] 2024 Approved How To Use Voicemod On Discord</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-journey-through-time-a-comprehensive-guide-on-scanning-and-storing-old-prints/"><u>[Updated] 2024 Approved Journey Through Time A Comprehensive Guide on Scanning and Storing Old Prints</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-tickletech-design-easy-entertaining-visuals/"><u>2024 Approved TickleTech Design Easy, Entertaining Visuals</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/m1vmp4/"><u>簡単な手順でM1VデータをMP4形式にしてください</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canon-powershot-sx420-review-42x-optical-zoom-in-a-compact-camera/"><u>Canon PowerShot SX420 Review: 42X Optical Zoom in a Compact Camera</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-netgear-orbi-rbs50y-for-outdoor-home-networking/"><u>Comprehensive Analysis of Netgear Orbi RBS50Y for Outdoor Home Networking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-apples-innovation-the-imac-with-m1-a-comprehensive-performance-overview/"><u>Exploring Apple's Innovation: The IMac with M1 - A Comprehensive Performance Overview</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-pixel-4a-5g-comprehensive-assessment-of-a-budget-friendly-android-marvel/"><u>Google Pixel 4a 5G - Comprehensive Assessment of a Budget-Friendly Android Marvel</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-xs-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>How To Unlock Apple iPhone XS Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-acquire-and-setup-windows-xp-movie-creator/"><u>In 2024, Acquire & Setup Windows XP Movie Creator</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/mastering-ebooks-on-amazon-kindle-comprehensive-guide-to-compatible-formats/"><u>Mastering eBooks on Amazon Kindle: Comprehensive Guide to Compatible Formats</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigate-and-conquer-with-fitbit-versa-3-embrace-the-power-of-inbuilt-gps-plus-health-apps-for-unmatched-exercise-motivation/"><u>Navigate & Conquer with Fitbit Versa 3 - Embrace the Power of Inbuilt GPS + Health Apps for Unmatched Exercise Motivation</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/rethinking-gameplay-mavic-air-versus-spark-showdown-for-2024/"><u>Rethinking Gameplay Mavic Air Versus Spark Showdown for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-upgrading-32-bit-win10-to-64-bit/"><u>Step-by-Step Guide: Upgrading 32-Bit Win10 to 64-Bit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-hp-zbook-firefly-15-g8-portable-powerhouse-reviewed/"><u>The Ultimate Guide to the HP ZBook Firefly 15 G8: Portable Powerhouse Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-the-6-leading-antivirus-solutions-for-ios-devices/"><u>Ultimate Guide: The 6 Leading Antivirus Solutions for iOS Devices</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/understanding-active-data-replication-in-small-enterprises-a-look-at-synology-solutions-and-top-substitutes/"><u>Understanding Active Data Replication in Small Enterprises: A Look at Synology Solutions and Top Substitutes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-flip-side-of-chatgpt-plus/"><u>Unveiling the Flip Side of ChatGPT Plus</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/waterproof-wonder-the-nikon-w100-reviewed/"><u>Waterproof Wonder: The Nikon W100 Reviewed</u></a></li>
 </ul></div>
 

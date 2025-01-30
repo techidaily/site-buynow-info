@@ -1,7 +1,7 @@
 ---
 title: "A Critical Look at the Microsoft Surface Duo: Battling with Performance, Costly Design Flaws and Glitches"
-date: 2024-08-11T00:03:39.611Z
-updated: 2024-08-12T00:03:39.611Z
+date: 2025-01-28T17:46:43.521Z
+updated: 2025-01-30T16:01:53.638Z
 categories:
   - BestProducts
 description: "This Article Describes A Critical Look at the Microsoft Surface Duo: Battling with Performance, Costly Design Flaws and Glitches"
@@ -39,9 +39,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 [Jump to Review](https://www.lifewire.com/#toc-easiest-on-the-budget-garmin-vivoactive-5)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Just Buy This (All Around Best)
 
 [Apple Watch Series 9 GPS + Cellular 45mm](https://www.amazon.com/Apple-Cellular-Smartwatch-Midnight-Aluminum/dp/B0CHXFH656?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CHXFH656)
@@ -54,9 +51,6 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 
 **TL;DR:** Highly customizable for any situation, simple to use, and regularly updated, the Apple Watch Series 9 is the one to beat.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why We Recommend This
 
  I’ve been using Apple Watches since they first launched in 2015\. Over the years, the format has been refined, and the Apple Watch Series 9 is easily the best yet for most people.
@@ -93,8 +87,9 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 * **What do buyers think?** The Apple Watch Series 9 has over 2,400 ratings on Amazon, with 83% of those giving the watch five stars for an average rating of 4.7 out of 5.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Android Smartwatch
 
 [Samsung Galaxy Watch 6](https://www.amazon.com/SAMSUNG-Bluetooth-Smartwatch-Personalized-Advanced/dp/B0C792QRW6/?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0C792QRW6)
@@ -108,12 +103,9 @@ The best smartwatches balance beauty and practicality, so you can proudly wear t
 **TL;DR:** Sleek and stylish, the Samsung Galaxy Watch 6 has some great features provided you’re an Android phone owner. Its body composition tool is a particular highlight.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  The Samsung Galaxy Watch 6 looks and feels lovely to use. Its circular watch face feels more natural than the angular edges of the Apple Watch. The AMOLED screen lights up nicely but in a warm and inviting way rather than harsh.
@@ -144,9 +136,6 @@ No advertising on the website.
 * **Who else recommends it?** TechRadar, BuzzFeed, PCMag, T3, Tom’s Guide, and Digital Trends all recommend the Samsung Galaxy Watch 6\.
 * **What do buyers think?** The Samsung Galaxy Watch 6 has over 3,900 ratings on Amazon, with 88% of those rating the watch either five or four stars. The overall average rating is 4.5 out of 5.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Easiest on the Budget
 
 [Garmin Vivoactive 5](https://www.amazon.com/Garmin-v%C3%ADvoactive-Fitness-Smartwatch-Display/dp/B0CG6NR413?tag=lifewire-onsite-prod-20&ascsubtag=8681634%7Cn8ba5509124b34540838774b103ec3bdb16%7CB0CG6NR413)
@@ -160,8 +149,9 @@ No advertising on the website.
 **TL;DR:** More affordable than most Garmin watches, the Garmin Vivoactive 5 offers all the key features while not looking too sporty.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Why We Recommend This
 
  A Garmin Watch is the dream for active types, but they often cost a lot and rarely look great when fine dining. The Garmin Vivoactive 5 is an affordable option that won’t look too out of place while out to impress.
@@ -208,6 +198,10 @@ No advertising on the website.
 
  I used all the devices for several weeks, with some smartwatches used for months. I wore them daily while working, exercising, relaxing, and asleep.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What to Look For
 
  Buying a smartwatch involves finding the right balance between looks and practicality. Consider where you plan on wearing it, such as in the office or when walking, and plan accordingly.
@@ -219,6 +213,10 @@ No advertising on the website.
 [The Best Running Watches of 2024](https://www.lifewire.com/best-running-watches-8681631)
 
 [The Best Fitness Trackers of 2024](https://www.lifewire.com/best-fitness-trackers-8656291)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Other Smartwatches We Reviewed
 
@@ -246,8 +244,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -255,4 +251,22 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-perfecting-videos-a-premier-editor-for-vimeo-professionals/"><u>[Updated] 2024 Approved Perfecting Videos A Premier Editor for Vimeo Professionals</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-tips-for-dynamic-and-engaging-video-covers-on-the-worlds-largest-social-media-network-for-2024/"><u>[Updated] Tips for Dynamic & Engaging Video Covers on the World's Largest Social Media Network for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-infographic-inquiry-unraveling-the-stats-of-yt-2017/"><u>2024 Approved Infographic Inquiry! Unraveling the Stats of YT (2017)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-internet-coverage-in-every-corner-of-your-household-using-the-amplifi-hd-wireless-system-a-complete-review/"><u>Boosting Internet Coverage in Every Corner of Your Household Using the Amplifi HD Wireless System - A Complete Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/breaking-down-the-corsair-one-pro-your-go-to-guide-for-a-superior-gaming-experience/"><u>Breaking Down the Corsair One Pro - Your Go-To Guide for a Superior Gaming Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/capturing-focus-with-leading-lines-in-iphone-images-for-2024/"><u>Capturing Focus with Leading Lines in iPhone Images for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/capturing-life-underwater-insta360-x2-reviewed/"><u>Capturing Life Underwater: Insta360 X2 Reviewed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-powerhouses-feature-by-feature-s24-and-s23-ultra-comparison/"><u>Choosing Between Powerhouses: Feature-by-Feature S24 and S23 Ultra Comparison</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-light-and-compact-lenovo-thinkpad-x1-nano/"><u>Comprehensive Review of the Light and Compact Lenovo ThinkPad X1 Nano</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-test-of-the-dell-inspiron-3671-unveiling-a-competent-average-desktop-system/"><u>Comprehensive Test of the Dell Inspiron #3671: Unveiling a Competent, Average Desktop System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/core-considerations-before-acquiring-a-dash-video-recorder/"><u>Core Considerations Before Acquiring a Dash Video Recorder</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-note-50-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme Note 50 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/secure-your-apple-vision-pro-with-vpn-a-comprehensive-installation-guide-and-advantages/"><u>Secure Your Apple Vision Pro with VPN: A Comprehensive Installation Guide and Advantages</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/transform-your-pet-care-routine-with-our-labor-day-deal-on-innovative-automatic-cat-litter-zdnet-tech-reviews/"><u>Transform Your Pet Care Routine with Our Labor Day Deal on Innovative Automatic Cat Litter! | ZDNet Tech Reviews</u></a></li>
+</ul></div>
 
