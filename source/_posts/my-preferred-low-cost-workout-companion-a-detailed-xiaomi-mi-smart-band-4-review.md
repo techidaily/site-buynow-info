@@ -1,7 +1,7 @@
 ---
 title: My Preferred Low-Cost Workout Companion – A Detailed Xiaomi Mi Smart Band 4 Review
-date: 2024-08-26T06:24:57.610Z
-updated: 2024-08-27T06:24:57.610Z
+date: 2025-02-10T19:13:32.916Z
+updated: 2025-02-11T17:05:14.617Z
 categories:
   - BestProducts
 description: This Article Describes My Preferred Low-Cost Workout Companion – A Detailed Xiaomi Mi Smart Band 4 Review
@@ -13,15 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/lWDkaNRnDn1kI-ZglN_-1NSj-lo=/400x300/fi
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Escort Max360 Laser Radar Detector with GPS
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Escort Max 360 Laser Radar Detector with GPS](https://www.lifewire.com/thmb/bHImXEngi7QSN1OMNbWkeW9b1l8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_Max360_0Herosquare-0cdd5b712ef0409cb0263171b30f3935.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Todd Braylor
 
@@ -43,11 +41,12 @@ Lifewire / Todd Braylor
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Escort Max360 Laser Radar Detector with GPS
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Escort Max 360 Laser Radar Detector with GPS](https://www.lifewire.com/thmb/rDfi4btEBU-ni64IstBVGoFaaE0=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Escort_RadarDetectors_Max360_0Herosquare-0cdd5b712ef0409cb0263171b30f3935.jpg)
 
 Lifewire / Todd Braylor
@@ -71,9 +70,6 @@ Lifewire / Todd Braylor
 
  The Escort Max360 is a top of the line radar detector with a wide range of advanced features, including GPS capabilities, 360-degree protection, and IVT filter capabilities. Let’s take a closer look at the true performance of this premiere radar detector.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Design: Big and heavy**
 
  The Escort Max360 is the biggest and heaviest radar detector I've tested. This is probably the first thing you'll notice right out of the box. The model comes with a single suction cup windshield mount that felt secure despite the unit's weight. A magnet secures the mounting arm bracket when latched in place on the radar detector, preventing any tumbles from bumps in the road.
@@ -88,6 +84,10 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Update and install**
 
  The Max360 is easy to set up and start using. It's recommended you update the detector's firmware on a PC before using (the Max360 is not compatible with Mac). The Max360 has a mini USB port to connect to a PC but inconveniently there is no USB cable provided. The SmartCord DC power adapter for the Max 360 also has a USB port on it. Additionally, the SmartCord is designed with a handy control button that allows drivers to mark and mute alerts without having to reach over the dash to press buttons on the unit itself.
@@ -95,6 +95,10 @@ The biggest and heaviest radar detector I've tested.
  Once updated and installed in your vehicle, customizing the Max360's settings is more straightforward. There are advanced and novice modes on the Max360 for customizing features or using factory default settings, respectively. You can customize a range of settings from different advanced alert band Meter Mode displays and detector sensitivity to alert tone volume and four display colors to match your car's dash display; blue, green, red, or amber.
 
  Lifewire / Todd Braylor
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Range: Mediocre Ka-band**
 
@@ -106,9 +110,6 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **Performance: Advanced multi-features**
 
  The Max360 has a solid range of advanced features to help you get the most out of this product, starting with its color OLED display. The screen is easy to see in all conditions and shows you helpful information like detection signal strength, current speed and posted speed limit (via GPS data).
@@ -119,15 +120,16 @@ The biggest and heaviest radar detector I've tested.
 
  Lifewire / Todd Braylor
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Too expensive**
 
  The Escort Max 360 is quite pricey at $550 MSRP. This is a quality radar detector in terms of user experience, but the overall value is subpar. I appreciate Escort's inclusion of advanced filtering capabilities but the Max360's relatively short range Ka-band detection falls short of expectations for a $500+ product.
 
  This is a quality radar detector in terms of user experience, but the overall value is subpar.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ## **Escort Max 360 Radar Detector vs. Radenso Pro M Radar Detector**
 
  Let's compare the Max 360 to a popular competitor model that's about a hundred bucks cheaper. The Radenso Pro M Radar Detector is a high-end model with an MSRP of $450\. The Pro M is designed with an equivalent level of advanced technology; it features GPS capabilities, IVT filtering, long-range detection, and red light and speed camera alerts. The major difference between these models is user experience. The Radenso Pro M has a stripped-down design with a much cheaper (albeit high-intensity) single color LED display and no mute button on its DC power adapter. If these are the features you think you can live without, this model can save you some cash.
@@ -158,8 +160,6 @@ The biggest and heaviest radar detector I've tested.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +167,22 @@ The biggest and heaviest radar detector I've tested.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-the-definitive-guide-to-srt-editing-on-mac/"><u>[New] 2024 Approved The Definitive Guide to SRT Editing on Mac</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-deciphering-the-art-of-reversed-visual-searches-online-fb/"><u>[New] In 2024, Deciphering the Art of Reversed Visual Searches Online (FB)</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-disguise-techniques-in-picart/"><u>[Updated] 2024 Approved Disguise Techniques in PicArt</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-native-chrome-os-screen-replay-app/"><u>2024 Approved Native Chrome OS Screen Replay App</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/alexa-simplified-space-saving-comprehensive-insights-into-the-new-echo-dot-3rd-gen-review/"><u>Alexa Simplified, Space Saving: Comprehensive Insights Into the New Echo Dot (3Rd Gen) Review.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-echo-dot-vs-apple-homepod-mini-a-comprehensive-review/"><u>Amazon Echo Dot Vs. Apple HomePod Mini: A Comprehensive Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/asus-chromebook-c202sa-a-comprehensive-student-and-kid-friendly-device-guide/"><u>Asus Chromebook C202SA - A Comprehensive Student & Kid-Friendly Device Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-streaming-devices-in-depth-analysis-and-review-of-roku-versus-fire-tv-stick-options/"><u>Best Streaming Devices : In-Depth Analysis and Review of Roku versus Fire TV Stick Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-images-like-never-before-experience-canons-sx70-hs/"><u>Dive Into Images Like Never Before - Experience Canon's SX70 HS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-unmatched-performance-with-the-hp-omen-obelisk-a-comprehensive-review/"><u>Experience Unmatched Performance with the HP Omen Obelisk - A Comprehensive Review</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-xiaomi-redmi-note-13-proplus-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Xiaomi Redmi Note 13 Pro+ 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/navigating-chatgpts-current-suspension-unveiling-the-reasons-and-anticipated-return-windows/"><u>Navigating ChatGPT's Current Suspension: Unveiling the Reasons and Anticipated Return Windows.</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimal-monitors-at-165hz-fps/"><u>Optimal Monitors at 165Hz FPS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-philips-hf3520-an-economical-and-functional-timepiece-choice/"><u>Reviewing the Philips HF3520: An Economical and Functional Timepiece Choice</u></a></li>
+</ul></div>
 

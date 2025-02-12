@@ -1,7 +1,7 @@
 ---
 title: The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
-date: 2025-01-25T16:39:47.521Z
-updated: 2025-01-30T16:25:29.249Z
+date: 2025-02-05T18:03:00.519Z
+updated: 2025-02-11T20:37:22.007Z
 categories:
   - BestProducts
 description: This Article Describes The Pros and Cons of Using a CAT S42 Resilient Phone - Reliable Durability, Not So Much for Velocity
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/zoSakt2DeEHvZbIU0RNWljw5x0A=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
@@ -51,6 +51,10 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 ## DBPOWER 600A Peak 18000mAh Portable Car Jump Starter
 
 ![600A Peak 18000mAh Portable Car Jump Starter](https://www.lifewire.com/thmb/lCHc739SU7lyQkMIbG0aNWYsqy8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/DBPower_JumpStarter_5LW4140286_HeroSquare-4defda07335a4d7bafb41bb20cacee2f.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Tony Mitera
 
@@ -85,6 +89,10 @@ thumbnail: https://www.lifewire.com/thmb/6-p5ewDjPncMceqeBCrB17zrpa8=/400x300/fi
 
  The accessory kit contains a wall charger and a 12V port charger for the unit, a DC cable, and a variety of ends to allow for charging a laptop. The jumper cables sprout from a module that plugs into a specific port on the unit and terminate in your standard clamps. The module itself has a status light that illuminates to indicate the unit’s readiness to jump start the car.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: The cables are short but easy to use**
 
  It's a breeze using the 600A to jump start a car. You plug the jumper cable module into the unit, which will cause its module light to flash green, then connect the red clamp to the positive terminal on your car’s battery and the black clamp to the negative terminal which will cause the module light to illuminate solid green. With our test vehicle it was a little difficult to get the clamps on the negative terminal as they are a little large, and the cables themselves are on the short side. With the clamps in position all that is left is to start the car and remove the clamps in reverse order.
@@ -93,6 +101,10 @@ It's a breeze using the 600A to jump start a car.
 
  If it’s other devices that need power, you simply need to turn the unit on and then plug them into the appropriate port. For a laptop, that means you must pick the correct adapter, use the power button to switch the unit to the right power mode for your laptop, and plug it into the DC power port. For a phone or other USB device you pretty much just need to pick one of the two ports and plug in, though the smart port provides better amperage and faster charging.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Performance: Immediate power to get you back on the road**
 
  When it comes to its ability to provide power, the DBPOWER Portable Jump Starter doesn’t disappoint. It reliably started a 2011 Hyundai Elantra that had a battery depleted down to 10V with zero issues, multiple times. With as small as it is, we did have some (thankfully unfounded) concerns that the unit might slide down into the engine bay as soon as the engine started.
@@ -100,10 +112,6 @@ It's a breeze using the 600A to jump start a car.
  Lifewire / Tony Mitera
 
  Charging USB devices is not only simple but fast as well, with a sustained 1,200 mAh current. This level of charging will top off your devices in a hurry, and with 18,000 mAh capacity the unit should be able to charge a phone like the Samsung Galaxy S10 five times over. Be aware that if your phone uses a USB-C or Thunderbolt connection you’ll need to provide your own cable.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Key Features: A decent flashlight and, oddly, a compass**
 
@@ -117,17 +125,9 @@ It packs a ton of value into its diminutive size.
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A low cost for such a feature-packed jump starter**
 
  You can find this model available online for between $70 and $75, and at that price point it packs a ton of value into its diminutive size. There are other units that are a little less expensive, but generally at the expense of some features or included accessories.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Splitting hairs on what features matter most to you**
 
@@ -144,7 +144,7 @@ It packs a ton of value into its diminutive size.
  It’s worth looking at other jump starters to see what they offer, but the DBPOWER 600A Peak 18000mAh Portable Car Jump Starter does everything that it's designed for quite well, is reliable and durable, and comes in a semi-hard case that you can easily stash in just about any vehicle.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specs
@@ -178,22 +178,24 @@ It packs a ton of value into its diminutive size.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-champion-toolkit-10-budget-friendly-caption-extractors/"><u>[New] Champion Toolkit 10 Budget-Friendly Caption Extractors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/applecare-plus-essentials-top-5-reasons-to-sign-up-for-it/"><u>AppleCare Plus Essentials: Top 5 Reasons to Sign Up for It</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-e-readers-and-tablets-the-key-differences-between-kindle-and-fire/"><u>Comparing E-Readers and Tablets: The Key Differences Between Kindle and Fire</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-11-pro-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 11 Pro?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Vivo Y77t? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-boot-settings-a-comprehensive-tutorial-for-windows-107-users/"><u>Mastering Boot Settings: A Comprehensive Tutorial for Windows 10/7 Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mesh-wireless-justifiable-expenses/"><u>Mesh Wireless: Justifiable Expenses?</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-how-to-add-emojis-to-discord-on-desktop-computer-and-mobile-for-2024/"><u>New How to Add Emojis To Discord on Desktop Computer and Mobile for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Nokia C12 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/realtek-usb-card-reader-software-and-driver-downloads-for-win10/"><u>Realtek USB Card Reader Software & Driver Downloads for Win10</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/senso-activbuds-wireless-headphones-review/"><u>Senso ActivBuds Wireless Headphones Review</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-fixes-for-unsuccessful-windows-resource-protection-actions/"><u>Step-by-Step Fixes for Unsuccessful Windows Resource Protection Actions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-asus-zenwifi-xt8-ax6600-test-run-comprehensive-guide-to-advanced-mesh-wi-fi-systems/"><u>The ASUS ZenWiFi XT8 AX6600 Test Run: Comprehensive Guide to Advanced Mesh Wi-Fi Systems</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/troubleshooting-voice-chat-problems-for-multiplayer-games-valorant/"><u>Troubleshooting Voice Chat Problems for Multiplayer Games (Valorant)</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-high-quality-styli-for-ipads/"><u>Ultimate Guide to Choosing High-Quality Styli for iPads</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-samsung-galaxy-s20-fe-with-5g-the-perfect-choice-for-tech-enthusiasts/"><u>Ultimate Guide to the Samsung Galaxy S20 FE with 5G - The Perfect Choice for Tech Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-logitech-c920-pro-hd-webcam-unveiling-true-high-definition/"><u>Ultimate Guide: Logitech C920 Pro HD Webcam - Unveiling True High-Definition</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-optimized-techniques-for-capturing-win10-games/"><u>[New] 2024 Approved Optimized Techniques for Capturing Win10 Games</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-capture-creativity-speedy-drawing-techniques-for-windows-photo-editor-for-2024/"><u>[New] Capture Creativity Speedy Drawing Techniques for Windows Photo Editor for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-remove-background-noise-from-your-youtube-video/"><u>[New] In 2024, How To Remove Background Noise From Your Youtube Video</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-step-by-step-capturing-powerful-presentations-in-adobe-presenter/"><u>[New] In 2024, Step-by-Step Capturing Powerful Presentations in Adobe Presenter</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-navigating-fb-discovering-shared-video-content/"><u>[New] Navigating FB Discovering Shared Video Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-what-is-the-best-video-format-for-youtube/"><u>[Updated] 2024 Approved What Is the Best Video Format for YouTube?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-facebook-follower-verification-techniques-for-professionals/"><u>2024 Approved Facebook Follower Verification Techniques for Professionals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-in-one-home-hub-on-wheels-exploring-the-latest-amazon-echo-show-10-third-generation/"><u>All-in-One Home Hub on Wheels – Exploring the Latest Amazon Echo Show 10 (Third Generation)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-weather-wonders-exploring-the-kobo-libra-h2os-resilient-reading-experience/"><u>All-Weather Wonders: Exploring the Kobo Libra H2O's Resilient Reading Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-and-zoomed-out-the-sx720hs-experience-unveiled/"><u>Compact and Zoomed Out: The SX720HS Experience Unveiled</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/cing-user-experience-a-quick-how-to-for-youtube-cc-and-subtitles-for-2024/"><u>Enhancing User Experience A Quick How-To for YouTube CC & Subtitles for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-superior-performance-at-a-steal-the-ultimate-guide-to-the-arcshell-ar-5/"><u>Experience Superior Performance at a Steal: The Ultimate Guide to the Arcshell AR- 5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-affordable-community-buzz-on-oodles-no-cost-advertising-platform/"><u>Explore Affordable Community Buzz on Oodle's No-Cost Advertising Platform</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-poco-c65-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Poco C65 to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/omnicharge-omni-20-in-depth-analysis-a-comprehensive-guide-for-multi-functional-portable-batteries-with-qi-wireless-features/"><u>Omnicharge Omni 20 In-Depth Analysis: A Comprehensive Guide for Multi-Functional Portable Batteries with Qi Wireless Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-microsoft-surface-go-examined-balancing-cost-and-functionality-in-a-tablet-that-struggles-to-define-itself/"><u>The Microsoft Surface Go Examined: Balancing Cost and Functionality in a Tablet That Struggles to Define Itself</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unboxing-and-testing-the-gigabyte-g6x-adequate-for-play-yet-lacking-in-impressive-features/"><u>Unboxing & Testing the Gigabyte G6X: Adequate for Play, Yet Lacking in Impressive Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-netgear-c3-grower-routermodem-combo-is-it-time-to-upgrade/"><u>Unboxing and Testing the Netgear C3 Grower Router/Modem Combo - Is It Time to Upgrade?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/universal-flexible-bluetooth-keyboard-by-moko-compact-and-portable/"><u>Universal Flexible Bluetooth Keyboard by MoKo: Compact & Portable</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2025-01-27T17:15:30.051Z
-updated: 2025-01-30T17:59:54.160Z
+date: 2025-02-06T19:32:54.828Z
+updated: 2025-02-11T18:02:29.864Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -43,9 +43,17 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 3
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -75,14 +83,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Humans have never been so annoying**
 
@@ -97,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  In over twenty hours of gameplay, I learned the hard way that humans in this game are not only picky, but they demand the life of luxury the second they step off the rocket and into the dome. It didn’t matter that only twelve called a single dome home. It didn’t matter that there was barely enough of them to cover operating the grocery store and space bar. A lack of space for these amenities fell upon deaf ears. They wanted access to their art stores, electronics, and fine dining immediately. In that regard, I’m a little conflicted; as much as I wanted more shopping options for Mars, I realized not long after humans arrived that Haemimont Games, in reality, gave me a blessing by keeping a bland palate. Plus, more buildings and items become available as research, funding, and planetary discoveries allow.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/QVd7bcTZ_ZbmQxeJCAcRbA8iomg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_04-e663486372a94a05afa9541d4d7930bb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -127,14 +127,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -147,6 +143,10 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,21 +175,24 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-essential-zoom-substitutes-for-pcs-tablets/"><u>[New] 2024 Approved Essential Zoom Substitutes for PCs, Tablets</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-mastering-the-art-of-capturing-sims-4-essential-techniques-unveiled/"><u>[New] Mastering the Art of Capturing Sims 4 – Essential Techniques Unveiled</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-a-film-producers-essential-guide-to-color-grading-with-standardized-luts/"><u>[Updated] In 2024, A Film Producer's Essential Guide to Color Grading with Standardized LUTs</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-exploring-interactive-boundaries-the-vision-of-mixed-reality/"><u>2024 Approved Exploring Interactive Boundaries The Vision of Mixed Reality</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-the-new-era-of-advertising-embracing-the-metaverse/"><u>2024 Approved The New Era of Advertising Embracing the Metaverse</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-step-by-step-process-for-podcast-rss-creation/"><u>A Step-by-Step Process for Podcast RSS Creation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-airtag-review-the-best-tracker-for-iphone-users/"><u>Apple AirTag Review: The Best Tracker For iPhone Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/blade-e-flite-mcx2-remote-controlled-copter-reviewed-why-it-stands-out-as-the-leading-rtf-model-for-pilots/"><u>Blade E-Flite mCX2 Remote Controlled Copter Reviewed - Why It Stands Out as the Leading RTF Model for Pilots</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-the-leading-mesh-wi-fi-solutions-for-home-and-office-2024-edition/"><u>Discover the Leading Mesh Wi-Fi Solutions for Home and Office - 2024 Edition</u></a></li>
-<li><a href="https://os-tips.techidaily.com/mastering-the-art-of-screen-captures-top-4-methods-for-quick-photos-on-alcatel-smartphones/"><u>Mastering the Art of Screen Captures: Top 4 Methods for Quick Photos on Alcatel Smartphones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/premium-peaceful-headphones-review-24/"><u>Premium Peaceful Headphones Review - '24</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/resolve-playback-issue-error-xc00d36c4/"><u>Resolve Playback Issue - Error XC00D36C4</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-guide-to-professional-podcast-scriptwriting-techniques-for-2024/"><u>Step-by-Step Guide to Professional Podcast Scriptwriting Techniques for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-complete-picture-of-w15a-frame-reality/"><u>The Complete Picture of W15A Frame Reality</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-value-alarm-clock-a-comprehensive-guide-to-the-philips-hf3520-features-and-performance/"><u>Top Value Alarm Clock: A Comprehensive Guide to the Philips HF3520 Features and Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/upgrading-your-32-bit-windows-11-to-64-bit-edition/"><u>Upgrading Your 32-Bit Windows 11 to 64-Bit Edition</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-face-editing-showdown-polaroid-cube-vs-gopro-hero-series/"><u>[New] 2024 Approved Face-Editing Showdown Polaroid Cube Vs. GoPro Hero Series</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-expert-tips-for-twitter-video-interactions/"><u>[New] In 2024, Expert Tips for Twitter Video Interactions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pixelpioneer-8-version-visual-conjurer/"><u>[New] PixelPioneer 8-Version Visual Conjurer</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-unveiling-the-top-methods-of-video-and-screenshots/"><u>[Updated] Unveiling the Top Methods of Video & Screenshots</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-apple-iphone-se-2022-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock Apple iPhone SE (2022) After Forgetting the Passcode?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-the-right-streamer-lets-compare-apple-tv-4k-with-roku-ultra/"><u>Choosing the Right Streamer? Let's Compare Apple TV 4K with Roku Ultra</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-newly-released-budget-friendly-apple-ipad-102/"><u>Comprehensive Review of the Newly Released, Budget-Friendly Apple iPad 10.2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-through-the-clutter-the-ultimate-review-of-the-amazonbasics-12-sheets-high-security-shredder/"><u>Cutting Through the Clutter: The Ultimate Review of the AmazonBasics 12-Sheets High-Security Shredder</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-features-and-functionality-of-the-samsung-cf591-as-a-top-tier-gaming-display/"><u>Evaluating the Features and Functionality of the Samsung CF591 as a Top-Tier Gaming Display</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-nest-audio-and-nest-mini-showdown-features-compared/"><u>Google Nest Audio and Nest Mini Showdown: Features Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-review-google-nest-audio-versus-apple-homepod-sound-quality/"><u>Head-to-Head Review: Google Nest Audio Versus Apple HomePod Sound Quality</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-importance-of-non-primary-footage-in-editing/"><u>In 2024, The Importance of Non-Primary Footage in Editing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-comparison-racing-drones-showdown-dji-f5x-tb09-and-inspire-2/"><u>In-Depth Comparison: Racing Drones Showdown - DJI F5X, TB09, and Inspire 2</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-modern-audio-drivers-from-microsoft-for-a-superior-listening-experience/"><u>Install Modern Audio Drivers From Microsoft for a Superior Listening Experience</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/is-there-a-roblox-hack-differentiating-between-website-issues-and-personal-connectivity-problems/"><u>Is There a Roblox Hack? Differentiating Between Website Issues and Personal Connectivity Problems</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/metaverse-mingle-match-ultimate-pairings-for-2024/"><u>Metaverse Mingle Match Ultimate Pairings for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210501674-9798985634815-my-little-town/"><u>My Little Town | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-cross-platform-graphic-design-tool-the-ultimate-guide-to-gimps-features-and-capabilities/"><u>Top-Rated Cross-Platform Graphic Design Tool - The Ultimate Guide to GIMP's Features and Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/value-assessment-of-the-amazon-kindle-oasis-premium-aesthetics-meets-hefty-bill/"><u>Value Assessment of the Amazon Kindle Oasis: Premium Aesthetics Meets Hefty Bill</u></a></li>
 </ul></div>
 

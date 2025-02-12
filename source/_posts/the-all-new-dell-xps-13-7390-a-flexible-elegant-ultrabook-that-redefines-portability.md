@@ -1,7 +1,7 @@
 ---
 title: "The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
-date: 2025-01-27T16:38:01.562Z
-updated: 2025-01-30T17:21:24.175Z
+date: 2025-02-09T20:18:04.188Z
+updated: 2025-02-11T21:54:39.801Z
 categories:
   - BestProducts
 description: "This Article Describes The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/0b724e890933179083e665890982beb41082b155e
 ## Kensun AC/DC Portable Air Pump Tire Inflator
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/NWhMBmuK3pkL9EGvdNCEAF8sWEo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeffrey Daniel Chadwick
 
@@ -50,6 +46,10 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
@@ -71,6 +71,10 @@ Lifewire / Jeffrey Daniel Chadwick
  The Kensun Portable Tire Inflator made a good showing when we tested it. It gets high marks for accuracy, portability, and convenience, but it does fall down in some areas such as storing the air hose and power cable. Nevertheless, it’s a handy, nifty device that delivers the air you need when you need it.
 
  Lifewire / Jeffrey Daniel Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
@@ -95,7 +99,7 @@ Lifewire / Jeffrey Daniel Chadwick
  Lifewire / Jeffrey Daniel Chadwick
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
@@ -103,10 +107,6 @@ Lifewire / Jeffrey Daniel Chadwick
  Once you’ve read the user manual, you’ll know how to use the Kensun portable tire inflator. Nevertheless, you’ll want to do some test runs before you take it on the road. During our testing phase, we timed how long it takes from getting out of the car to the pump inflating one of our tires. It took about one minute, which is good time if you’re on the side of the highway with an unexpected flat.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Reliable, accurate, quick and loud**
 
@@ -128,16 +128,12 @@ Lifewire / Jeffrey Daniel Chadwick
 
  One of the most convenient things about this portable air pump is its auto-shutdown feature. This allows you to select the precise tire pressure you want before you start pumping. Once the tire is inflated to the desired pressure, it shuts down. This means that you don’t have to babysit the pump while it's going, and all but guarantees that you won’t over-inflate your tires.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A decent buy considering its versatility**
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
@@ -153,6 +149,10 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,15 +179,22 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-captioning-techniques-for-professional-youtube-content/"><u>[New] 2024 Approved Captioning Techniques for Professional YouTube Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-chuckle-cache-unearthing-humor-in-twitters-feeds/"><u>[Updated] 2024 Approved Chuckle Cache Unearthing Humor in Twitters Feeds</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-metaverse-vs-multi-meva-key-differences-explained/"><u>[Updated] Exploring Metaverse Vs. Multi-Meva Key Differences Explained</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-essential-tools-for-quality-4k-video-recording/"><u>2024 Approved Essential Tools for Quality 4K Video Recording</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-15-activities-perfect-for-podcast-lovers/"><u>2024 Approved Top 15 Activities Perfect for Podcast Lovers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-excellence-comprehensive-tp-link-archer-a6-ac1200-wifi-router-evaluation/"><u>Affordable Excellence: Comprehensive TP-Link Archer A6 AC1200 WiFi Router Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/analye-and-interpret-data/"><u>Analye and Interpret Data</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-5-considerations-every-gamer-should-assess-prior-to-console-acquisition/"><u>The Ultimate 5 Considerations Every Gamer Should Assess Prior to Console Acquisition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-bluetooth-mouse-picks/"><u>Top Rated Bluetooth Mouse Picks</u></a></li>
-<li><a href="https://fox-access.techidaily.com/usb-c-revolution-in-monitors-hp-envy-27s-journey-for-2024/"><u>USB-C Revolution in Monitors HP Envy 27'S Journey for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-visualize-the-possibilities-a-beginners-guide-to-snapseed/"><u>[New] 2024 Approved Visualize the Possibilities A Beginner's Guide to Snapseed</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-capture-cartoon-characters-in-everyday-life-using-snapchats-anime-filter/"><u>[New] In 2024, Capture Cartoon Characters in Everyday Life Using Snapchat's Anime Filter</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-vanguard-of-virtual-fame-instagrams-25-luminaries/"><u>[Updated] In 2024, The Vanguard of Virtual Fame Instagram's 25 Luminaries</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-art-and-science-of-hand-movement-tracking-for-2024/"><u>[Updated] The Art and Science of Hand Movement Tracking for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/boost-graphics-performance-with-updated-geforce-rtx-2080-ti-drivers-for-gamers/"><u>Boost Graphics Performance with Updated GeForce RTX 2080 Ti Drivers for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-why-the-mohu-leaf-30-is-a-top-pick-for-value-and-functionality-in-tv-antenna-shopping/"><u>Discover Why the Mohu Leaf 30 Is a Top Pick for Value and Functionality in TV Antenna Shopping</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-fixes-for-when-you-cant-find-physxloaderdll-errors/"><u>Easy Fixes for When You Can't Find PhysXLoader.dll Errors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-performance-of-tp-link-re505x-wireless-booster/"><u>Expert Insights on the Performance of TP-Link RE505X Wireless Booster</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-image-editing-with-lightzone-the-ultimate-cross-platform-photo-toolkit/"><u>Master Image Editing with LightZone - The Ultimate Cross-Platform Photo Toolkit</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-motorola-razr-40-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Motorola Razr 40 – What Can I Do? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-a71-groovy-dont-you-think/"><u>Samsung Galaxy A71 Groovy, Don't You Think?</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/snag-the-sensational-deal-on-quest-3-with-512gb-storage-metas-latest-offer-that-dominates-the-vr-market-insight/"><u>Snag the Sensational Deal on Quest 3 with 512GB Storage - Meta's Latest Offer That Dominates the VR Market Insight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/streamlining-your-workflow-with-the-fujitsu-scansnap-ix1400-ideal-for-solo-professionals-and-smes/"><u>Streamlining Your Workflow with the Fujitsu ScanSnap iX1400: Ideal for Solo Professionals and SMEs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tech-packed-little-bundle-exploring-the-remarkable-capabilities-of-the-xbox-series-s-gaming-console/"><u>Tech-Packed Little Bundle? Exploring the Remarkable Capabilities of the Xbox Series S Gaming Console</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranked-artists-choice-for-graphic-tablets-2024-edition/"><u>Top Ranked Artists' Choice for Graphic Tablets - 2024 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/totobays-2nd-gen-wake-up-light-evaluated-your-ideal-budget-sleep-solution/"><u>Totobay's 2Nd Gen Wake-Up Light Evaluated: Your Ideal Budget Sleep Solution</u></a></li>
+<li><a href="https://games-able.techidaily.com/transform-xbox-gaming-into-a-community-event-via-discord/"><u>Transform Xbox Gaming Into a Community Event via Discord</u></a></li>
 </ul></div>
 

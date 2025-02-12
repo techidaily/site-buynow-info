@@ -1,7 +1,7 @@
 ---
 title: "Hours-Worthy Gamer's Throne: The Mavix M^9 Gaming Chair Assessment"
-date: 2024-08-19T16:22:57.672Z
-updated: 2024-08-20T16:22:57.672Z
+date: 2025-02-06T22:08:45.647Z
+updated: 2025-02-11T19:24:08.659Z
 categories:
   - BestProducts
 description: "This Article Describes Hours-Worthy Gamer's Throne: The Mavix M^9 Gaming Chair Assessment"
@@ -14,8 +14,9 @@ thumbnail: https://thmb.techidaily.com/441d853e672f2da2cc47c9b5003852c7b54a8c4bd
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/R-SkTPUBgYZCUaD9aixocd8OUy8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -40,9 +41,6 @@ Lifewire / Danny Chadwick
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## Apeman C450 Dash Cam
 
 ![Apeman C450 Dashcam](https://www.lifewire.com/thmb/qtPoWkWW4veIi00rgbPVt6Q4pu8=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_HeroSquare2-c752b8527e31471e9018279dea42a8ca.jpg)
@@ -72,9 +70,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## **Design: All the basics**
 
  The Apeman C450 has a three-inch screen that’s bright, detailed, and provides an at-a-glance view of the camera’s status. If it were much bigger, it would be both a distraction and dangerous visual obstruction.
@@ -89,13 +84,17 @@ Lifewire / Danny Chadwick
 
  This car camera stores video on a[MicroSD card](https://www.lifewire.com/move-apps-to-sd-card-on-android-4178982) . There isn’t one included, so you’ll have to buy one. And while Apeman claims that the maximum size is 32GB, we tried out a 64GB card and it worked just fine—we filled it up to capacity and didn’t notice any problems with the device or the footage.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![Apeman C540 Dashcam](https://www.lifewire.com/thmb/A63ztrIxThbZlrb_lHJH3YL7778=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4062264_02-6ef4e204d0bd452b9601ec468e5358bf.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: You’ll have to figure a lot of stuff out for yourself**
 
@@ -122,8 +121,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
  Lifewire / Danny Chadwick
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Performance: Travels as well as the rest of them**
 
  During our testing, the Apeman C450 performed exactly as we expected. It never shut down unexpectedly, it stayed attached to the windshield, and it yielded no problems during the drive.
@@ -162,9 +162,6 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 
  Despite a poor-quality build and some design quirks, the Apeman C450 does its job as a dashcam. It has a discreet design, captures pretty good-quality video, and has important extra features like collision detection and a surveillance mode. If you can get past some of its foibles, it's definitely worth the price tag.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [DDpai mini3](https://www.lifewire.com/ddpai-mini3-review-4770579)
@@ -172,8 +169,9 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * [Anker Roav DashCam C1](https://www.lifewire.com/anker-roav-dashcam-c1-review-4773139)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  C450 Dash Cam
@@ -190,14 +188,11 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
 * Storage  Up to 32GB SDHC card (Class 10)
 * Warranty  12 months
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +201,22 @@ EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-seamless-gopro-broadcasts-tips-for-facebook-and-periscope-channeling/"><u>[New] In 2024, Seamless GoPro Broadcasts Tips for Facebook & Periscope Channeling</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>[New] In 2024, Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-elevate-your-engagement-top-10-video-response-insights/"><u>[Updated] 2024 Approved Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/bulk-discounts-snag-a-1100-deal-on-macbook-pro-16-inch-with-m1-max-exclusive-offer-from-bandh-photo/"><u>Bulk Discounts: Snag a $1100 Deal on MacBook Pro 16-Inch with M1 Max - Exclusive Offer From B&H Photo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/check-for-promotions-some-carriers-may-offer-promotional-deals-on-the-galaxy-s21-fe-when-signing-up-for-a-new-service-plan-or-as-part-of-trade-in-programs-m85/"><u>Check for Promotions: Some Carriers May Offer Promotional Deals on the Galaxy S21 FE when Signing up for a New Service Plan or as Part of Trade-In Programs. Make Sure You're Aware of These Options Before Making Your Purchase.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-guide-to-the-netgear-nighthawk-x10-ad7200-ultimate-wireless-performance-analysis/"><u>Complete Guide to the Netgear Nighthawk X10 (AD7200) – Ultimate Wireless Performance Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-effectiveness-of-cyberpowers-entry-level-cp685avrg-backup-power-unit/"><u>Evaluating the Effectiveness of Cyberpower's Entry-Level CP685AVRG Backup Power Unit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-synology-rt2600ac-exceptional-range-and-parental-control-capabilities-in-one-unit/"><u>In-Depth Look at the Synology RT2600AC: Exceptional Range & Parental Control Capabilities in One Unit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-sonys-new-powerhouse-a-comprehensive-review-of-the-ps5/"><u>Inside Sony's New Powerhouse: A Comprehensive Review of the PS5</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/is-monterey-worth-installing-your-guide/"><u>Is Monterey Worth Installing? Your Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-free-tiktok-watermark-removers-compare-and-choose-for-2024/"><u>New Free TikTok Watermark Removers Compare and Choose for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ins-and-outs-of-vyncs-link-evaluation-robust-link-monitoring-with-obscure-membership-levels/"><u>The Ins and Outs of Vyncs Link Evaluation: Robust Link Monitoring With Obscure Membership Levels</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-premier-intro-list-for-panzoids-for-2024/"><u>The Premier Intro List for Panzoids for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-assessing-lenovo-thinkpad-x1-fold-features-benefits-and-drawbacks/"><u>The Ultimate Guide to Assessing Lenovo ThinkPad X1 Fold - Features, Benefits, and Drawbacks</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/upcoming-google-pixel-fold-2-pricing-insights-release-forecast-specs-deep-dive-and-rumored-updates/"><u>Upcoming Google Pixel Fold 2: Pricing Insights, Release Forecast, Specs Deep Dive, and Rumored Updates</u></a></li>
+</ul></div>
 

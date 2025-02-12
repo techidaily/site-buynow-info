@@ -1,7 +1,7 @@
 ---
 title: Syma S107G RC Helicopter Review
-date: 2025-01-26T16:23:33.922Z
-updated: 2025-01-30T16:44:56.991Z
+date: 2025-02-10T22:19:18.163Z
+updated: 2025-02-11T18:46:45.564Z
 categories:
   - BestProducts
 description: This Article Describes Syma S107G RC Helicopter Review
@@ -19,7 +19,7 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Canon PowerShot SX70
@@ -27,7 +27,7 @@ thumbnail: https://www.lifewire.com/thmb/P-8UxsMZel3cjt1hVtk4iOKfgsw=/400x300/fi
 ![Canon PowerShot SX70 HS](https://www.lifewire.com/thmb/NltNTWtb6Y6gHFCHDQXlLsrWKTI=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW493676-HeroSquare-40ae318f81834941adfaf79392cf30b3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
@@ -100,10 +100,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -114,6 +110,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -121,10 +121,6 @@ Lifewire / Andy Zahn
  The electronic viewfinder (EVF) is bright and clear with 2,360,000 dots. It’s not the best EVF we’ve ever used as it seems slightly small and cramped, but it gets the job done. A sensor automatically detects when you put your eye up to it (a function that can be adjusted in the settings), which means you don’t have to hunt for a button to switch the EVF on.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Autofocus: Blazing fast**
 
@@ -150,6 +146,10 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Modes: Plenty to choose from (and only some are useful)**
 
  The SX70 HS includes the standard Auto, Program, Shutter Priority (Tv), Aperture Priority (Av), and Manual modes, accessible via the top mode dial. Additionally, you will find two video modes: one that opens up more advanced video features, and one that shoots short video clips followed by a still photo. That second mode is quite odd, and we found that it did not produce good results.
@@ -165,7 +165,7 @@ Lifewire / Andy Zahn
  Lifewire / Andy Zahn
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Video Quality: A mixed bag**
@@ -181,6 +181,10 @@ Lifewire / Andy Zahn
  Time-lapse mode is where the SX70 HS really shines in terms of video. You can easily access this mode via the menu system, and there is a wide range of customizable options available. For those not experienced with time-lapse video, you can simply select from one of three subject-based settings. Time-lapses can be recorded at up to 4K resolution and truly excellent quality.
 
  Lifewire / Andy Zahn
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options**
 
@@ -220,10 +224,6 @@ Lifewire / Andy Zahn
 * [Canon PowerShot SX530](https://www.lifewire.com/canon-powershot-sx530-review-4772573)
 * [Canon PowerShot ELPH 190](https://www.lifewire.com/canon-powershot-elph-190-review-4589522)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  PowerShot SX70
@@ -258,21 +258,21 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-the-art-of-amplifying-audience-engagement-on-igtv-for-2024/"><u>[New] The Art of Amplifying Audience Engagement on IGTV for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-home-theater-excellence-the-best-blu-ray-selections-for-2024/"><u>[Updated] Home Theater Excellence The Best Blu-Ray Selections for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-tickling-your-sense-of-humor-tiktoks-20-joke-highlights/"><u>[Updated] Tickling Your Sense of Humor TikTok's 20 Joke Highlights</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-youtube-shorts-ultimate-guide/"><u>2024 Approved YouTube Shorts Ultimate Guide</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/6-methods-to-share-apple-iphone-6s-plus-screen-with-pc-drfone-by-drfone-ios/"><u>6 Methods to Share Apple iPhone 6s Plus Screen with PC | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/1726028831466-windowspc/"><u>複数ウィンドウ同時録画:WindowsPC用ガイドライン</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-the-competition-a-closer-look-at-ipad-pro-vs-surface-pro-differences/"><u>Decoding the Competition: A Closer Look at iPad Pro Vs. Surface Pro Differences</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exceptional-acoustics-of-the-soundbot-sb210-unveiling-its-hibernation-period-and-effective-functioning/"><u>Exceptional Acoustics of the Soundbot SB210: Unveiling Its Hibernation Period and Effective Functioning</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-photoscape-a-premier-freeware-for-graphic-tweaks-and-edits/"><u>Exploring the Features of PhotoScape: A Premier Freeware for Graphic Tweaks and Edits</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-apple-iphone-14-pro-max-location-on-viber-drfone-by-drfone-virtual-ios/"><u>How to Change/Fake Your Apple iPhone 14 Pro Max Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-se-2022-by-drfone-ios/"><u>How to Remove Find My iPhone without Apple ID From your iPhone SE (2022)?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-powerhouse-features-inside-the-netgear-nighthawk-x6-extender/"><u>In-Depth Analysis: The Powerhouse Features Inside the Netgear Nighthawk X6 Extender</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-storm-tracker-apps-of-2024/"><u>The Best Storm Tracker Apps of 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-pick-outstanding-external-blu-ray-players-and-burners/"><u>Top Pick: Outstanding External Blu-Ray Players and Burners</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-amazonbasics-6-sheet-cross-cut-shredder-budget-friendly-reviews/"><u>Top Rated AmazonBasics 6-Sheet Cross-Cut Shredder: Budget-Friendly Reviews</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-seamless-content-addition-enhancing-your-personalized-youtube-plays/"><u>[New] Seamless Content Addition Enhancing Your Personalized YouTube Plays</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-affordable-android-chat-options-rated-top-ten/"><u>[Updated] 2024 Approved Affordable Android Chat Options Rated Top Ten</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-expert-guide-to-creating-compact-engaging-youtube-content-for-2024/"><u>[Updated] Expert Guide to Creating Compact, Engaging YouTube Content for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comparative-breakdown-why-apples-m1-powered-mac-mini-outshines-its-rivals/"><u>Comparative Breakdown: Why Apple's M1 Powered Mac Mini Outshines Its Rivals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-blade-e-flite-mcx2-radio-controlled-helicopter-top-pick-for-hobbyists/"><u>Comprehensive Analysis of the Blade E-Flite mCX2 Radio Controlled Helicopter: Top Pick for Hobbyists</u></a></li>
+<li><a href="https://win-online.techidaily.com/free-online-converter-change-flv-files-into-avi-format-with-moveavi/"><u>Free Online Converter: Change FLV Files Into AVI Format with Moveavi</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723009089644-how-to-fix-fortnite-error-code-84-unable-to-join-a-party/"><u>How to Fix Fortnite Error Code 84 'Unable to Join a Party'</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-leave-a-life360-group-on-tecno-spark-10c-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Tecno Spark 10C Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-bluetooth-earpieces-for-smart-tv-lovers/"><u>Innovative Bluetooth Earpieces for Smart TV Lovers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-chrono-translocation-techniques/"><u>Mastering Chrono-Translocation Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ourlink-u631-mini-wireless-usb-adaptor-top-notch-wifi-performance-in-a-tiny-package/"><u>Ourlink U631 Mini Wireless USB Adaptor - Top Notch Wifi Performance in a Tiny Package</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stylishly-functional-wearable-an-in-depth-look-at-the-fitbit-charge/"><u>Stylishly Functional Wearable: An In-Depth Look at the Fitbit Charge ()</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-compatible-ipad-mouse-options/"><u>Top-Rated Compatible IPad Mouse Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-netgear-nighthawk-x4-top-wireless-mesh-wifi-range-extender-evaluation/"><u>Ultimate Guide to Netgear Nighthawk X4 - Top Wireless Mesh WiFi Range Extender Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-oculus-quest-2-outstanding-vr-gaming-on-a-budget/"><u>Unveiling the Oculus Quest 2: Outstanding VR Gaming on a Budget</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-10-essential-online-video-rotation-software-for-creators-for-2024/"><u>Updated 10 Essential Online Video Rotation Software for Creators for 2024</u></a></li>
 </ul></div>
 

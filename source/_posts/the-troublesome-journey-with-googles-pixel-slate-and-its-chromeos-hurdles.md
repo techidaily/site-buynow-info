@@ -1,7 +1,7 @@
 ---
 title: The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
-date: 2025-01-24T16:54:23.918Z
-updated: 2025-01-30T16:19:26.123Z
+date: 2025-02-06T18:36:12.848Z
+updated: 2025-02-11T22:02:08.680Z
 categories:
   - BestProducts
 description: This Article Describes The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles
@@ -18,9 +18,17 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/AjVVBONBD_MfQeA3voTlfDA2Jrc=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -48,7 +56,7 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -70,10 +78,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Plot: Lots of options**
 
  For a city-building game, Surviving Mars offers a plethora of gaming options once you move past the tutorial. For example, when starting a game, you can choose who funds the colony, ranging from a United Space Federation to China to the United States. Each comes with its own perks and drawbacks, and creates new challenges for each scenario. You can also set more harsh conditions to create more fun[gameplay](https://www.lifewire.com/produce-videogame-videos-for-youtube-3562561) , as well as pick an area of land less suitable for human habitation.
@@ -83,7 +87,7 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
@@ -120,10 +124,6 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
  I wanted to focus on building bigger domes to accommodate population growth and build important research centers, not worry over whether my scientists would automatically begin working at those same facilities.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Decent for what you get**
 
  For around $30, you can add this game to your gaming library. It makes sense for a two-year-old game not to cost the regular price of new games these days. Even better, if you watch for sales, you can get it for cheaper. Be forewarned though—the other additions to the game, like the Laika Project, will cost you more. The $30 is solely for the base game.
@@ -133,7 +133,7 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
  Lifewire / Rebecca Isaacs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
@@ -175,21 +175,24 @@ thumbnail: https://www.lifewire.com/thmb/h9-raTC4x0E0ngxqnxlOVEIK_wA=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/amazon-halo-review/"><u>Amazon Halo Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/asus-x441ba-review-a-big-screen-laptop-with-tradeoffs/"><u>Asus X441BA Review: A Big Screen Laptop With Tradeoffs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-of-parent-and-child-the-amazon-fire-hd-10-kid-editions-secure-environment/"><u>Comprehensive Evaluation of Parent & Child The Amazon Fire HD 10 Kid Edition's Secure Environment</u></a></li>
-<li><a href="https://blog-min.techidaily.com/die-allerbesten-gratis-programme-fur-ip-kameras-von-movavi-und-alternativen/"><u>Die Allerbesten Gratis Programme Für IP-Kameras Von Movavi Und Alternativen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-controversy-in-tropico-6-critique-of-a-sun-soaked-tyranny/"><u>Exploring the Controversy in Tropico 6: Critique of a Sun-Soaked Tyranny</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-mastering-mov-file-management-on-modern-windows-10/"><u>In 2024, Mastering .mov File Management on Modern Windows 10</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-iphone-sky-photography-essential-tips-and-tricks/"><u>In 2024, Mastering iPhone Sky Photography Essential Tips & Tricks</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-lensdirect-prescription-sunglasses-the-ultimate-defense-against-digital-screen-glare/"><u>In-Depth Look at LensDirect Prescription Sunglasses: The Ultimate Defense Against Digital Screen Glare</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-multi-device-connectivity-an-experts-review-on-the-amazon-basics-7-port-usb-3-hub/"><u>Mastering Multi-Device Connectivity: An Expert's Review on the Amazon Basics 7 Port USB 3 Hub</u></a></li>
-<li><a href="https://techtrends.techidaily.com/offline-minecraft-adventures-configuring-your-game-on-windows-10/"><u>Offline Minecraft Adventures: Configuring Your Game on Windows 10</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/superior-watchlist-analyzer-highest-chart-positions-for-2024/"><u>Superior Watchlist Analyzer Highest Chart Positions for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-ranking-windows-ultrabooks-and-gaming-laptops-comprehensive-tests-by-tech-experts-zdnet/"><u>Top-Ranking Windows Ultrabooks & Gaming Laptops - Comprehensive Tests by Tech Experts | ZDNet</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-oneplus-12r-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change OnePlus 12R IMEI without Root A Comprehensive Guide</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/universal-data-revival-set-for-windowsmaclinux-users/"><u>Universal Data Revival Set - For Windows/Mac/Linux Users</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/unleash-your-inner-star-in-the-new-calendar-year-discover-exciting-karaoke-tunes-on-karaoke-cloud-pro/"><u>Unleash Your Inner Star in the New Calendar Year: Discover Exciting Karaoke Tunes on Karaoke Cloud Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-the-economical-xiaomi-mi-smart-band-4-is-my-preferred-choice-for-fitness-tracking/"><u>Why the Economical Xiaomi Mi Smart Band 4 Is My Preferred Choice for Fitness Tracking</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-navigating-the-social-maze-tweets-plus-tumble-videos/"><u>[New] In 2024, Navigating the Social Maze Tweets + Tumble Videos</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-short-vid-star-spotlight-check/"><u>[New] In 2024, Short Vid Star Spotlight Check</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-pro-whatsapp-tips-unlocking-untapped-potentials/"><u>[Updated] In 2024, Pro-WhatsApp Tips Unlocking Untapped Potentials</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-unlocking-the-secrets-of-iphone-recording/"><u>[Updated] In 2024, Unlocking the Secrets of iPhone Recording</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/899-lenovo-legion-slim-5-laptop-a-gamers-dream-equipped-with-the-latest-rtx-4060-graphics-card/"><u>$899 Lenovo Legion Slim 5 Laptop: A Gamer’s Dream - Equipped with the Latest RTX 4060 Graphics Card</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-barnes-and-noble-nook-glowlight-3-perfect-for-evening-readers/"><u>Comprehensive Review of the Barnes & Noble Nook GlowLight 3 - Perfect for Evening Readers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-on-a-smart-assistant-contrasting-features-of-echo-pop-and-echo-dot/"><u>Deciding on a Smart Assistant: Contrasting Features of Echo Pop and Echo Dot</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/from-flat-to-360-comparing-googles-cardboard-and-samsungs-gear/"><u>From Flat to 360 Comparing Google's Cardboard & Samsung's Gear</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-does-the-iphone-15-pro-max-stack-up-against-the-samsung-s24-ultra-a-detailed-comparison/"><u>How Does the iPhone 15 Pro Max Stack Up Against the Samsung S24 Ultra? A Detailed Comparison</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-smart-8-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Smart 8 Pro to Outlook | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mastery-of-the-blink-security-camera-a-comprehensive-walkthrough-on-the-fourth-gen-model/"><u>Mastery of the Blink Security Camera: A Comprehensive Walkthrough on the Fourth Gen Model</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/mobile-mastery-in-thumbnail-creation-for-engaging-youtube-videos/"><u>Mobile Mastery in Thumbnail Creation for Engaging YouTube Videos</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-active-with-fitbit-versa-3s-internal-gps-tracking-and-comprehensive-health-app-suite/"><u>Stay Active with Fitbit Versa 3'S Internal GPS Tracking & Comprehensive Health App Suite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/survive-and-thrive-together-in-dying-light-a-deep-dive-into-first-person-co-op-gameplay/"><u>Survive and Thrive Together in Dying Light - A Deep Dive Into First-Person Co-Op Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-comprehensive-guide-to-the-google-pixelbook-go-fantastic-features-amid-steep-pricing/"><u>The Comprehensive Guide to the Google Pixelbook Go: Fantastic Features Amid Steep Pricing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-rapid-reverse-how-to-flip-your-stream-sides-for-2024/"><u>The Rapid Reverse How to Flip Your Stream-Sides for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-understanding-apple-macbook-air-with-m1-chip-2020-13-inches-performance-and-innovation-revealed/"><u>The Ultimate Guide to Understanding Apple MacBook Air with M1 Chip (2020, 13 Inches): Performance and Innovation Revealed</u></a></li>
+<li><a href="https://win-answers.techidaily.com/top-rated-free-webm-video-editor-no-watermark-and-easy-steps/"><u>Top-Rated Free WebM Video Editor: No Watermark & Easy Steps!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-sumind-bt70b-bluetooth-fm-transmitter-for-your-vehicle-a-review/"><u>Ultimate Guide to the Sumind BT70B Bluetooth FM Transmitter for Your Vehicle: A Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Inexpensive, Yet Frustrating: The Nikon COOLPIX A10 Story"
-date: 2024-08-26T06:24:12.510Z
-updated: 2024-08-27T06:24:12.510Z
+date: 2025-02-09T20:47:09.794Z
+updated: 2025-02-11T16:25:04.370Z
 categories:
   - BestProducts
 description: "This Article Describes Inexpensive, Yet Frustrating: The Nikon COOLPIX A10 Story"
@@ -12,6 +12,10 @@ thumbnail: https://thmb.techidaily.com/e85743b34dfe1708fd7baeaabbf4be530a9d0acc9
 ## Nikon COOLPIX A10: An Inexpensive Camera That Takes Great Photos But Is Hamstrung by a Frustrating User Experience
 
 3.5
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Nikon Coolpix A10
 
@@ -38,12 +42,13 @@ Lifewire / Scott Gercken
 
 3.5
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Nikon Coolpix A10
 
 ![Nikon COOLPIX A10](https://www.lifewire.com/thmb/YC6hZEGkRUots77n6cg8D4tnDfs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_03LW3897833-1-7909edb954234ba998fda175019f4ce7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Scott Gercken
 
@@ -69,6 +74,10 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Feels good with natural controls**
 
  The Nikon COOLPIX A10 is a nice looking camera with a flashy silver front and black rear. It’s 3.5” wide, 2.25” tall, 0.75” deep on the narrow side and 1” deep on the wide side. The right side of the camera, the one with all the controls, has a rounded bulge that grows from 0.75” to 1”, perfectly designed to fit the hand (the camera would otherwise have been too narrow to hold comfortably). There are several controls on the top of the camera—the on/off button, the shutter, and the zoom controls.
@@ -77,9 +86,6 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Straightforward and simple**
 
  Like most point-and-shoot cameras, setup is simple. We just inserted the included AA batteries, put in the SD card (not included), and turned it on. The camera ran us through the standard steup (date, time, etc.) and then was ready to go.
@@ -106,15 +112,16 @@ Lifewire / Scott Gercken
 
  Lifewire / Scott Gercken
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Video Quality: Noisy, grainy video in all kinds of light**
 
 [Video capabilities](https://www.lifewire.com/point-and-shoot-camera-4688891) seem almost like an afterthought for the Nikon COOLPIX A10\. The camera allows lots of options and settings for photographs, whether you want to manage them manually or through a preset scene. There isn’t anything like that for video. The only options you have are in resolution: 720, 480, or 240\. When recording, the screen also doesn’t show any stats or information like it does when you’re taking a photo. You can zoom in or out, but you don’t know whether it’s using optical or digital zoom.
 
  We took video both indoors and outdoors, in shade and in the sun. Indoor video was very noisy, and it didn’t get much better when we went outside in great light. We took a comparison video with an old iPhone SE (12 MP camera), and the iPhone had drastically better video quality in all kinds of light. If quality video is important to you, this is not the camera for you.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## **Software: Not worth mentioning**
 
  The Nikon COOLPIX A10 uses .jpg files for photographs and .avi for movies. While the easiest way to retrieve your photos is through the SD card, Nikon has its own software to pull both photos and videos off the camera, a suite called ViewNX-i which includes both photo software and video editing software as well. One problem: we couldn’t figure out how to install it on the Mac we tested. We downloaded the right files and followed the instructions (several times), but nothing happened.
@@ -124,29 +131,13 @@ Lifewire / Scott Gercken
  Fortunately, the COOLPIX A10 works easily with other photo library software, so we didn’t have to rely on Nikon. You should note, however, that the COOLPIX A10 does not come with a USB cord, an annoying oversight. The Nikon COOLPIX A10 also has some basic editing features, but they aren’t worth using if you have a competent PC. You can apply a couple gimmicky filters, and you can crop photos, but why would you try to do any editing on this tiny screen when you could use your computer? It feels like a feature set that some marketing exec dreamed up so they could claim the COOLPIX is ready for Instagram.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Low-priced camera with some major flaws**
 
  The Nikon COOLPIX A10 has a list price of $75, around the same price as many entry-level digital cameras. It takes decent photos, so you can grab some nice vacay pictures at the beach or camping without exposing expensive gear to the weather. Our only major hesitation is around the lengthy delay between taking photos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Competition: Phone and camera options**
 
 **iPhone 6s:** It’s becoming more and more difficult to justify a separate digital camera from our phones. The iPhone 6s does have a 12 MP camera against the COOLPIX’s 16, but that really only matters if you’re looking to print large photos or need extremely high resolution images. Often, it takes better photos than the COOLPIX A10, and it’s video capabilities are much better.. It doesn’t, however, have the ISO, white balance, or exposure options that the Nikon COOLPIX A10 has, and comes with a slightly larger price tag. We saw prices between $100 and $250 depending on the options, but for that price you also get an iPhone and all the additional functionality that comes with it.
@@ -159,9 +150,6 @@ Key features:
 
  While the Nikon COOLPIX A10 takes beautiful photos, the user experience ruins the camera. It’s difficult to use and locks up for a few seconds after every photo. The sheen of high quality images quickly fades when you’re staring at a warning indicator for long, static moments. Other entry-level cameras perform much better.
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Coolpix A10
@@ -193,8 +181,6 @@ Key features:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +188,19 @@ Key features:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-navigating-google-meets-virtual-whiteboards-across-appleandroid-and-laptops/"><u>[New] 2024 Approved Navigating Google Meet's Virtual Whiteboards Across Apple/Android & Laptops</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-compreranimal-webcam-tutorial-achieve-excellent-video-quality-for-2024/"><u>[New] Compreranimal Webcam Tutorial Achieve Excellent Video Quality for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-revolutionizing-receiving-a-new-paradigm-in-openings/"><u>[New] Revolutionizing Receiving A New Paradigm in Openings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-quick-tips-eradicate-online-ads-from-your-feed/"><u>[Updated] 2024 Approved Quick Tips Eradicate Online Ads From Your Feed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-instagram-reels-slow-motion-techniques-unveiled/"><u>2024 Approved Instagram Reels Slow-Motion Techniques Unveiled</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/directsnaprecorder-straightforward-windows-11-capture/"><u>DirectSnapRecorder Straightforward Windows 11 Capture</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-budget-friendly-secret-to-superior-sound-amazon-basics/"><u>Discover the Budget-Friendly Secret to Superior Sound: Amazon Basics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-choice-the-superior-bodycams-of-this-year/"><u>Elite Choice: The Superior Bodycams of This Year</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/highly-effective-ways-to-stream-and-record-sports-games-for-2024/"><u>Highly Effective Ways to Stream and Record Sports Games for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/necessary-factors-when-shopping-for-a-dash-cam/"><u>Necessary Factors When Shopping for a Dash Cam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionary-2020-apple-mac-mini-m1-chip-how-apple-outshines-the-rival-computers/"><u>Revolutionary 2020 Apple Mac Mini (M1 Chip): How Apple Outshines the Rival Computers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-sound-quality-resolving-crackle-noises-in-pc-speakers-windows-117/"><u>Troubleshooting Sound Quality: Resolving Crackle Noises in PC Speakers (Windows 11/7)</u></a></li>
+</ul></div>
 

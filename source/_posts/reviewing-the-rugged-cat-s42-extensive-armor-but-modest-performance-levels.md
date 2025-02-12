@@ -1,7 +1,7 @@
 ---
 title: "Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
-date: 2025-01-29T17:16:56.055Z
-updated: 2025-01-30T16:02:52.785Z
+date: 2025-02-04T17:18:06.431Z
+updated: 2025-02-11T23:24:59.550Z
 categories:
   - BestProducts
 description: "This Article Describes Reviewing the Rugged Cat S42: Extensive Armor but Modest Performance Levels"
@@ -21,6 +21,10 @@ thumbnail: https://thmb.techidaily.com/4701af21fbd3236ee27b5d0a75fe2af600bece4b4
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/87Y0vp91-Opdxctf3M6BGQ6r1d8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Ramirez
 
@@ -72,15 +76,19 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/U_vmwZDe5HbbungQ5L2hzf2LVto=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-4-b0d1cca56ec04a61b83e20d1cecf2aea.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Design: Sleek and convenient**
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Hardware: Some odd decisions**
 
@@ -89,10 +97,6 @@ Lifewire / Emily Ramirez
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1t84P8oe4qch2aJ6lknx0lwunWw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-2-de43d07bd3db40a282f55347c8956c9a.jpg)
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process/Installation: Easy install, irritating setup**
 
@@ -104,15 +108,7 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/6uorHzKoJdW1FBv0B5ZfeoE8XzU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-3-17de2156e4294b5c85f151bd0cd97aa4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Audio: Excellent sound**
 
@@ -122,7 +118,15 @@ Lifewire / Emily Ramirez
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/1CZw4BSxxTqlBF1kxT0_rl73XCU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW833111-5-e1022e9adc854517af98407c4be32691.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Software: Lots of options with mixed utility**
 
@@ -131,10 +135,6 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -160,14 +160,14 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR is a quality, expensive sound card, with comprehensive software features and the hardware to power great consumer headsets and microphones. The ZxR sounds good, and gamers will not be disappointed by the ZxR’s power, but audio purists and 7.1 surround fans can find cleaner performance with fewer bells and whistles for the $250 asking price of the ZxR. It’s a card that hasn’t aged well since it’s 2013 release, and one that’s been largely overshadowed by some of its competitors in the interim.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,19 +207,22 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-essential-steps-to-utilizing-azures-speech-to-text-service-effectively-for-2024/"><u>[New] Essential Steps to Utilizing Azure's Speech-to-Text Service Effectively for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/2024-approved-how-to-create-stunning-tiktok-videos-with-templates/"><u>2024 Approved How To Create Stunning TikTok Videos With Templates</u></a></li>
-<li><a href="https://change-location.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-vivo-y100t-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Vivo Y100t | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apple-ipad-air-2019-review/"><u>Apple iPad Air (2019) Review</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/best-8-ai-tools-you-can-download-today-enhancing-your-smartphone-experience-on-any-platform/"><u>Best 8 AI Tools You Can Download Today: Enhancing Your Smartphone Experience on Any Platform</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/comprehensive-guide-the-role-and-operation-of-chatgpt-shared-links/"><u>Comprehensive Guide: The Role and Operation of ChatGPT Shared Links</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/decoding-the-swedes-alphabet-and-sounds-guide/"><u>Decoding the Swedes: Alphabet & Sounds Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Vivo V30 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/mastering-the-conversion-of-smacker-video-smk-files-a-step-by-step-guide/"><u>Mastering the Conversion of Smacker Video SMK Files – A Step-by-Step Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-value-with-acer-aspire-e-15-a-thorough-budget-laptop-critique/"><u>Maximizing Value with Acer Aspire E 15 – A Thorough Budget Laptop Critique</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-not-working-on-vivo-s17-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Vivo S17? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/prime-positioner-tripod-your-portable-photography-partner/"><u>Prime Positioner Tripod: Your Portable Photography Partner</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-compact-gaming-laptop-reviewed-acers-predator/"><u>The Best Compact Gaming Laptop Reviewed: Acer's Predator</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unearthing-the-potential-a-thorough-google-pixel-4a-android-masterclass/"><u>Unearthing the Potential: A Thorough Google Pixel 4a Android Masterclass</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mirror-image-flipping-youtube-videos-online/"><u>[New] 2024 Approved Mirror Image Flipping YouTube Videos Online</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-guidelines-for-optimal-youtube-video-brightness/"><u>[New] In 2024, Guidelines for Optimal YouTube Video Brightness</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-features-and-functionality-of-the-dell-inspiron-3671-model/"><u>Analyzing the Features and Functionality of the Dell Inspiron 3671 Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cheap-vs-expensive-why-these-are-the-7-premier-value-cell-providers/"><u>Cheap vs Expensive: Why These Are the 7 Premier Value Cell Providers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deep-dive-into-tech-testing-the-superior-dell-display-premier-noise-canceling-headset-and-ultrasharp-camera-capture/"><u>Deep Dive Into Tech: Testing the Superior Dell Display, Premier Noise-Canceling Headset & UltraSharp Camera Capture</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discovering-hidden-gems-in-yokus-island-express-a-review-of-unpredictable-quests/"><u>Discovering Hidden Gems in 'Yoku's Island Express': A Review of Unpredictable Quests</u></a></li>
+<li><a href="https://fox-that.techidaily.com/dont-miss-a-beat-11-tricks-to-fix-your-iphones-ring-call-problems/"><u>Don't Miss a Beat: 11 Tricks to Fix Your iPhone's Ring Call Problems</u></a></li>
+<li><a href="https://common-error.techidaily.com/ending-high-cpu-warnings-in-windows-11-interrupts/"><u>Ending High CPU Warnings in Windows 11 Interrupts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-guide-understanding-digital-narrative-creation/"><u>Essential Guide Understanding Digital Narrative Creation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fun-in-the-cosmos-constructing-cities-on-mars-with-a-side-of-interplanetary-gusts/"><u>Fun in the Cosmos: Constructing Cities on Mars with a Side of Interplanetary Gusts!</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/how-to-make-macbook-pro-video-tutorials-easy/"><u>How to Make Macbook Pro Video Tutorials Easy</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-time-to-upgrade-from-your-current-ipad-model/"><u>Is It Time to Upgrade From Your Current iPad Model?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/master-your-mobile-workflow-with-the-samsung-galaxy-tab-s5e-a-comprehensive-readers-digest/"><u>Master Your Mobile Workflow with the Samsung Galaxy Tab S5e – A Comprehensive Reader's Digest</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-airtunes-on-your-apple-devices-quick-guide-to-repairs-for-2024/"><u>Mastering Airtunes on Your Apple Devices - Quick Guide to Repairs for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/max-360-vs-hero-11-evaluating-the-best-gopro-for-action-videos-for-2024/"><u>Max 360 Vs. Hero 11 Evaluating the Best GoPro for Action Videos for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-process-for-building-quality-srt-files-for-2024/"><u>Step-by-Step Process for Building Quality SRT Files for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-future-of-smart-doorbells-a-detailed-review-of-google-nest-hello-with-facial-recognition-and-package-sensing/"><u>The Future of Smart Doorbells: A Detailed Review of Google Nest Hello with Facial Recognition & Package Sensing</u></a></li>
 </ul></div>
 

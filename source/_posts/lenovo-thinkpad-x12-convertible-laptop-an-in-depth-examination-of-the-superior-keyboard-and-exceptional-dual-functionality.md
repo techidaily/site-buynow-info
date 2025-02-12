@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2025-01-27T16:19:29.557Z
-updated: 2025-01-30T16:42:32.730Z
+date: 2025-02-09T22:12:45.481Z
+updated: 2025-02-11T20:29:49.923Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -23,7 +23,7 @@ thumbnail: https://www.lifewire.com/thmb/M7cbcf9RaLnWFD_BZCSTd_n3AbI=/400x300/fi
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
@@ -49,6 +49,10 @@ Lifewire / Danny Chadwick
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Danny Chadwick
 
 [View On Amazon](https://www.amazon.com/dp/B07DW7W51T/?tag=lifewire-onsite-prod-20&ascsubtag=4770582%7Cn71152a6f6b7242f1815da90e8e97d54a08%7CB07DW7W51T) [View On Walmart](https://www.walmart.com/ip/Z-EDGE-Z3-Plus-1440P-A12-Chipset-3-Inch-Screen-Dash-Cam/213396513)
@@ -73,10 +77,6 @@ Lifewire / Danny Chadwick
  It has a couple of minor drawbacks, like only having one[choice for mounting](https://www.lifewire.com/best-car-gps-trackers-4158961) and a mere 20-minute battery life when not connected to power. But if you’re in the market for a dashcam, the Z3 Plus should be among the devices you’re considering.
 
  Lifewire / Danny Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Design: Small but solid**
 
@@ -104,10 +104,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Super straightforward**
 
  If you’re even passingly familiar with digital cameras, you can have the Z3 Plus set up and ready to go within a few minutes of taking it out of the box. And while you should read the user manual before turning it on, you probably won’t run into any major difficulties if you don’t. The most time-consuming part of the setup is running the power cable up and around your windshield so it’s not dangling down to the power supply while you drive. This requires you to tuck the cord under your car’s upholstery and panels, which takes about 20 minutes to complete.
@@ -117,6 +113,10 @@ Lifewire / Danny Chadwick
  The user manual is excellent, detailed and provides comprehensive instructions for all the features this dashcam offers—this is worth mentioning because some other cameras we tested have subpar instructions.
 
  Lifewire / Danny Chadwick
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Camera Quality: Beyond high definition**
 
@@ -139,16 +139,12 @@ Lifewire / Danny Chadwick
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Competition: Z-Edge Z3 Plus vs. Apeman C450 Dash Camera**
 
@@ -165,6 +161,10 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,20 +198,24 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-getting-acquainted-with-periscope-costs-benefits-and-account-creation-for-2024/"><u>[New] Getting Acquainted with Periscope Costs, Benefits & Account Creation for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-adapting-tiktok-for-twitter-posts/"><u>[New] In 2024, Adapting TikTok for Twitter Posts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-the-essentials-for-effective-free-timer-utilization/"><u>2024 Approved The Essentials for Effective Free Timer Utilization</u></a></li>
-<li><a href="https://article-helps.techidaily.com/are-camera-shakes-less-troublesome-after-photostable-effects-for-2024/"><u>Are Camera Shakes Less Troublesome After PhotoStable Effects for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-precision-timing-a-comprehensive-review-of-the-philips-hf3520-alarm-clock/"><u>Cost-Effective Precision Timing: A Comprehensive Review of the Philips HF3520 Alarm Clock</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/dells-futuristic-marvel-an-insightful-analysis-of-the-alienware-aurora-r9s-exceptional-design-and-power-for-gamers/"><u>Dell's Futuristic Marvel - An Insightful Analysis of the Alienware Aurora R9's Exceptional Design and Power for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-the-ring-video-doorbell-2-is-crowned-as-number-one-in-our-review/"><u>Discover Why the Ring Video Doorbell 2 Is Crowned as Number One in Our Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/illuminating-studios-with-studiofxs-large-kit/"><u>Illuminating Studios with StudioFX's Large Kit</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Apple iPhone XS | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-samsung-galaxy-a34-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Samsung Galaxy A34 5G to Latest Samsung | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-oneplus-open-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of OnePlus Open Phone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sonic-selection-tips-5-important-points/"><u>Sonic Selection Tips: 5 Important Points</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-economical-hd-experience-with-hc-v770/"><u>The Economical HD Experience with HC-V770</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-gaomon-pd1560-stylus-tablet-a-complete-guide/"><u>Unveiling the Features of Gaomon PD1560 Stylus Tablet - A Complete Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/wat-bedrijfsvoorschriften-zijn-en-hoe-ze-verschillen-van-gebruiksvoorwaarden/"><u>Wat Bedrijfsvoorschriften Zijn en Hoe Ze Verschillen Van Gebruiksvoorwaarden</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-constructing-a-premium-video-editing-pc-from-the-ground-up-for-2024/"><u>[Updated] Constructing a Premium Video Editing PC From the Ground Up for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-personalize-videos-adding-captions-in-the-photos-app/"><u>[Updated] How to Personalize Videos Adding Captions in the Photos App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-visualconstruct-pro-for-2024/"><u>[Updated] VisualConstruct Pro for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/caixuns-budget-4k-smart-tv-for-large-screens-in-depth-evaluation/"><u>Caixun's Budget 4K Smart TV for Large Screens – In-Depth Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsn-scansnap-ix1600-evaluation-the-ultimate-workstation-document-scanner/"><u>Comprehensive Fujitsn ScanSnap iX1600 Evaluation: The Ultimate Workstation Document Scanner</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/download-all-youtube-images-for-free-in-2024/"><u>Download All YouTube Images for Free, In 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/effective-solutions-for-continuous-lags-and-pauses-in-overwatch-gameplay/"><u>Effective Solutions for Continuous Lags & Pauses in Overwatch Gameplay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-literary-adventures-with-style-review-of-kobo-clara-hds-unmatched-portability-and-ease/"><u>Embrace Literary Adventures with Style: Review of Kobo Clara HD's Unmatched Portability and Ease</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-rt-ac68u-a-comprehensive-look-at-its-speedy-and-secure-wi-fi-capabilities/"><u>Evaluating the Asus RT-AC68U: A Comprehensive Look at Its Speedy and Secure Wi-Fi Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-differences-between-apple-watch-series-9-and-fitbit-charge-6-which-wins/"><u>Exploring the Differences Between Apple Watch Series 9 and Fitbit Charge 6 – Which Wins?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-barnes-and-nobles-nook-glowlight-3-a-bright-choice-for-night-readers/"><u>Exploring the Features of Barnes & Noble's Nook GlowLight 3 - A Bright Choice for Night Readers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-review-acer-chromebook-r-11-perfect-blend-of-style-and-portability/"><u>In-Depth Review: Acer Chromebook R 11 – Perfect Blend of Style & Portability</u></a></li>
+<li><a href="https://techtrends.techidaily.com/is-roblox-not-responding-finding-out-whether-its-server-downtime-or-your-internet-connection/"><u>Is Roblox Not Responding? Finding Out Whether It's Server Downtime or Your Internet Connection</u></a></li>
+<li><a href="https://extra-information.techidaily.com/master-guide-to-unrestricted-digital-vaults/"><u>Master Guide to Unrestricted Digital Vaults</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-with-the-ultimate-anker-superspeed-usb-hub-evaluation/"><u>Power Up with the Ultimate Anker SuperSpeed USB Hub Evaluation</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/premium-tools-for-transforming-m2ts-files-deliver-unparalleled-clarity-and-quality-in-video-conversion/"><u>Premium Tools for Transforming M2TS Files: Deliver Unparalleled Clarity and Quality in Video Conversion</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revamp-acer-graphics-via-windows-11-drivers-renewal/"><u>Revamp Acer Graphics via Windows 11 Drivers Renewal</u></a></li>
+<li><a href="https://article-tips.techidaily.com/slow-motion-showcase-top-cameras-with-unparalleled-snapshot-power/"><u>Slow-Motion Showcase Top Cameras with Unparalleled Snapshot Power</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultra-reliable-canon-speedlite-430ex-iii-rt-flash-test/"><u>Ultra Reliable Canon Speedlite 430EX III-RT Flash Test</u></a></li>
 </ul></div>
 

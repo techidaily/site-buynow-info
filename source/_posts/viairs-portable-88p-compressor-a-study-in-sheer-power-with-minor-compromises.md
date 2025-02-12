@@ -1,7 +1,7 @@
 ---
 title: "Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
-date: 2025-01-29T17:37:02.607Z
-updated: 2025-01-30T17:43:12.805Z
+date: 2025-02-05T21:35:20.758Z
+updated: 2025-02-11T22:05:24.588Z
 categories:
   - BestProducts
 description: "This Article Describes Viair's Portable 88P Compressor: A Study in Sheer Power with Minor Compromises"
@@ -42,6 +42,10 @@ thumbnail: https://thmb.techidaily.com/72d87bf38b3f988e318217c000305d7e3da283a04
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best Overall
 
 [Anker PowerCore+ 26800](https://www.amazon.com/dp/B07XRJZXKY?tag=lifewire-onsite-prod-20&ascsubtag=4050506%7Cnedb360c7a3544ee69bb7858a622a42bd18%7CB07XRJZXKY)
@@ -66,10 +70,6 @@ PHOTO: Amazon
 
 ![Anker PowerCore+](https://www.lifewire.com/thmb/_i-FntY6w2FTOeUIsfvpJiLc1SE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AnkerPowerCore-a9873c605cf5485699e0e159bcbd08f2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Gannon Burgett
 
  The Anker PowerCore+ power bank is TSA-approved and weighs about 1.5 pounds. Unlike many other laptop batteries, it’s surprisingly compact at 7.7 x 3.5 x 2.4 inches, making it an easy addition to your carry-on or commuter bag. And it holds a lot of power for its size.
@@ -79,7 +79,7 @@ Lifewire / Gannon Burgett
 [Anker PowerCore+ 26800 Battery Pack Bundle Review](https://www.lifewire.com/anker-powercore-26800-battery-pack-bundle-review-4589459)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## High Capacity
@@ -109,15 +109,15 @@ PHOTO: Amazon
 
 ![Halo Bolt ACDC 58830](https://www.lifewire.com/thmb/mUdXUjWxeupVqNR_y43_eFTC0ic=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Halo-02-69b93dc934684ef5b71a40215f6162f2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Andrew Hayward
 
  The jumper cable features over-voltage protection, auto power off, short circuit protection, reverse polarity protection, reverse current protection, timer circuit protection, and jumper cable spark protection. The charger also doubles as a car emergency kit. It has an LED light, jumper cables, and a carrying pouch, making it an excellent tool for your glove box.
 
 [Halo Bolt Portable Charger/Jump Starter Review](https://www.lifewire.com/halo-bolt-portable-charger-jump-starter-review-5071993)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Versatile
 
@@ -145,6 +145,10 @@ PHOTO: Amazon
 
 ![Max Oak](https://www.lifewire.com/thmb/2J2B95OEgddwTnTPqs5dxy5QN28=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/maxoak-5x4-5db32562b89e462f84a77a28b9065dfa.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifewire / Gannon Burgett
 
  Our tester also liked that it measures 8.1 x 5.3 x 1.3 inches and weighs 2.77 pounds, so it could easily fit into your camping bag and won’t be that much heavier. Finally, it includes 14 types of laptop connectors, so it covers most models but not those powered via[USB-C](https://www.lifewire.com/usb-c-4149490) .
@@ -157,11 +161,11 @@ Lifewire / Gannon Burgett
 
 Lifewire / Andrew Hayward
 
-## What to Look For in a Portable Laptop Battery Charger
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+## What to Look For in a Portable Laptop Battery Charger
 
 ### Capacity
 
@@ -176,10 +180,6 @@ Lifewire / Andrew Hayward
  It’s critical to ensure you can plug your laptop into your new portable charger. Check the type of inputs the charger supports—whether that’s a standard wall outlet plug, a USB-C port, or other universal solutions.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -223,19 +223,16 @@ Tell us why!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-unveiling-the-most-shared-stock-photos-and-backstories/"><u>[New] In 2024, Unveiling the Most Shared Stock Photos & Backstories</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-best-camera-stabilizers-for-youtuber/"><u>[Updated] 2024 Approved Best Camera Stabilizers for YouTuber</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-unveiling-professional-hdr-magic-in-adobes-photoshop/"><u>[Updated] 2024 Approved Unveiling Professional HDR Magic in Adobe's Photoshop</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-realme-note-50-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Realme Note 50 Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-the-unsuccessful-capture-problem-in-win11/"><u>Addressing the 'Unsuccessful Capture' Problem in Win11</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-viber-out-app-assessment-pros-and-cons/"><u>Comprehensive Viber Out App Assessment: Pros and Cons</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/effortless-meal-times-with-arf-pets-autofeeder/"><u>Effortless Meal Times with Arf Pet's AutoFeeder</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-itel-p55-5g-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Itel P55 5G?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/24-top-earners-in-youtube-enterprises/"><u>In 2024, Top Earners in YouTube Enterprises</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlocking-the-full-potential-of-video-creation-with-vida/"><u>In 2024, Unlocking the Full Potential of Video Creation with Vida</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-and-rating-the-ultimate-test-for-anthropics-smart-photo-editor-software/"><u>In-Depth Analysis & Rating: The Ultimate Test for Anthropics Smart Photo Editor Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-budget-friendly-display-md2380-guide/"><u>Mastering Budget-Friendly Display - MD2380 Guide</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/secrets-to-purchasing-the-apple-vision-pro-expert-buying-guide-and-achieving-perfect-facial-recognition/"><u>Secrets to Purchasing the Apple Vision Pro: Expert Buying Guide & Achieving Perfect Facial Recognition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-review-of-the-portable-zmi-powerpack-with-20000mah-is-it-worth-it/"><u>Top Review of the Portable ZMI PowerPack with 20,000mAh - Is It Worth It?</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-professional-framing-methods-using-letterbox-and-black-bar-on-social-networks/"><u>[Updated] 2024 Approved Professional Framing Methods Using Letterbox & Black Bar on Social Networks</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-expert-advice-yt-clip-sharing-using-your-google-id/"><u>[Updated] In 2024, Expert Advice YT Clip Sharing Using Your Google ID</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/developing-virtual-replicas-building-digital-twins-via-bsv-blockchain-technology-by-trace-and-yl-computing/"><u>Developing Virtual Replicas: Building Digital Twins via BSV Blockchain Technology by Trace & YL Computing</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722862279230-diy-tech-support-correcting-iphone-remote-app-hiccups-on-apple-tv-or-mac/"><u>DIY Tech Support: Correcting iPhone Remote App Hiccups on Apple TV or Mac</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-tecno-camon-30-pro-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Tecno Camon 30 Pro 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fire-tablet-showdown-how-it-stands-against-apples-ipad/"><u>Fire Tablet Showdown: How It Stands Against Apple's iPad</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-affordable-and-effective-1byone-amplified-tv-antenna-for-indoors/"><u>In-Depth Analysis of the Affordable and Effective 1Byone Amplified TV Antenna for Indoors</u></a></li>
+<li><a href="https://win11.techidaily.com/instant-access-toggle-microsofts-ai-on-windows-11-keyboard-shortcuts/"><u>Instant Access: Toggle Microsoft's AI on Windows 11 Keyboard Shortcuts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redefining-android-excellence-through-the-google-pixel-3-user-experience/"><u>Redefining Android Excellence Through the Google Pixel 3 User Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/strategic-selection-evaluating-video-capture-devices/"><u>Strategic Selection: Evaluating Video Capture Devices</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-fitbit-charge-4-merging-modern-style-with-robust-features/"><u>The Ultimate Guide to Fitbit Charge 4: Merging Modern Style with Robust Features</u></a></li>
 </ul></div>
 

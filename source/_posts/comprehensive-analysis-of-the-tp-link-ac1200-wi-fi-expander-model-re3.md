@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Analysis of the TP-Link AC1200 Wi-Fi Expander, Model RE3
-date: 2024-08-26T06:21:55.404Z
-updated: 2024-08-27T06:21:55.404Z
+date: 2025-02-08T20:42:43.550Z
+updated: 2025-02-11T16:44:57.863Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive Analysis of the TP-Link AC1200 Wi-Fi Expander, Model RE3
@@ -14,11 +14,16 @@ thumbnail: https://www.lifewire.com/thmb/u5Qf7KbfeDnZm8gfCxaxy8baBY0=/400x300/fi
 4.2
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/CeiJTW7zTopZdtR_zhtXz9_P-Mw=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Gannon Burgett
 
@@ -40,9 +45,6 @@ Lifewire / Gannon Burgett
 
 4.2
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## MAXOAK 185Wh/50000mAh External Battery Power Bank
 
 ![Max Oak](https://www.lifewire.com/thmb/0sYGw-7sF6j5aqPA13sWjU-Y2b4=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_5WebHero-5c8ff106c9e77c0001a926f8.jpg)
@@ -73,10 +75,6 @@ Lifewire / Gannon Burgett
 
  First and foremost, this thing is a tank. At 2.77 pounds, it weighs many times more than most smartphones and nearly as much as most compact laptops. It also measures in at 8.1 x 5.3 x 1.3 inches (HWD), making it quite the behemoth to lug around. A small detail regarding the weight of the MaxOak is that it isn't balanced. The side without the ports holds a fair bit more weight than the side with the various ports. It's not a significant detail, but one you might notice with time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![Max Oak](https://www.lifewire.com/thmb/SHsB9QkFaBbOrU6sw55TzNOqC7o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4050506-1_4Web-5c8ff4adc9e77c0001ff0b36.jpg)
 
  Lifewire / Gannon Burgett
@@ -89,14 +87,15 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  Charging the device is done via a small 16.8-volt 2.5A plug-in style port on the opposite side of the power button. Overall, the design is roughly what you'd expect from a 50000mAh laptop battery charger. Yes, it's heavy, yes it's quite beefy in size, but it comes with the territory.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Simple to start, but yet another adapter to carry around**
 
  Setting up the MaxOak laptop battery charger is as simple as it gets. After removing it from its unbranded cardboard box, it's simply a matter of plugging it in and getting it charged up completely. Our device came charged at roughly 50% based on the onboard[LED](https://www.lifewire.com/what-does-led-stand-for-4153820) battery indicator, but to complete our tests we wanted it charged entirely, which leads us to our biggest complaint about this charger.
 
  The point of a charger is to have extra battery power on hand when needed so you don't have to carry around unnecessary cables when traveling. Unfortunately, the MaxOak battery pack doesn't use any kind of USB or standardized port. Rather than charging it with a[USB Type-C](https://www.lifewire.com/usb-c-4149490) or even a micro-USB port, the MaxOak battery pack relies on its own proprietary power supply that's nearly as large as most laptop chargers. Sure, the 50000mAh onboard is likely enough that you could leave both the battery pack charger and your laptop charger behind for most events, but eventually you'll run out of juice and rather than reaching for a cable you would probably already have in your bag, you're stuck bringing along a proprietary charger.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Charging Speed and Battery: Slow and steady wins this race**
 
@@ -117,8 +116,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Moving onto laptops, our ASUS X555LA was able to be charged four and a half times from 0% with the MaxOak power bank, with an average charge time of three hours or so. The ASUS X555LA has a relatively small battery compared to most laptops, which means it falls in line with MaxOak’s claims that its power bank can charge a laptop two times over give or take a little.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Price: Right down the middle**
 
  The MaxOak 50000mAh power bank comes in at $135.99 at the time of this review. This is a reasonable price when taking into consideration how much battery capacity you're getting with it.
@@ -140,8 +140,9 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  Overall, the MaxOak 50000mAh is a decent power bank with massive capacity. However, it isn't designed with newer computers and devices in mind. If you have an older laptop on hand that isn't a MacBook (the MaxOak doesn't support any MagSafe connectors) or doesn't use USB Type-C for charging, it'll get the job done. But if your smartphone or laptop is newer and relies on more recent and powerful connections, you're going to want to look elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Jackery PowerBar Battery Pack](https://www.lifewire.com/jackery-powerbar-battery-pack-review-4589480)
@@ -163,14 +164,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * Warranty  One year
 * Compatibility  Android, iOS
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +177,26 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/he-roadmap-how-youtube-is-cultivating-a-flourishing-short-form-video-culture-for-2024/"><u>[New] The Roadmap How YouTube Is Cultivating a Flourishing Short-Form Video Culture for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-revolutionize-your-ig-feed-with-these-elite-grid-creation-apps/"><u>[Updated] 2024 Approved Revolutionize Your IG Feed with These Elite Grid Creation Apps</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-evaluating-cybernetic-screen-recorder-functionality/"><u>2024 Approved Evaluating Cybernetic Screen Recorder Functionality</u></a></li>
+<li><a href="https://techtrends.techidaily.com/m4acafmovavi/"><u>線上自由改成M4A格式的CAF音頻：使用Movavi優化編碼</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazons-e-readers-and-tablets-faceoff-the-essential-contrast-between-kindle-and-fire/"><u>Amazon's E-Readers and Tablets Faceoff: The Essential Contrast Between Kindle and Fire</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-skagen-falster-2-assessment-sophisticated-competition-for-iphones/"><u>Comprehensive Skagen Falster 2 Assessment: Sophisticated Competition for iPhones</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enhancing-game-experience-with-voice-alteration-on-ps45/"><u>Enhancing Game Experience with Voice Alteration on PS4/5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-new-windows-11-against-current-operating-system/"><u>Evaluating New Windows 11 Against Current Operating System</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/get-animated-top-free-software-for-windows-mac-and-beyond/"><u>Get Animated Top Free Software for Windows, Mac, and Beyond</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-gracefully-move-from-mojavehigh-sierra-to-catalina/"><u>How to Gracefully Move From Mojave/High Sierra to Catalina</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/how-to-upgrade-to-ios-15/"><u>How to Upgrade to iOS 15</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-360-camera-rigsmounts-for-vr-video-production/"><u>In 2024, 360 Camera Rigs/Mounts for VR Video Production</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/instagram-videos-wandering-why-angles-change-for-2024/"><u>Instagram Videos Wandering - Why Angles Change for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-world-of-gaming-consoles-top-5-considerations-every-buyer-needs-to-know/"><u>Navigating the World of Gaming Consoles: Top 5 Considerations Every Buyer Needs to Know</u></a></li>
+<li><a href="https://win-dash.techidaily.com/the-ultimate-walkthrough-for-upgraded-xp-pen-driver-installation/"><u>The Ultimate Walkthrough for Upgraded XP-Pen Driver Installation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-verdict-on-the-dell-inspiron-3671-an-expert-take-on-an-affordable-desktop-unit/"><u>The Verdict on the Dell Inspiron 3671: An Expert Take on an Affordable Desktop Unit</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-tier-audio-premium-cd-players-and-changers-24-edition/"><u>Top-Tier Audio: Premium CD Players & Changers '24 Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vtech-kidizoom-cam-joy-for-kids/"><u>VTech Kidizoom Cam: Joy for Kids</u></a></li>
+<li><a href="https://fox-access.techidaily.com/vuephoto-intelligent-design-demo/"><u>VuePhoto Intelligent Design Demo</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2025-01-29T17:00:08.042Z
-updated: 2025-01-30T17:41:37.882Z
+date: 2025-02-10T21:52:46.260Z
+updated: 2025-02-11T23:01:44.801Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/48b04798818f256a08d1adf91e6795699ee9e8d50
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/lRf4MewZgHR7jJoirox43xON-Ds=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -48,17 +44,9 @@ Lifewire / Yoona Wagener
 
 3.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Withings Withings Move Hybrid Smartwatch
 
 ![Withings Move](https://www.lifewire.com/thmb/0q_63hnHYzqQ5_H2Q2RzjXF5Nls=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW4161013-1-a308b649704344f6b5fd15dc900e5742.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Yoona Wagener
 
@@ -87,14 +75,10 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/SRCqvDOet8fouJ8uY8ze0LlCiog=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-2-1fdc9f06eb6a45f2baa2b840822fba5d.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Design: Slim and clean**
@@ -115,6 +99,10 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process** :**As easy as 1-2-3**
 
  Given such a simple and clean design, it’s natural to expect the setup process to be the same. We found that to be the case.
@@ -124,6 +112,10 @@ Lifewire / Yoona Wagener
  The first thing we had to do was sign up for an account in order to move forward with the installation. After we did that, most of the steps took just a few seconds or up to a minute at the longest.
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Comfort: Light as a feather, even while sleeping**
 
@@ -135,7 +127,15 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Yoona Wagener
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Performance: Limited activity tracking**
 
@@ -163,6 +163,10 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Software: An emphasis on general wellness**
 
  Though activity data is somewhat limited, the Withings Move does offer some other more in-depth insights. Sleep activity, for example, is automatically detected and doesn’t require any other action besides wearing the watch while sleeping. When you wake in the morning, you’ll be able to view your quality of sleep for the previous night based on the number of interruptions, duration, and even depth of sleep. There is a hiccup with this feature, though—we noticed when we took it off at our desk one morning, it seemed to think we had fallen back asleep and continued reading our sleep quality.
@@ -180,10 +184,6 @@ Lifewire / Yoona Wagener
  The Withings Move retails for $69.95, which is an attractive and affordable price for a hybrid smartwatch—most competitors tend to be well above $100\. While these other models, like the Fossil Harper and Fossil Q Commuter, typically come with more functionality like music storage or streaming, notifications, or taking a picture from your phone, there’s also a bigger price associated with those features.
 
  Those looking for a dressier and more substantial watch may find these Fossil models to be better alternatives. Other devices that are comparable in price, like the Fitbit Inspire Fitness Tracker, lack the analog watch qualities and look like designated activity trackers. The Withings Move splits the difference at a modest price.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Withings Move vs. Misfit Phase**
 
@@ -226,22 +226,19 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-paper-trail-windows-1087-snapshot-techniques-for-2024/"><u>[New] Paper Trail Windows 10/8/7 Snapshot Techniques for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-sky-drones-their-genres-for-2024/"><u>[Updated] Sky Drones Their Genres for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/beatfinder-tools-tune-in-to-online-freshness-for-2024/"><u>Beatfinder Tools Tune in to Online Freshness for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/bridging-the-gap-between-zoom-and-social-media-streams/"><u>Bridging the Gap Between ZOOM and Social Media Streams</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/bypass-the-error-in-google-chrome-easily-fix-errnamenotresolved/"><u>Bypass the ERROR in Google Chrome – Easily Fix 'ERR_NAME_NOT_RESOLVED'</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/enhance-user-experience-with-cutting-edge-cookiebot-technology/"><u>Enhance User Experience with Cutting-Edge Cookiebot Technology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-changes-in-watch-dogs-a-comprehensive-review-of-legions-unique-locale/"><u>Exploring the Changes in Watch Dogs - A Comprehensive Review of Legion's Unique Locale</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/galaxy-tab-s3-evaluated-is-this-device-still-relevant/"><u>Galaxy Tab S3 Evaluated: Is This Device Still Relevant?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-apple-iphone-14-pro-max-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From Apple iPhone 14 Pro Max Lock Screen</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-techno-gamers-income-revolution/"><u>In 2024, Techno Gamers' Income Revolution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-fitbit-charge-4/"><u>In-Depth Analysis of the Fitbit Charge 4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-choices-your-complete-ipad-side-by-side-analysis/"><u>Mastering Choices: Your Complete iPad Side-by-Side Analysis</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/secure-the-future-upgrading-windows-10-to-11-protocols/"><u>Secure the Future: Upgrading Windows 10 To 11 Protocols</u></a></li>
-<li><a href="https://games-able.techidaily.com/smartphone-epic-quests-in-these-mmo-titles/"><u>Smartphone Epic Quests in These MMO Titles</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-clearstream-2v-indooroutdoor-antenna-for-hd-tvs-a-stylish-solution-with-superior-performance/"><u>The Ultimate Guide to the ClearStream 2V Indoor/Outdoor Antenna for HD TVs - A Stylish Solution with Superior Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-dji-mavic-3-revolutionizing-drone-photography-reviewed/"><u>The Ultimate Guide to the DJI Mavic 3 – Revolutionizing Drone Photography Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/wireless-vibes-exploring-audio-technicas-bk-turntable/"><u>Wireless Vibes: Exploring Audio-Technica's BK Turntable</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-architecting-top-quality-canon-chrono-films/"><u>[New] Architecting Top Quality Canon Chrono Films</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-exploring-vidmas-screen-capture-tool/"><u>[Updated] Exploring Vidma's Screen Capture Tool</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-from-idea-to-impact-solo-podcasts-that-resonate/"><u>[Updated] From Idea to Impact Solo Podcasts that Resonate</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-metavision-uncovered-analyzing-6-compelling-metaverse-cases/"><u>[Updated] Metavision Uncovered Analyzing 6 Compelling Metaverse Cases</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-mobvoi-ticwatch-pro-4g-redefining-connectivity-on-your-wrist/"><u>Comprehensive Review: Mobvoi Ticwatch Pro 4G - Redefining Connectivity on Your Wrist</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-data-workflow-chatgpts-6-essential-uses/"><u>Enhancing Data Workflow: ChatGPT's 6 Essential Uses</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-chargetech-27000mah-portable-charger-unveiled/"><u>Expert Insights on the ChargeTech 27000mAh Portable Charger – Unveiled</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/instant-access-to-microsoft-wireless-mouse-5000-drivers-download-now-for-smooth-operation/"><u>Instant Access to Microsoft Wireless Mouse 5000 Drivers: Download Now for Smooth Operation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-go-assessment-the-perfect-blend-of-economy-and-portability-in-an-ultrabook/"><u>Microsoft Surface Laptop Go Assessment - The Perfect Blend of Economy and Portability in an Ultrabook</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/quick-tricks-for-resolving-youtube-video-playback-failures-easily/"><u>Quick Tricks for Resolving YouTube Video Playback Failures Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-timeless-appeal-of-lg-watch-style-an-in-depth-review-of-the-established-wear-os-20-smartwatch-range/"><u>The Timeless Appeal of LG Watch Style: An In-Depth Review of the Established Wear OS 2.0 Smartwatch Range</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-your-wellbeing-potential-with-fitbit-versa-2-the-wearable-that-combines-activity-tracking-excellence-and-smartwatch-brilliance/"><u>Unlocking Your Wellbeing Potential with Fitbit Versa 2 - The Wearable that Combines Activity Tracking Excellence and Smartwatch Brilliance</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1780627-9780804151306-vibrational-healing-through-the-chakras/"><u>Vibrational Healing Through the Chakras | Free Book</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-xiaomi-redmi-13c-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Xiaomi Redmi 13C 5G? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

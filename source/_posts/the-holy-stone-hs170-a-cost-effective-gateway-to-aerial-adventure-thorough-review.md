@@ -1,7 +1,7 @@
 ---
 title: "The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
-date: 2025-01-23T17:04:10.438Z
-updated: 2025-01-30T16:17:07.480Z
+date: 2025-02-09T18:44:15.468Z
+updated: 2025-02-11T20:50:17.759Z
 categories:
   - BestProducts
 description: "This Article Describes The Holy Stone HS170: A Cost-Effective Gateway to Aerial Adventure - Thorough Review"
@@ -18,16 +18,12 @@ thumbnail: https://thmb.techidaily.com/e788f79a8684ff135a50b06576e0943a8c2779cab
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ELScEGCr-PHwUavU-zwNQVSC8z8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
@@ -50,9 +46,17 @@ Lifewire / Zach Sweat
 
 4.2
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Nintendo Switch Lite
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/ral6yRtba1CN2dg2W4Log4OcjAg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Nintendo-Switch-Lite-1-66fc3642c4d448b18f4a0775c059247d.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -82,6 +86,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Cute and compact**
 
  It's hard not to swoon at the sight of the Switch Lite. The handheld console is cute and compact, featuring unique color options, bright white buttons, and joysticks wrapped around a downsized screen. The whole unit is about the size of a beefy phablet. The screen alone is about the size of an iPhone SE.
@@ -110,10 +118,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Hit the switch**
 
  If you’ve set up a previous Switch console in the past, the process here is mostly the same, but it’s even easier since there are no Joy-Cons.
@@ -139,10 +143,6 @@ Lifewire / Zach Sweat
  For example, if you set the Switch Lite as your primary system, nobody can play games you've bought and downloaded on your home Switch unless they log into your account. You could always keep that other Switch as your primary, but then your Switch Lite will need Wi-Fi to access titles. It's easy to see the problem there, but apparently, Nintendo doesn't.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -183,7 +183,7 @@ Lifewire / Zach Sweat
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/KxMaFgooi4rm3qbImmLKatuUtVI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-4-ef84dbbbde3d48ff97515e5c6b9981a4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -206,6 +206,10 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -227,10 +231,6 @@ Lifewire / Zach Sweat
  The Switch Lite has an MSRP of $200, which is a pretty good value. It plays all the same games as the original Switch at a significantly lower price and is much more portable. You do lose the ability to dock it; for some people, that feature will be worth the extra $100.
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
 
@@ -255,7 +255,7 @@ Lifewire / Zach Sweat
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -300,24 +300,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/024-approved-ultimate-user-handbook-youtube-conduct-codes/"><u>[New] 2024 Approved Ultimate User Handbook YouTube Conduct Codes</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-professional-techniques-to-streamline-video-capture-on-computers-and-phones/"><u>[New] Professional Techniques to Streamline Video Capture on Computers & Phones</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-explore-and-review-free-powerful-and-user-friendly-ios-edits/"><u>[Updated] In 2024, Explore & Review Free, Powerful, and User-Friendly iOS Edits</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-magix-acid-pro-unveiled-assessing-comparable-software/"><u>[Updated] Magix ACID Pro Unveiled Assessing Comparable Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/aquaresonance-review-sturdy-deep-water-audio/"><u>AquaResonance Review: Sturdy Deep-Water Audio</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-mobile-gaming-experience-on-iphone-models-a-comparison/"><u>Best Mobile Gaming Experience on iPhone Models – A Comparison</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-viewing-discover-petcubes-value-hd-cam/"><u>Budget-Friendly Viewing - Discover Petcube's Value HD Cam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/clever-design-meets-functionality-in-the-twelve-south-bookbook-v2-macbook-protector-a-detailed-look/"><u>Clever Design Meets Functionality in the Twelve South BookBook V2 MacBook Protector - A Detailed Look</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-opinion-on-the-latest-apple-watch-series-nine-features-and-performance/"><u>Expert Opinion on the Latest Apple Watch Series Nine Features and Performance</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-effortless-free-extraction-of-youtube-desktops/"><u>In 2024, Effortless Free Extraction of YouTube Desktops</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-step-by-step-tutorial-download-youtube-videos-in-pieces/"><u>In 2024, Step-by-Step Tutorial Download YouTube Videos in Pieces</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-infinix-note-30-5g-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Infinix Note 30 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-it-sensible-to-replace-idevice-power-units/"><u>Is It Sensible to Replace iDevice Power Units?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/on-the-road-and-on-a-budget-the-best-bluetooth-earpiece-guide-for-drivers/"><u>On the Road and on a Budget: The Best Bluetooth Earpiece Guide for Drivers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/optimal-zooctorial-design-arrays-for-2024/"><u>Optimal Zooctorial Design Arrays for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/showdown-of-tech-titans-iphone-15-plus-versus-pro-max-specifications/"><u>Showdown of Tech Titans: IPhone 15 Plus Versus Pro Max Specifications</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/start-broadcasting-now-instagram-live-guide-for-2024/"><u>Start Broadcasting Now Instagram Live Guide for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Nokia XR21 | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-microsoft-surface-laptop-4-analysis-top-of-the-line-performance/"><u>Ultimate Microsoft Surface Laptop 4 Analysis: Top-of-the-Line Performance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-power-of-tags-boost-traffic-with-top-genres-and-keywords/"><u>[New] 2024 Approved The Power of Tags Boost Traffic with Top Genres & Keywords</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-economical-microphones-catered-to-vloggers/"><u>[Updated] In 2024, Economical Microphones Catered to Vloggers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-fine-art-of-instagram-photo-borders-for-2024/"><u>[Updated] Mastering the Fine Art of Instagram Photo Borders for 2024</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/active-partition-4windows-11/"><u>Active Partitionが見つからず? 4つのWindows 11リカバリ方法</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-and-equipped-the-comprehensive-review-of-motorolas-moto-g-with-a-built-in-stylus-feature/"><u>Affordable and Equipped: The Comprehensive Review of Motorola's Moto G with a Built-In Stylus Feature</u></a></li>
+<li><a href="https://win-dash.techidaily.com/complete-guide-to-overcoming-hp-beats-sound-driver-complications-in-microsoft-windows-win-1087-solutions-explored/"><u>Complete Guide to Overcoming HP Beats Sound Driver Complications in Microsoft Windows: Win 10/8/7 Solutions Explored</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-samsung-galaxy-s21-experience-is-it-a-simplified-masterpiece/"><u>Decoding the Samsung Galaxy S21 Experience: Is It a Simplified Masterpiece?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-selection-of-premium-17-inch-laptops-dominating-2024/"><u>Elite Selection of Premium 17-Inch Laptops Dominating 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-the-features-of-the-wide-screened-acer-chromebook-15-thorough-review-inside/"><u>Navigating the Features of the Wide-Screened Acer Chromebook 15 - Thorough Review Inside</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/razer-portal-unveiled-top-wireless-gaming-headset-for-pro-players/"><u>Razer Portal Unveiled: Top Wireless Gaming Headset for Pro Players</u></a></li>
+<li><a href="https://program-issues.techidaily.com/the-impact-of-new-features-on-fortnite-gameplay-analyzing-fps-drops-in-season-8/"><u>The Impact of New Features on Fortnite Gameplay: Analyzing FPS Drops in Season 8</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-secret-sauce-of-successful-pixlr-editing/"><u>The Secret Sauce of Successful Pixlr Editing</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlocking-iphone-12-lock-screen-3-foolproof-methods-that-actually-work-by-drfone-ios/"><u>Unlocking iPhone 12 Lock Screen 3 Foolproof Methods that Actually Work</u></a></li>
 </ul></div>
 
