@@ -1,7 +1,7 @@
 ---
 title: Ultimate Performance Evaluation of the Beatit BT-D11 Portable Power Booster
-date: 2025-01-17T22:49:14.150Z
-updated: 2025-01-23T01:14:39.102Z
+date: 2025-02-26T20:37:57.759Z
+updated: 2025-03-02T16:22:25.577Z
 categories:
   - BestProducts
 description: This Article Describes Ultimate Performance Evaluation of the Beatit BT-D11 Portable Power Booster
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## M MOOCK Car Jump Starter
 
@@ -52,10 +48,6 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 
 ![M Moock 1000A Peak 18000mAh Car Jump Starte](https://www.lifewire.com/thmb/9HsjvcJhUjJuGMXLaAGh2B_0bAw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Aickar_JumpStarter_4LW4140286_HeroSquare-0eb4274af8f64008b1e98e3623623d4a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Tony Mitera
 
 [View On Amazon](https://www.amazon.com/dp/B01J5G8PF6?tag=lifewire-onsite-prod-20&ascsubtag=4784187%7Cn5b3e21016e6a46bd90a6c5a5191206c707%7C)
@@ -81,10 +73,6 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
 
  Lifewire / Tony Mitera
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: A rugged unit, a generous accessory kit, and a sturdy case to keep it all in**
 
  As mentioned, the M MOOCK's case packs a lot of style, but it's not just flash—it also provides a convenient place to keep everything together. The jump starter unit itself is thin but long, so the case ends up being a relatively large square. You can stash it under a seat without any issue, but it won't fit in most glove boxes.
@@ -94,10 +82,6 @@ thumbnail: https://www.lifewire.com/thmb/WaQccuDgEDQrf-_lRLuP4CumW3g=/400x300/fi
  Positioning the M MOOCK to jump start a car is a little more difficult than it needs to be.
 
  The accessory kit that comes with the unit is full-bodied. The main piece is the jump starter module which has the two jumper clamps coming off a plastic module that plugs into the unit. To charge the unit you can choose to use either a wall charger for home use or a power port charger for use within a running vehicle. Finally, a set of laptop port adapters and a short DC cable to use with them can be used to[charge your laptop](https://www.lifewire.com/overcharging-laptop-battery-causes-life-span-to-decrease-2378126) or similar device.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: It takes time to find a spot just right to set up for a jump**
 
@@ -116,10 +100,6 @@ An inexpensive option considering what it can do.
  Plug a phone into the 5V/2A USB port and you’ll find that it delivers a charge rate of 1,200mAh, fast enough to rapidly top off even the thirstiest phones. For example, the Samsung Galaxy S10 would charge it from fully depleted to full in just over three hours. With the unit’s 18,000mAh capacity you could, in theory, do that repeatedly, but it's recommended to leave at least 50 percent of the unit’s battery for jump starts.
 
 Lifewire / Tony Mitera
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Key Features: A bright flashlight, but in a decidedly narrow band**
 
@@ -179,21 +159,18 @@ A good choice with just a few nagging flaws.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-achieving-perfect-silence-swaps-with-reaper/"><u>[New] 2024 Approved Achieving Perfect Silence Swaps with Reaper</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-crafting-facebook-slideshow-an-instagram-style-storytelling-guide-for-2024/"><u>[New] Crafting Facebook SlideShow An Instagram-Style Storytelling Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-enjoy-your-content-youtube-shorts-are-shown-again-for-2024/"><u>[New] Enjoy Your Content – YouTube Shorts Are Shown Again for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-gain-traction-on-youtube-surpass-10000-viewer-count-for-affiliate-rewards-for-2024/"><u>[New] Gain Traction on YouTube - Surpass 10,000 Viewer Count for Affiliate Rewards for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/front-runners-in-4k-gaming-graphics/"><u>Front-Runners in 4K Gaming Graphics</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/future-proofing-your-privacy-apples-enhanced-protection-of-imessage-security-insights/"><u>Future-Proofing Your Privacy: Apple's Enhanced Protection of iMessage Security - Insights</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-f15-5g-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy F15 5G to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-itel-s23plus-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Itel S23+? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Gionee F3 Pro | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-barnes-and-nobles-nook-glowlight-plus-the-ultimate-large-screen-ereader/"><u>In-Depth Analysis of Barnes & Noble's Nook GlowLight Plus: The Ultimate Large-Screen Ereader</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-challenges-of-the-microsoft-surface-go-an-affordable-yet-ambiguous-tablet-option/"><u>Navigating the Challenges of the Microsoft Surface Go: An Affordable, Yet Ambiguous Tablet Option</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/power-meets-design-in-our-in-depth-look-at-the-apple-imacs-215-4k-display/"><u>Power Meets Design in Our In-Depth Look at the Apple iMac's 21.5” 4K Display.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ram-upgrade-for-enhanced-performance-on-personal-computers/"><u>RAM Upgrade for Enhanced Performance on Personal Computers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-home-connectivity-a-thorough-review-of-google-nest-wi-fis-lightning-fast-speeds-and-dependable-mesh-networking-solutions/"><u>Revolutionizing Home Connectivity: A Thorough Review of Google Nest Wi-Fi's Lightning-Fast Speeds and Dependable Mesh Networking Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/snapshotsphere-30x-review-impressive-but-expensive/"><u>SnapshotSphere 30X Review: Impressive, But Expensive</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/surprises-galore-diving-into-the-remarkable-journey-of-yokus-island-express/"><u>Surprises Galore: Diving Into the Remarkable Journey of Yoku's Island Express</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-masterful-methods-for-adding-melodies-to-ig-media/"><u>[New] Masterful Methods for Adding Melodies to IG Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-keep-your-digital-treasures-storing-insta-media-on-iphone/"><u>[Updated] 2024 Approved Keep Your Digital Treasures Storing Insta Media on iPhone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unveiling-the-power-of-tags-in-your-youtube-content/"><u>[Updated] 2024 Approved Unveiling the Power of Tags in Your YouTube Content</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-perfect-your-iphones-selfie-experience-the-10-finest-free-apps/"><u>[Updated] Perfect Your iPhone’s Selfie Experience The 10 Finest Free Apps</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dont-just-jump-think-about-it-pre-dvr-considerations-needed/"><u>Don't Just Jump, Think About It! Pre-DVR Considerations Needed</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/effortlessly-compact-exceptionally-capable-meet-the-acer-aspire-c27-all-in-one-workstation/"><u>Effortlessly Compact, Exceptionally Capable: Meet the Acer Aspire C27 All-in-One Workstation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elite-desktop-mouse-pads-rankings-of-2024-enhance-your-productivity-today/"><u>Elite Desktop Mouse Pads Rankings of 2024 - Enhance Your Productivity Today!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/embrace-a-healthier-lifestyle-with-the-versatile-and-stylish-samsung-galaxy-fit2-tracker/"><u>Embrace a Healthier Lifestyle with the Versatile and Stylish Samsung Galaxy Fit2 Tracker</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-americas-best-kept-secret-with-budget-karaoke-usa-unforgettable-singing-adventures-under-1-150/"><u>Explore America's Best-Kept Secret with Budget Karaoke USA - Unforgettable Singing Adventures Under $1 150</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-from-concepts-to-shares-your-guide-to-metaverse-meme-creation/"><u>In 2024, From Concepts to Shares Your Guide to Metaverse Meme Creation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/top-steadicams-for-exceptional-aerial-shots-with-drones/"><u>Top Steadicams for Exceptional Aerial Shots with Drones</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/top-utility-programs-to-enhance-your-computers-efficiency-find-the-best-options-with-yl-computing/"><u>Top Utility Programs to Enhance Your Computer's Efficiency: Find the Best Options with YL Computing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transformez-votre-fichier-amv-en-format-flv-sans-frais-solutions-rapides-et-faciles-avec-movavi/"><u>Transformez Votre Fichier AMV en Format FLV Sans Frais - Solutions Rapides Et Faciles Avec Movavi</u></a></li>
 </ul></div>
 

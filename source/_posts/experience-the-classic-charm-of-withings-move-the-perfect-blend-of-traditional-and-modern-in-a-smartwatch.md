@@ -1,7 +1,7 @@
 ---
 title: Experience the Classic Charm of Withings Move - The Perfect Blend of Traditional and Modern in a Smartwatch
-date: 2024-09-04T01:42:00.042Z
-updated: 2024-09-05T01:42:00.042Z
+date: 2025-02-25T22:46:36.512Z
+updated: 2025-03-02T20:47:24.763Z
 categories:
   - BestProducts
 description: This Article Describes Experience the Classic Charm of Withings Move - The Perfect Blend of Traditional and Modern in a Smartwatch
@@ -59,18 +59,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
 
  Watch Dogs: Legion is the latest installment in Ubisoft’s[Watch Dogs](https://www.liveabout.com/watch-dogs-2-cheats-codes-and-walkthroughs-4773695) series, and you can literally play as any character you encounter in the open world. Although Watch Dogs: Legion released without online gameplay (it became available in December 2020), you can play the campaign mode on PC or[console](https://www.lifewire.com/best-gaming-consoles-4154610) right now. Is this game worth the time and monetary investment? I played Watch Dogs: Legion for 30 hours to find out, evaluating its story, gameplay, graphics, to see how it compares to other titles.
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setting and Plot: Fun, but predictable**
 
  Watch Dogs: Legion is set in a near-future version of London. The game accurately depicts landmarks, as well as the overall vibe of the city, but it’s a fictional version of London with a heavy tech theme. You have a few different enemies — a group consisting of private military, state operatives, and organized crime, as well as a hacker group called Zero Day. Zero Day pulls off a major terrorist operation in London. This causes the government to give power to a military group (Albion), and that group promptly implements a martial law type system of oppression.
@@ -79,18 +67,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
 
 ![Watch Dogs: Legion car chase](https://www.lifewire.com/thmb/w01z_qW1xkiYdMVSg0obsvGJ2NU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-3-042727c8603245bfbcde2e3b67ab7ed8.jpg)
 
-<!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  In the opening mission, you play as an agent infiltrating Parliament. You set traps, fight a few guys in hand-to-hand combat, and shoot some bad guys with the goal of preventing the building from being blown to smithereens. The early tutorial type missions help get you acquainted with the game and its systems. The game takes you through the downfall of DedSec, walks you through the beginning of setting up the rebuilding of DedSec, and you select your very first recruit to your legion. There’s a pretty good selection of starting characters, and I selected a Board Game Designer who has the ability to summon a personal drone.
@@ -107,12 +83,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Gameplay: Cool character engine, redundant missions**
 
  Watch Dogs: Legion is an open world action-adventure game. I played on PC, and I used an[Xbox controller](https://www.lifewire.com/games-console-reviews-4102640) . The controls were tight, intuitive, and consistently responsive. It felt natural to run through the world, climb, and drive. I was especially impressed with the vehicles, as you can feel the difference when you’re driving a sports car versus when you’re driving a bus.
@@ -121,18 +91,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
 
 ![Watch Dogs: Legion character creation](https://www.lifewire.com/thmb/fT7PRS6tGlloKdqVFXl8H-TPrVY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Watch-Dogs-Legion-PC-2-ed238e68324c450997c310f225ff57a6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  On the plus side, you can play as any character you encounter, and you can switch characters anytime you like, except in the middle of missions. When you do switch, the characters have a conversation that feels kind of like a hand off. I thought this was a nice touch. You can also customize characters with clothes and new masks. However, since I was switching characters so often and I wasn’t playing online, I didn’t have much motivation to customize specific characters. The clothing felt tacked on, like more of an obligatory feature in an open world game rather than an actual benefit.
@@ -145,12 +103,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
 
  Most missions wound up feeling pretty redundant, especially after playing for a while. I’d approach a building, hack cameras and set traps, send in the spider drones for some easy knockouts, then go in and complete the area. There were some fun missions along the main story which offered some variety, but most missions are best completed with stealth, which can slow down the game sometimes.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Top notch**
 
  Watch Dogs: Legion looks incredible, with great draw distances, and an incredibly detailed world. Everything visually works, and I really enjoyed looking at the people and landmarks in the world.
@@ -169,12 +121,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
 
  The story kept me interested, although the plot bordered on predictable.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2030370/7443" target="_top" id="2030370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2030370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Watch Dogs: Legion vs. Grand Theft Auto Series**
 
  It feels as though Ubisoft is definitely going for a GTA vibe here—go see a person, start a mission, complete the mission, rinse, and repeat. In addition to its visually interesting world, Watch Dogs: Legion adds in the ability to play as anyone you encounter, and that’s perhaps its biggest draw. The next GTA may not arrive for quite a while, so for those who want a new open world right now, Watch Dogs: Legion might be a viable alternative.
@@ -197,8 +143,6 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -206,4 +150,16 @@ thumbnail: https://www.lifewire.com/thmb/H1dQv54wQVOKOjM-7H0MlJ5X5xw=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-prime-pick-all-angle-action-cameras/"><u>[New] 2024 Approved Prime Pick All-Angle Action Cameras</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-how-to-write-compelling-podcast-narratives-and-examples-at-no-cost/"><u>[New] In 2024, How to Write Compelling Podcast Narratives & Examples at No Cost</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-foster-conversations-via-thoughtful-instagram-quiz-style-lives/"><u>[Updated] Foster Conversations via Thoughtful Instagram Quiz-Style Lives</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-calls-recorded-and-saved-iphone-24-sound-guide/"><u>In 2024, Calls Recorded & Saved IPhone '24 Sound Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-mastering-audio-file-transformation-srt-to-xmlssattml/"><u>In 2024, Mastering Audio File Transformation SRT to XML/SSA/TTML</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-best-portable-cd-players-of-2024/"><u>The Best Portable CD Players of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-contrast-between-amazons-echo-pop-and-echo-dot/"><u>The Contrast Between Amazon's Echo Pop and Echo Dot</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-new-era-of-productivity-in-your-hands-a-comprehensive-look-at-the-galaxy-tab-s6-with-dex-mode-and-stylus-functionality/"><u>The New Era of Productivity in Your Hands: A Comprehensive Look at the Galaxy Tab S6 with DeX Mode and Stylus Functionality</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-value-comprehensive-review-of-the-tp-link-archer-c50-mini-wireless-ac1750-router/"><u>Unbeatable Value: Comprehensive Review of the TP-Link Archer C50 Mini Wireless AC1750 Router</u></a></li>
+</ul></div>
 

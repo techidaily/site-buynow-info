@@ -1,7 +1,7 @@
 ---
 title: "Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
-date: 2025-02-06T19:32:54.828Z
-updated: 2025-02-11T18:02:29.864Z
+date: 2025-02-27T22:31:53.075Z
+updated: 2025-03-02T21:56:56.157Z
 categories:
   - BestProducts
 description: "This Article Describes Deconstructing Cyberpunk 2077: A Game of Great Ideas Yet Incomplete"
@@ -43,17 +43,9 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Paradox Interactive Surviving Mars
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -81,10 +73,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -126,10 +114,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 ## **Competition: Other city-building games**
@@ -143,10 +127,6 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
  **A interesting new take on city-builders, if you can stomach the micromanagement.**
 
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -175,24 +155,18 @@ thumbnail: https://thmb.techidaily.com/6bdcba73a44ac207e8fdf00ab1c5febff71a5d180
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-face-editing-showdown-polaroid-cube-vs-gopro-hero-series/"><u>[New] 2024 Approved Face-Editing Showdown Polaroid Cube Vs. GoPro Hero Series</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-expert-tips-for-twitter-video-interactions/"><u>[New] In 2024, Expert Tips for Twitter Video Interactions</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pixelpioneer-8-version-visual-conjurer/"><u>[New] PixelPioneer 8-Version Visual Conjurer</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-unveiling-the-top-methods-of-video-and-screenshots/"><u>[Updated] Unveiling the Top Methods of Video & Screenshots</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/can-you-unlock-apple-iphone-se-2022-after-forgetting-the-passcode-by-drfone-ios/"><u>Can You Unlock Apple iPhone SE (2022) After Forgetting the Passcode?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-the-right-streamer-lets-compare-apple-tv-4k-with-roku-ultra/"><u>Choosing the Right Streamer? Let's Compare Apple TV 4K with Roku Ultra</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-newly-released-budget-friendly-apple-ipad-102/"><u>Comprehensive Review of the Newly Released, Budget-Friendly Apple iPad 10.2</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-through-the-clutter-the-ultimate-review-of-the-amazonbasics-12-sheets-high-security-shredder/"><u>Cutting Through the Clutter: The Ultimate Review of the AmazonBasics 12-Sheets High-Security Shredder</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-features-and-functionality-of-the-samsung-cf591-as-a-top-tier-gaming-display/"><u>Evaluating the Features and Functionality of the Samsung CF591 as a Top-Tier Gaming Display</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/google-nest-audio-and-nest-mini-showdown-features-compared/"><u>Google Nest Audio and Nest Mini Showdown: Features Compared</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/head-to-head-review-google-nest-audio-versus-apple-homepod-sound-quality/"><u>Head-to-Head Review: Google Nest Audio Versus Apple HomePod Sound Quality</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-importance-of-non-primary-footage-in-editing/"><u>In 2024, The Importance of Non-Primary Footage in Editing</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-comparison-racing-drones-showdown-dji-f5x-tb09-and-inspire-2/"><u>In-Depth Comparison: Racing Drones Showdown - DJI F5X, TB09, and Inspire 2</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-modern-audio-drivers-from-microsoft-for-a-superior-listening-experience/"><u>Install Modern Audio Drivers From Microsoft for a Superior Listening Experience</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/is-there-a-roblox-hack-differentiating-between-website-issues-and-personal-connectivity-problems/"><u>Is There a Roblox Hack? Differentiating Between Website Issues and Personal Connectivity Problems</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/metaverse-mingle-match-ultimate-pairings-for-2024/"><u>Metaverse Mingle Match Ultimate Pairings for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210501674-9798985634815-my-little-town/"><u>My Little Town | Free Book</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-cross-platform-graphic-design-tool-the-ultimate-guide-to-gimps-features-and-capabilities/"><u>Top-Rated Cross-Platform Graphic Design Tool - The Ultimate Guide to GIMP's Features and Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/value-assessment-of-the-amazon-kindle-oasis-premium-aesthetics-meets-hefty-bill/"><u>Value Assessment of the Amazon Kindle Oasis: Premium Aesthetics Meets Hefty Bill</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-buzz-building-blueprints-igniting-interest-in-the-feed/"><u>[New] Buzz-Building Blueprints Igniting Interest in the Feed</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-pro-filmmaking-lenses-the-ten-most-critical-choices/"><u>[New] Pro Filmmaking Lenses The Ten Most Critical Choices</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-everything-you-should-know-about-instagram-video-length/"><u>[Updated] 2024 Approved Everything You Should Know About Instagram Video Length</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-perfecting-your-images-with-cleared-backdrops/"><u>[Updated] Perfecting Your Images with Cleared Backdrops</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-the-12-step-youtube-seo-guide-for-beginners-who-want-more-views/"><u>[Updated] The 12-Step YouTube SEO Guide for Beginners Who Want More Views</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-tips-for-snagging-quality-streams-on-facebook/"><u>2024 Approved Tips for Snagging Quality Streams on Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/dive-into-immersive-gaming-discovering-the-philips-49-evnia-curved-oled-screen/"><u>Dive Into Immersive Gaming: Discovering the Philips 49'' Evnia Curved OLED Screen</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-walmartplus-top-4-benefits-for-opting-in/"><u>Evaluating Walmart+: Top 4 Benefits for Opting In</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insight-on-vyncs-link-service-impressive-analytics-hindered-by-convoluted-subscription-options/"><u>Expert Insight on Vyncs Link Service: Impressive Analytics Hindered by Convoluted Subscription Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-take-on-linksyss-wrt1900acs-navigating-through-an-open-source-wifi-router-experience/"><u>Expert Take on Linksys's WRT1900ACS: Navigating Through an Open-Source WiFi Router Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-razer-blade-pro-17s-capabilities-an-in-depth-performance-evaluation-for-on-the-go-gamers/"><u>Exploring the Razer Blade Pro 17'S Capabilities: An In-Depth Performance Evaluation for On-the-Go Gamers</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-messages-after-redmi-note-12t-pro-has-been-deleted-by-fonelab-android-recover-messages/"><u>Recover your messages after Redmi Note 12T Pro has been deleted</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726027324000-mp3/"><u>メディアを切り分ける方法：オンラインツールで動画からMP3への変換トリック</u></a></li>
 </ul></div>
 

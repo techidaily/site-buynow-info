@@ -1,7 +1,7 @@
 ---
 title: "Lenovo Tab 4 Assessment: Affordable Android Tablet Features and Constraints"
-date: 2024-09-04T01:42:06.310Z
-updated: 2024-09-05T01:42:06.310Z
+date: 2025-02-27T19:27:40.524Z
+updated: 2025-03-02T23:40:06.993Z
 categories:
   - BestProducts
 description: "This Article Describes Lenovo Tab 4 Assessment: Affordable Android Tablet Features and Constraints"
@@ -64,12 +64,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design:** **Flexible, foldable design**
 
  The Logitech C615 is a compact webcam. The whole device folds up into a very small package, just 2.5” wide, 1.25” tall, and 1.5” wide, so you can tuck it into a pocket. When you open it up, the flexible design is simple to position. Unfolded, the webcam has three pieces: the base, neck, and[camera](https://www.lifewire.com/best-digital-cameras-under-100-3897833) . The base is the heaviest part, which means that the camera stays upright even if you don’t perfectly balance everything. The top is made out of a soft, rubbery plastic, and the bottom has a rubbery dot that keeps the base from sliding around. The dot comes off the base to reveal a tripod post, so this camera is compatible with a standard tripod. The only problem is that the dot comes off completely when the tripod post is exposed. If you're prone to losing things, this may be an issue.
@@ -84,12 +78,6 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Camera Quality: Quality camera with some autofocus troubles**
 
  The camera takes 1080p video and has a 2 MP sensor. We tested the webcam’s photo capabilities by taking a picture of some packaging. Color was well represented, but the autofocus was just a bit off. The image was just a bit blurry, and we couldn’t read the smaller words at all. This wasn’t a problem close up, but it made a bigger difference when people were far away.
@@ -102,26 +90,8 @@ Lifewire / James Huenink
 
 ![Logitech C615 Webcam](https://www.lifewire.com/thmb/Bko9Uk1HIIMt9aNgtBf9ATCy0AA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Logitech_C615_3LW4065141_14_Final_Horiz-4f1b9fe91b8c4229b17dbbe6afb81b8c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Decent sound quality for a small mic**
 
  We used both[Photobooth](https://www.lifewire.com/how-to-turn-on-camera-on-mac-4175436) and[Skype](https://www.lifewire.com/how-to-make-hd-skype-calls-3426508) to test the performance of the C615\. It was very easy to position the camera exactly the way we wanted it, though the USB cable occasionally gave us problems. We’d swivel the camera and then the pull of the USB cable would turn the whole base so the camera pointed back at the same spot where it started.
@@ -132,28 +102,10 @@ Lifewire / James Huenink
 
  Lifewire / James Huenink
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Inexpensive HD camera**
 
  The Logitech C615 costs $70 MSRP, but you can find it for about half that cost. Even at full price, it's a solid value. The thoughtful design, image quality, and microphone clarity easily justify the price tag.
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Acquits itself well against the competition**
 
 **_Docooler USB 2.0 12 Megapixel_ :** The Docooler USB 2.0 12 Megapixel is one of the cheapest cameras on the market, going for between $8 and $15\. But there's a reason it retails so cheaply; it's a nightmare to use, the audio quality is torturous, and the camera doesn't approach the advertised 12 MP. Despite being nearly $60 more expensive, the C615 is the obvious winner here.
@@ -193,8 +145,6 @@ Lifewire / James Huenink
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -202,4 +152,20 @@ Lifewire / James Huenink
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/updated-av1-versus-vp9-the-ultimate-codec-showdown/"><u>[Updated] AV1 Versus VP9 The Ultimate Codec Showdown</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-base-to-pro-level-gopro-hero5-black-vs-hero4-silver-showdown/"><u>2024 Approved From Base to Pro-Level GoPro Hero5 Black vs Hero4 Silver Showdown</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/fixing-dropped-frames-a-complete-guide-for-obs-studio-users-for-2024/"><u>Fixing Dropped Frames A Complete Guide for OBS Studio Users for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-se-2020-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone SE (2020)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-audio-archive-collect-and-examine-music-files/"><u>In 2024, Audio Archive Collect & Examine Music Files</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-look-at-the-improved-connectivity-and-control-on-the-latest-samsung-galaxy-watch-active-2/"><u>In-Depth Look at the Improved Connectivity and Control on the Latest Samsung Galaxy Watch Active 2</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/mars-receives-urban-spectacle-ignites-fun-and-windy-frenzies/"><u>Mars Receives Urban Spectacle, Ignites Fun and Windy Frenzies</u></a></li>
+<li><a href="https://fox-within.techidaily.com/mejoras-y-funciones-avanzadas-en-la-administracion-de-unidades-usb-premium-con-sistemas-operativos-windows-tecnicas-seo/"><u>Mejoras Y Funciones Avanzadas en La Administración De Unidades USB Premium Con Sistemas Operativos Windows - Técnicas SEO</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-audacity-for-top-notch-audio-recording/"><u>Navigating Audacity for Top-Notch Audio Recording</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-leading-choices-for-premium-external-blu-ray-drives-best-picks/"><u>The Leading Choices for Premium External Blu-Ray Drives - Best Picks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-sub-50-video-doorbells-comprehensive-analysis-and-iseebell-features-breakdown/"><u>Top Sub-$50 Video Doorbells: Comprehensive Analysis & ISeebell Features Breakdown</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/tutorial-efektif-mengembalikan-file-yang-hapus-seperman-di-windows-1011-dengan-6-langkah-singkar/"><u>Tutorial Efektif: Mengembalikan File Yang Hapus Seperman Di Windows 10/11 Dengan 6 Langkah Singkar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-pixel-slates-experience-with-chromeos-dysfunction/"><u>Unpacking the Pixel Slate's Experience with ChromeOS Dysfunction</u></a></li>
+</ul></div>
 

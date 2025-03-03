@@ -1,7 +1,7 @@
 ---
 title: Unveiling Flaws in Sony's First-Half PS5-Exclusive, Godfall - A Game with Lost Potential
-date: 2024-09-04T01:41:40.042Z
-updated: 2024-09-05T01:41:40.042Z
+date: 2025-02-23T21:40:16.397Z
+updated: 2025-03-02T21:42:22.910Z
 categories:
   - BestProducts
 description: This Article Describes Unveiling Flaws in Sony's First-Half PS5-Exclusive, Godfall - A Game with Lost Potential
@@ -66,12 +66,6 @@ Lifewire / Kelsey Simon
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Straight into the action**
 
  The first time you launch the game you'll be treated to an artistic video over the background of a news report. It explains the situation in Harran, the city where the game takes place. The game proper starts with a cut scene that shows you on a plane, about to parachute out. There’s no character creation here, although once you get a little further into the game, you’ll be able to pick your clothes.
@@ -110,12 +104,6 @@ Harran is a whole different city at night.
 
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Attention to detail**
 
  The graphics of Dying Light compare well to other triple-A titles, though it feels like the developers took more care with the scenery than the characters. Human models look a little plasticky, but the world around you is textured beautifully and rich with small details like posters and graffiti that help make the world around you feel real.
@@ -124,36 +112,12 @@ Harran is a whole different city at night.
 
 ![Dying Light](https://www.lifewire.com/thmb/sy9NHLj8JNe2eaeS9HJJdejt6QE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Dying-Light-Zombie-Game-PS4-6-56ef808272b544e6a1038f4a5d0280f1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Worth the cost, especially with a friend**
 
  On PlayStation 4, you can purchase the game for $14, a fantastic value. You’ll get more than enough gameplay and fun to justify a purchase at that low cost. However, if you want to play on[PC](https://www.lifewire.com/best-desktop-pcs-4045927) , you’ll have to either wait for the game to go on sale, or you’ll have to pay $40\. Considering the game is older now, we’d suggest getting the game on sale (it goes on sale often through Steam). There’s a lot of fun to be had in Dying Light, especially if you have a friend to play with, so if you’re thinking about getting the game, we’d say go for it.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other zombie and parkour games**
 
  There are a lot of other zombie survival games out there, but that doesn’t necessarily mean we’d recommend them if you liked Dying Light. You might consider Days Gone, another PlayStation 4 zombie apocalypse game set in an open world, but if the parkour was the main attraction, you might look into the game Mirror’s Edge Catalyst. The game follows a girl in a sci-fi world and features first-person parkour running and fighting. Instead of the rough and gritty world of Dying Light, Catalyst takes place in a sleek futuristic dystopia that's all glossy chrome and burnished glass.
@@ -166,26 +130,17 @@ Harran is a whole different city at night.
 
  Dying Light is a game that took an overdone trope and used it to create a fresh game. Its fun parkour and co-op gameplay make for a great gaming experience, particularly when shared with friends. The variety of zombie enemies combined with the excellent melee combat keep the experience fresh even in the late game―and if things feel too simple, doing a mission at night is a wholly different experience from daylight outings. Dying Light is a great game in the zombie survival genre that we would recommend to most players.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Dying Light
 * Price  $14.00
 * Available Platforms  PC (Steam) Playstation 4 Xbox One OS X Linux
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -194,4 +149,26 @@ Harran is a whole different city at night.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-12-best-tycoon-games-to-kill-time/"><u>[New] 2024 Approved Top 12 Best Tycoon Games to Kill Time</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fresh-talents-guide-to-2024s-entry-level-cams/"><u>[Updated] Fresh Talent's Guide to 2024’S Entry-Level Cams</u></a></li>
+<li><a href="https://fox-within.techidaily.com/1-troubleshooting-guide-how-to-recover-data-from-a-non-detectable-wd-my-passport/"><u>1. Troubleshooting Guide: How to Recover Data From a Non-Detectable WD My Passport</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-mastering-the-science-of-writing-magnetic-vlogs/"><u>2024 Approved Mastering the Science of Writing Magnetic Vlogs</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-smart-office-design-a-key-to-unlocking-employee-efficiency/"><u>2024 Approved Smart Office Design A Key to Unlocking Employee Efficiency</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-vivo-s17-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Vivo S17</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/echo-pop-versus-echo-dot-a-comparative-analysis-of-features-and-functions/"><u>Echo Pop Versus Echo Dot - A Comparative Analysis of Features and Functions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-propella-7s-amongst-lightweight-and-cost-effective-choices/"><u>Exploring the Features of Propella 7S Amongst Lightweight and Cost-Effective Choices.</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-honor-magic-6-pro-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Honor Magic 6 Pro to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-create-an-apple-developer-account-from-apple-iphone-12-mini-by-drfone-ios/"><u>In 2024, How To Create an Apple Developer Account From Apple iPhone 12 mini</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-streaming-mastery-ioss-no1-freepluspaid-movie-apps-guide/"><u>In 2024, Streaming Mastery IOS's No.1, FREE+Paid Movie Apps Guide</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-windows-live-movie-maker-tutorial-easy-video-splitting-techniques-for-2024/"><u>New Windows Live Movie Maker Tutorial Easy Video Splitting Techniques for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/outperforming-the-apple-watch-with-fitbit-senses-advanced-wellness-features/"><u>Outperforming the Apple Watch with Fitbit Sense's Advanced Wellness Features</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/redefining-gaming-space-pro-x-surround-experience/"><u>Redefining Gaming Space: Pro X Surround Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-setting-up-your-nintendo-account-on-the-3ds/"><u>Step-by-Step Guide: Setting Up Your Nintendo Account on the 3DS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-features-and-performance-for-the-netgear-nighthawk-x6-wireless-network-expander/"><u>The Ultimate Guide to Features & Performance for the Netgear Nighthawk X6 Wireless Network Expander</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unbeatable-prices-snap-up-oneplus-specials-this-cyber-monday/"><u>Unbeatable Prices - Snap Up OnePlus Specials This Cyber Monday!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-performance-issues-with-seatech-blu-ray-usb-writers-in-our-latest-test/"><u>Unveiling the Performance Issues with SeaTech Blu-Ray USB Writers in Our Latest Test</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/user-perspectives-evaluating-the-performance-of-google-voice-services/"><u>User Perspectives: Evaluating the Performance of Google Voice Services</u></a></li>
+</ul></div>
 

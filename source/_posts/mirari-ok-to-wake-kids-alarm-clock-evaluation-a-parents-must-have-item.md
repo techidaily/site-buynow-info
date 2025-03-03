@@ -1,7 +1,7 @@
 ---
 title: Mirari OK To Wake! Kid's Alarm Clock Evaluation – A Parent’s Must-Have Item!
-date: 2025-02-08T16:15:36.406Z
-updated: 2025-02-11T18:17:23.288Z
+date: 2025-02-23T16:02:13.341Z
+updated: 2025-03-02T22:15:10.100Z
 categories:
   - BestProducts
 description: This Article Describes Mirari OK To Wake! Kid's Alarm Clock Evaluation – A Parent’s Must-Have Item!
@@ -44,10 +44,6 @@ Lifewire / Emily Ramirez
 
 2.8
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Creative Sound Blaster ZxR
 
 ![Sound Blaster ZxR](https://www.lifewire.com/thmb/RtDoRTpSwyumJugu8w_fUM9Z3Kc=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_02LW833111-1-4e7ebf4d779c4f9a88fb2d675c206f02.jpg)
@@ -82,10 +78,6 @@ Lifewire / Emily Ramirez
 
  The Sound Blaster ZxR features a black and red chassis on its main and daughter boards, brightly accented in gold around the transistors and back plate. Together, the cards have enough outputs to natively support a 5.1 surround sound speaker system. They have 2 RCA outputs, 2 3.5mm outputs, two RCA inputs, one optical TOSLINK input, one optical TOSLINK output, one 6.3mm microphone input, and one 6.3 headphone output jack. The ZxR also comes with an Audio Control Module (ACM), which is Creative Labs’ take on an amplifier and on extending the 6.3mm connections. It has both 3.5mm and 6.3mm inputs and outputs so you can choose where you’d like to plug in your headphones and microphone. On the ACM’s face lies a big, plastic volume knob that controls the headphones’ loudness.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Hardware: Some odd decisions**
 
  For users who may own higher impedance headphones, the amplifier can comfortably drive headphones with up to a 600 ohm impedance. Unfortunately, the volume control on the ACM works passively by altering the output impedance, which can distort audio on headphones with high inductance like the Sennheiser HD800 (see “[How Low Should Output Impedance Be?](https://www.lifewire.com/what-is-output-impedance-4690092) ”). A better and only slightly more costly solution for Creative Labs would have been to have the knob control the ZxR’s in-built volume control rather than try to do it passively. The HD800 sounded fine when plugged directly into the sound card and using the system volume control.
@@ -106,10 +98,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Audio: Excellent sound**
 
  Once the EQ effects are turned off, the Sound Blaster ZxR provides beautiful sound. While it wasn’t quite as clean or crisp as an enthusiast audiophile amplifier, such as the OPPO HA-1, it was solid for a system that costs a quarter of the HA-1’s price. On the HD-800s, the bass came across slightly muddy, but the ZxR provides solid quality for consumer-grade headphones like the Sennheiser GSP300 or the Sony MDR-7506\. As our our[headphone buying guide](https://www.lifewire.com/headphones-buying-guide-4172763) suggests, most headphones under $250 will not be sensitive enough to meaningfully distinguish between the ZxR and the HA-1.
@@ -120,10 +108,6 @@ Lifewire / Emily Ramirez
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options with mixed utility**
 
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package. Here, you can EQ any frequency between 20 and 20,000 Hz or activate “Crystallization,” “Scout Mode,” and “Theater Mode.” Crystallization adds punch to the audio’s treble, making voices stand out against the background. Theater Mode is similar to Crystallization, but it tries to_only_ boost voices instead of the entire treble range. We found it great for watching videos. Meanwhile, Scout Mode is squarely aimed at gamers. It theoretically makes enemy noises like footsteps louder.
@@ -131,10 +115,6 @@ Lifewire / Emily Ramirez
  For the tinkerers out there, Sound Blaster provides a myriad of audio adjustments through their Z-Series software package.
 
  When testing Scout Mode in_Overwatch_ , we did not find the adjustment helpful; Scout Mode made our enemies’ and our allies’ movements louder, making it harder to tell where the enemy was coming from. Without adjustments,_Overwatch’s_ audio already makes the enemies’ movements louder than your allies’, making Scout Mode not only ineffective but an active detriment to gameplay. Other games that strongly rely on situational awareness have also likely invested the time into making enemies’ movements noticeable. Overall the software modifications Sound Blaster provides are situationally useful but not the comprehensive range of options we’d like to see at this price point.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Unjustified expense**
 
@@ -164,10 +144,6 @@ Lifewire / Emily Ramirez
 
 * [Sound Blaster Z](https://www.lifewire.com/sound-blaster-z-review-4769764)
 * [Sound Blaster Audigy RX](https://www.lifewire.com/sound-blaster-audigy-rx-review-4769814)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -207,22 +183,20 @@ Lifewire / Emily Ramirez
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-effortless-obs-and-zoom-stream-merge-steps/"><u>[Updated] 2024 Approved Effortless OBS and Zoom Stream Merge Steps</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-androids-enhanced-vr-video-viewing-in-the-modern-age/"><u>[Updated] In 2024, Android's Enhanced VR Video Viewing in the Modern Age</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-snappy-gaming-moments-with-these-top-5-recording-strategies-on-windows-11/"><u>[Updated] In 2024, Snappy Gaming Moments with These Top 5 Recording Strategies on Windows 11</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-premier-online-repositories-for-typography-for-2024/"><u>[Updated] Premier Online Repositories for Typography for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-shooting-phenomenal-igtv-with-dslrsmartphone-for-2024/"><u>[Updated] The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-syma-s1n11g-drone-experience-ideal-for-indoor-enjoyment/"><u>Affordable Syma S1n11G Drone Experience: Ideal for Indoor Enjoyment</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-nokia-c210-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Nokia C210.</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-best-non-microsoft-office-solutions-of-202n4/"><u>Comprehensive Guide: Best Non-Microsoft Office Solutions of 202N4</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-jaco-smartpro-rechargeable-tire-inflator-assessment-the-ultimate-portable-solution/"><u>Comprehensive Jaco SmartPro Rechargeable Tire Inflator Assessment - The Ultimate Portable Solution</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deciding-between-an-apple-watch-with-gps-or-cellular-connectivity/"><u>Deciding Between an Apple Watch with GPS or Cellular Connectivity</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/deep-dive-into-xbox-series-x-next-gen-consoles-delivering-stunning-4k-experience/"><u>Deep Dive Into Xbox Series X: Next-Gen Consoles Delivering Stunning 4K Experience</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/from-concept-to-reality-explore-the-world-of-home-built-robotics-with-the-makeblock-mbot-starter-set-our-rigorous-test-report/"><u>From Concept to Reality: Explore the World of Home-Built Robotics with the Makeblock mBot Starter Set - Our Rigorous Test Report</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/storytellers-sanctum-summit-selections/"><u>Storytellers Sanctum – Summit Selections</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-anker-super-bright-lantern-test-reliable-gear-for-the-great-outdoors/"><u>The Ultimate Guide to the Anker Super Bright Lantern Test – Reliable Gear for the Great Outdoors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-versatile-powershot-sx620-hs-in-a-compact-package/"><u>The Versatile PowerShot SX620 HS in a Compact Package</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-nubias-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Nubias Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-realme-12-proplus-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Realme 12 Pro+ 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hero5-mastery-a-comprehensive-guide-to-photo-and-video-excellence/"><u>[New] Hero5 Mastery A Comprehensive Guide to Photo and Video Excellence</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-enhancing-online-privacy-youtubes-access-controls/"><u>[New] In 2024, Enhancing Online Privacy YouTube's Access Controls</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/2024s-leading-smartwatch-models-comprehensive-testing-and-expert-insights-zdnet/"><u>2024'S Leading Smartwatch Models: Comprehensive Testing & Expert Insights | ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-microsoft-surface-laptop-go-a-comprehensive-review-of-the-compact-ultrabook/"><u>Affordable Microsoft Surface Laptop Go - A Comprehensive Review of the Compact Ultrabook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-smart-entry-in-depth-analysis-of-the-vuebell-video-doorbell/"><u>Affordable Smart Entry: In-Depth Analysis of the VueBell Video Doorbell</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-vuebell-video-doorbells-insight-top-selection-for-savings/"><u>Budget VueBell Video Doorbells Insight: Top Selection for Savings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-and-cupids-arrow-elevating-your-search-for-love-through-technology/"><u>ChatGPT and Cupid's Arrow: Elevating Your Search for Love Through Technology</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-between-an-amazon-fire-tablet-and-an-ipad-a-comprehensive-guide/"><u>Choosing Between an Amazon Fire Tablet and an iPad: A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/compact-brilliance-unleashed-the-acer-predator-triton-300-se-evaluation-guide/"><u>Compact Brilliance Unleashed: The Acer Predator Triton 300 SE Evaluation Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-the-samsung-galaxy-a71-amoeba-a-cost-effective-contender-against-top-tier-phones/"><u>Comparing the Samsung Galaxy A71 Amoeba: A Cost-Effective Contender Against Top-Tier Phones</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/complete-guide-to-iphone-13-a-thorough-user-experience-insight/"><u>Complete Guide to iPhone 13 - A Thorough User Experience Insight</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-mechanics-behind-gpt-4-adoption-in-these-7-popular-mobile-and-web-applications/"><u>Discover the Mechanics Behind GPT-4 Adoption in These 7 Popular Mobile and Web Applications</u></a></li>
+<li><a href="https://win11.techidaily.com/navigate-through-external-monitor-setup-without-sluggishness/"><u>Navigate Through External Monitor Setup Without Sluggishness</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/should-we-demonstrate-decorum-with-chatgpt-siri-and-more/"><u>Should We Demonstrate Decorum with ChatGPT? Siri & More</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-360-live-streaming-cameras-for-youtube-and-facebook/"><u>Top 360 Live Streaming Cameras for YouTube and Facebook</u></a></li>
 </ul></div>
 

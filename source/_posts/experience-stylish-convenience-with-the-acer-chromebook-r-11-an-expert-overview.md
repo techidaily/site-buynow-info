@@ -1,7 +1,7 @@
 ---
 title: Experience Stylish Convenience with the Acer Chromebook R 11 - An Expert Overview
-date: 2024-09-04T01:40:21.497Z
-updated: 2024-09-05T01:40:21.497Z
+date: 2025-03-01T23:23:16.405Z
+updated: 2025-03-02T18:41:01.497Z
 categories:
   - BestProducts
 description: This Article Describes Experience Stylish Convenience with the Acer Chromebook R 11 - An Expert Overview
@@ -71,12 +71,6 @@ Lifewire / Erika Rawes
 
 ![TP-Link Archer C80](https://www.lifewire.com/thmb/Ep4Dk2l5q44AgM0S3cs9My3AE3M=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TP-Link_Archer_C80_03-a367c45b39474785856cb986e82c88dc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
-  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
  Overall, the C80 feels pretty sturdy. There are four antennas, and they don’t feel flimsy or easily breakable. The antennas are exceptionally long—disproportionately so when compared to the router’s body—but the length of the antennas is advantageous for performance. You can move the antennas 90 degrees up and down and roughly 180 degrees side to side, which lets you appropriately adjust them for placement on a wall or table. The Gigabit Ethernet ports (one WAN, four LAN) and power adapter port are located on the back of the device, which is ideal for placement on a flat surface, but not as great for mounting on a wall because the cables come out of the top of the router, and they’re difficult to hide or organize.
@@ -93,18 +87,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network Performance: Fast speeds, No USB port**
 
  Although this is a low to mid-tier level device, I was quite impressed with its speed and performance. I live in a suburb about 20 minutes away from Raleigh, NC, and I have Spectrum as my internet service provider. The Wi-Fi speeds in my home max out at 400 Mbps. I have a smart box that sits in a utility closet where the router connects. I mounted the router on the wall in that closet, which has a solid door that acts as an immediate signal obstruction. In spite of the presence of this solid door, I was still able to get between 340 and 350 Mbps all throughout the entire downstairs (on the 5GHz band). On the 2.4GHz band, I could get up to 90Mbps all throughout the first floor and in my garage.
@@ -115,12 +97,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: Even better than advertised**
 
  TP-Link advertises the C80 as a router for three-bedroom homes. However, that estimate understates the router’s range capabilities. My home is a two-story, 3,000 square-foot residence with five-bedrooms, and I was able to maintain a stable Wi-Fi connection in every corner. Every closet, bathroom, and bedroom got a steady signal, and I experienced no dead zones whatsoever. Even in the garage, front yard, and backyard, the signal remained strong. It was only when I attempted to use multiple gaming and streaming devices at one time that I experienced any sort of lag.
@@ -139,22 +115,10 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Around 100 bucks**
 
  The TP-Link Archer C80 sells for $100, which is a reasonable price for the unit considering it offers fast speeds, dual-band connectivity, and technologies like MU-MIMO to enhance performance.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **TP-Link Archer C80 vs. TP-Link Archer A9**
 
  The Archer A9 is another affordable offering from TP-Link, with a price tag of under $100\. However, the A9 has a USB port and is compatible with Alexa and[IFTTT](https://www.lifewire.com/what-is-ifttt-4172417) —features the C80 lacks. I recently tested the A9 as well. The A9 offers more in the way of features, but I was able to get faster speeds and better coverage out of the C80\. If you want a router that offers a more comprehensive experience, go with the A9\. If you just want an affordable, speedy router that will maintain a signal at long range, you’ll probably be happy with the C80.
@@ -165,12 +129,6 @@ Lifewire / Erika Rawes
 
  Even though it lacks a USB port, the Archer C80 puts out impressive speeds over a long range in homes with light to medium networking capacity. For homes that have several people streaming, gaming, and working on cloud applications, they’ll want something more high octane.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Archer C80 AC1900 Wireless MU-MIMO Wi-Fi 5 Router
@@ -197,8 +155,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -206,4 +162,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-empowerment-in-entertainment-top-10-inspirational-women/"><u>[New] In 2024, Empowerment in Entertainment Top 10 Inspirational Women</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-easy-steps-to-extract-instagram-video-files-from-pcmac/"><u>[Updated] 2024 Approved Easy Steps to Extract Instagram Video Files From PC/Mac</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fundamental-filters-for-facial-concealment-in-images/"><u>[Updated] Fundamental Filters for Facial Concealment in Images</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/44cm44ot44oh44kq5asj5oplusb77ya44k544og44o844k644gq5yuv55s744gl44kj44gu6z2z5q2i55s75yplusw5b6x5oml6acg44cn/"><u>「ビデオ変換：スムーズな動画からの静止画取得手順」</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-integrating-microsofts-azure-transcription-service-in-code/"><u>2024 Approved Integrating Microsoft's Azure Transcription Service in Code</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-deals-in-streaming-premium-roku-library-access-without-breaking-the-bank/"><u>Best Deals in Streaming: Premium Roku Library Access Without Breaking the Bank</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-cutting-edge-tech-professional-dell-display-high-quality-active-noise-cancelling-headset-and-advanced-web-camera-solutions/"><u>Discover Cutting-Edge Tech: Professional Dell Display, High-Quality Active Noise Cancelling Headset, and Advanced Web Camera Solutions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevate-console-gaming-experience-why-asus-vg245h-is-top-notch-choice/"><u>Elevate Console Gaming Experience: Why Asus VG245H Is Top-Notch Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-evaluation-of-the-netgear-c3nc3nmodem-a-convenient-combo-for-home-networks/"><u>Expert Evaluation of the Netgear C3nC3nModem - A Convenient Combo for Home Networks</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/get-ready-to-edit-the-best-free-game-video-editing-software/"><u>Get Ready to Edit The Best Free Game Video Editing Software</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-honor-magic-6-pro-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Honor Magic 6 Pro Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/live-action-top-9-gaming-portals/"><u>Live Action Top 9 Gaming Portals</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-motorola-one-5g-ace-top-notch-5g-performance-and-impressive-battery/"><u>Review of Motorola One 5G Ace - Top-Notch 5G Performance & Impressive Battery</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-computer-components-expert-insights-and-reviews/"><u>Tom's Computer Components: Expert Insights and Reviews</u></a></li>
+</ul></div>
 

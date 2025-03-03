@@ -1,7 +1,7 @@
 ---
 title: "Sharing the Fun: A Guide to Gaming Together on Xbox One"
-date: 2024-09-04T01:41:33.735Z
-updated: 2024-09-05T01:41:33.735Z
+date: 2025-02-24T20:08:58.327Z
+updated: 2025-03-02T21:50:45.369Z
 categories:
   - BestProducts
 description: "This Article Describes Sharing the Fun: A Guide to Gaming Together on Xbox One"
@@ -79,20 +79,8 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/hRBDZ5clhMthsEMeqGYzOi7oIE8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-2-e6bece84be7c48a3af3db3806a85a31e.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A mature gaming rig**
 
  While some gaming PC towers boast bold designs with transparent glass, RGB fans, and enough colors to make you feel like you’re at a rave, the Aurora R11 takes a much different design approach. The R11 is unassuming—not too flashy and not too loud. It's elegant and simple in appearance with subtle strips of lighting on the front trim of the oblong chassis. This looks like a computer for someone with refined taste, as opposed to a colorful spectacle.
@@ -111,26 +99,8 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/JFFJbdkvNwhJ-T2_-B88xFQhCNQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-4-d7147c6bd520432285a9f2e58f788322.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: An absolute powerhouse**
 
  I was impressed with the R11’s overall performance, especially considering the model I tested is one of the more affordable configurations. Boot times are fast, and it jumps around different applications at lightning speed. It scored admirably in benchmark testing, clocking a single-core score of 4403 and a multi-core score of 33335 on Geekbench 3\. On PCMark 10, it scored a 6692, which was better than 92% of all results. It scored highest in essentials and digital content creation and slightly lower in productivity.
@@ -153,22 +123,10 @@ Lifewire / Erika Rawes
 
  The R11 handled Far Cry 5’s internal benchmark, and it maintained lag-free gaming on the ultra settings.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Productivity: Free optional keyboard and optical mouse**
 
  The Aurora R11 is designed as a gaming PC, but you could absolutely use it for work. Since this PC has ample processing power and gaming-grade graphics, you could also use it for photo or video editing. The R11 includes a free keyboard and optical mouse, but you have to specifically indicate that you want those free options. Otherwise, you’ll just get the tower and power cord.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: 7.1 surround sound**
 
  The R11 has a number of options for audio sources, including ports for connecting a microphone, headphones, and[surround sound speakers](https://www.lifewire.com/what-is-surround-sound-1846802) . It even has an optical audio port. You should have no problem finding an audio solution that fits your needs. The R11 doesn’t include speakers in the box, but it does have integrated 7.1 channel audio (with SPDIF port).
@@ -193,18 +151,6 @@ Lifewire / Erika Rawes
 
  Another application, Alienware Mobile Connect, lets you connect your PC to your mobile device. You can do things like a text from the application, make calls, access images and contacts, and mirror your screen.
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Cooling: Air cooling vs. liquid cooling**
 
  The R11 comes in[air cooled](https://www.lifewire.com/best-laptop-cooling-pads-4149823) or[liquid cooled](https://www.lifewire.com/what-is-liquid-cooling-832445) configurations. I tested an air-cooled configuration. There’s a fan in the front that sucks air into the PC, and then there’s larger venting along the top and sides that helps push the air through the PC to cool down the processors. The fans are strategically placed for the optimal airflow, with a fan on the top that helps promote air circulation.
@@ -223,12 +169,6 @@ Lifewire / Erika Rawes
 
 ![Alienware Aurora R11](https://www.lifewire.com/thmb/jzGkH061o51TFghPHwP5n6bmE34=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Alienware-Aurora-R11-Desktop-PC-3-7a87edbb11b041818dbf44880e3c79fd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Price: Not bad**
@@ -247,12 +187,6 @@ Lifewire / Erika Rawes
 
  The Aurora R11 could replace its predecessor as the best gaming desktop of the year.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Aurora R11
@@ -278,8 +212,6 @@ Lifewire / Erika Rawes
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -287,4 +219,24 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-command-center-conundrums-deciphering-best-cloud-solutions-for-2024/"><u>[New] Command Center Conundrums Deciphering Best Cloud Solutions for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-elevate-your-match-chances-with-clever-tinder-bios-for-2024/"><u>[New] Elevate Your Match Chances with Clever Tinder Bios for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-immerse-slides-with-audio-harmony-for-2024/"><u>[New] Immerse Slides with Audio Harmony for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevating-creative-content-vimeo-vs-youtubes-approach/"><u>[Updated] 2024 Approved Elevating Creative Content Vimeo vs YouTube's Approach</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-top-entry-level-gaming-edit-suite-reviews/"><u>[Updated] 2024 Approved Top Entry-Level Gaming Edit Suite Reviews</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/facing-copyright-challenges-on-youtube-know-your-rights-for-2024/"><u>Facing Copyright Challenges on YouTube Know Your Rights for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-infinix-gt-10-pro-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Infinix GT 10 Pro Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-apple-tv-4ks-third-gen-upgrade/"><u>In-Depth Analysis: Apple TV 4K's Third Gen Upgrade</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-apple-tv-4k-analysis-superior-hd-streaming-and-voice-assistant-navigation/"><u>In-Depth Apple TV 4K Analysis: Superior HD Streaming & Voice Assistant Navigation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-viair-eportable-88p-air-compressor-potent-but-with-few-hitches/"><u>Review of Viair ePortable 88P Air Compressor: Potent but With Few Hitches</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolutionizing-assistive-technology-apple-unveils-eye-controlled-functionality-for-ios-devices-discover-the-breakthrough-at-zdnet/"><u>Revolutionizing Assistive Technology: Apple Unveils Eye-Controlled Functionality for iOS Devices - Discover the Breakthrough at ZDNet</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-into-the-realm-of-adventure-with-yakuza-like-a-dragon-critics-choice-and-gamers-delight/"><u>Step Into the Realm of Adventure with Yakuza: Like a Dragon – Critics' Choice & Gamer's Delight</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-twelve-south-compass-pro-dissected-superior-stability-through-smart-design/"><u>The Twelve South Compass Pro Dissected: Superior Stability Through Smart Design</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-unparalleled-value-proposition-in-smart-pet-monitoring/"><u>The Unparalleled Value Proposition in Smart Pet Monitoring</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/the-voyage-to-trustworthiness-becoming-a-confirmed-disco-partner/"><u>The Voyage to Trustworthiness Becoming a Confirmed Disco Partner</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-potential-the-all-encomp-groove-smartwatch-your-guide-to-the-samsung-gear-s3-frontier/"><u>Unlocking Potential: The All-Encomp Groove Smartwatch – Your Guide to the Samsung Gear S3 Frontier</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/webex-for-video-conferencing-insights-into-its-benefits-and-limitations/"><u>WebEx for Video Conferencing: Insights Into Its Benefits and Limitations</u></a></li>
+</ul></div>
 

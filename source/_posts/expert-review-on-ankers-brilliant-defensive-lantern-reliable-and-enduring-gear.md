@@ -1,7 +1,7 @@
 ---
 title: Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
-date: 2025-02-04T20:22:31.225Z
-updated: 2025-02-11T21:21:15.220Z
+date: 2025-03-01T18:49:12.862Z
+updated: 2025-03-02T20:56:31.635Z
 categories:
   - BestProducts
 description: This Article Describes Expert Review on Anker's Brilliant Defensive Lantern – Reliable and Enduring Gear
@@ -50,10 +50,6 @@ Andy Zahn / Lifewire
 ## Cyberpunk 2077
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/sG6odS-sTBDQKNtpoev0kWtdSGg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Cyberpunk-2077-1-d90f62b5a126437681da9916c0360527.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -120,10 +116,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/ByBdwophc_bSfdD-P0CfbqJgbwY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-7-e6be7e2c1ae24ac3a1c5dbfd4a5b595a.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
  You can also use fast travel booths to get around instantly once you’ve unlocked them, though I found myself favoring the slow route, despite the issues inherent in that experience. Cruising through Night City is truly a jaw-dropping experience.
@@ -137,10 +129,6 @@ Andy Zahn / Lifewire
  It may sound as though I hated playing Cyberpunk 2077, with as much complaining as I’m doing about gameplay, but the truth is that I had a blast despite the bugs. Driving through Night City is still exciting after dozens of hours, and I’m still finding new weapons that offer new ways to approach combat.
 
  Driving out of a garage for the first time into a canyon of towering sci-fi skyscrapers bedecked in holograms and neon is one of those awe-inspiring moments that come only fleetingly in video games.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Customization: Lots to tinker with
 
@@ -172,10 +160,6 @@ At launch, Cyberpunk 2077 is something of a bug-riddled mess.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/JM3cD1pX6maee1yiQYZnSgc-9pw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-4-624da4fa8225434eb59ba999a53dafd6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 ## Mature content: Pushing the boundaries
@@ -185,10 +169,6 @@ Andy Zahn / Lifewire
  The truth is that Cyberpunk is a role-playing game in the truest sense of the word. While you will never be able to completely dodge potentially offensive content, you can play the game in a way that reflects your own morality and ideals. A great example of this potential for choice is alcohol, which you will be proffered on numerous occasions throughout the game. Even though it is embedded into the story you almost always have the option to refuse, though as in real life the peer pressure is there and the choice may affect how people regard you.
 
  The high quality of storytelling is probably the main highlight of the game, next to the insane graphical fidelity.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Making strong GPUs cry
 
@@ -201,10 +181,6 @@ Andy Zahn / Lifewire
  Even with my settings well-adjusted I still ran into occasional frame rate drops, particularly in areas with a lot of volumetric fog and many lighting sources. Traveling at high speeds also tested the limits of my gaming rig.
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/toUXDFSRFZjol-BOgnhnVEyJTYw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-8-7b54b824c3bc4dcfb04234f69204d2f6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Andy Zahn / Lifewire
 
@@ -232,10 +208,6 @@ Andy Zahn / Lifewire
 
 ![Cyberpunk 2077](https://www.lifewire.com/thmb/o42yZx4igr8SBsJoS2Nc52n6m3U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Cyberpunk-2077-6-1b41a87ba1244122adf280147c09e5f1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Andy Zahn / Lifewire
 
 ## Multiplayer: Absent for the moment
@@ -245,10 +217,6 @@ Andy Zahn / Lifewire
 ## Price: A refreshing lack of micro-transactions
 
  At $60 with no extra monetization at launch, Cyberpunk 2077 is something of a bargain. Take this with a grain of salt though, as this situation could change dramatically once the multiplayer mode is released.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Cyberpunk 2077 vs. Assassin’s Creed: Valhalla
 
@@ -288,24 +256,20 @@ Andy Zahn / Lifewire
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-mastering-youtube-live-recording-on-every-gadget/"><u>[New] In 2024, Mastering YouTube Live Recording on Every Gadget</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-ad-free-watching-chromefirefoxandroidios-tutorial-for-2024/"><u>[New] YouTube Ad-Free Watching Chrome/Firefox/Android/iOS Tutorial for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-adept-vlc-playback-and-capture-techniques/"><u>[Updated] In 2024, Adept VLC Playback & Capture Techniques</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigate-to-the-top-5-mac-livestream-choices/"><u>2024 Approved Navigate to the Top 5 Mac Livestream Choices</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-ultimate-guide-top-8-tripods-for-4k-video-enthusiasts/"><u>2024 Approved Ultimate Guide Top 8 Tripods for 4K Video Enthusiasts</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-your-first-sound-recording-guide-in-audacity-on-a-mac/"><u>2024 Approved Your First Sound Recording Guide in Audacity on a Mac</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazons-economical-sound-investment-review-of-basic-soundbar/"><u>Amazon's Economical Sound Investment - Review of Basic Soundbar</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-lighting-kit-for-studios-zenithxz103/"><u>Budget-Friendly Lighting Kit for Studios - ZenithXZ103</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/chromecast-or-roku-a-definitive-guide-to-picking-the-best-media-stick/"><u>Chromecast or Roku? A Definitive Guide to Picking the Best Media Stick</u></a></li>
-<li><a href="https://driver-download.techidaily.com/comprehensive-collection-of-downloads-for-pci-hardware-support-in-windows-operating-systems/"><u>Comprehensive Collection of Downloads for PCI Hardware Support in Windows Operating Systems</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-ambient-weathers-ws-1/"><u>Comprehensive Review of Ambient Weather's WS-1</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-watch-evaluation-a-blend-of-intelligence-in-style/"><u>Comprehensive Samsung Galaxy Watch Evaluation: A Blend of Intelligence in Style</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-selection-of-top-ranked-games-on-your-smartphone/"><u>Elite Selection of Top-Ranked Games on Your Smartphone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-passcode-without-computer-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6 Passcode without Computer?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-ideal-websites-for-extracting-text-visual-upgrades/"><u>In 2024, Ideal Websites for Extracting Text Visual Upgrades</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/is-the-docooler-usb-20-12mp-digital-camera-worth-it-an-in-depth-review-and-comparison/"><u>Is The Docooler USB 2.0 12Mp Digital Camera Worth It? An In-Depth Review & Comparison</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-acer-chromebook-15-solid-performance-meets-expansive-screen-real-estate/"><u>The Ultimate Guide to the Acer Chromebook 15: Solid Performance Meets Expansive Screen Real Estate</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/vive-cosmos-unveiled-stellar-performance-and-tough-challenges-from-rivals-explored/"><u>Vive Cosmos Unveiled: Stellar Performance and Tough Challenges From Rivals Explored</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/wie-behandeln-sie-eine-migration-wenn-ihr-externes-laufwerk-nicht-migrierbar-ist/"><u>Wie Behandeln Sie Eine Migration, Wenn Ihr Externes Laufwerk Nicht Migrierbar Ist?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-essentials-to-skyrocketing-video-views-on-youtube/"><u>[New] 2024 Approved Essentials to Skyrocketing Video Views on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ree-visual-templates-to-upgrade-your-profile-for-2024/"><u>[New] Free Visual Templates to Upgrade Your Profile for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-transition-tactics-in-audio-leveraging-adobes-fading-effects-for-2024/"><u>[New] Transition Tactics in Audio Leveraging Adobe’s Fading Effects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-cutting-edge-platforms-where-gif-becomes-professional-video/"><u>[Updated] Cutting-Edge Platforms Where GIF Becomes Professional Video</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-detailed-guide-to-minecraft-live-broadcasting/"><u>2024 Approved Detailed Guide to Minecraft Live Broadcasting</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-interactive-display-decode/"><u>2024 Approved Interactive Display Decode</u></a></li>
+<li><a href="https://solve-luxury.techidaily.com/customizable-batch-email-creation-with-massmailer-suite/"><u>Customizable Batch Email Creation with MassMailer Suite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-viewing-pleasure-with-the-lg-oled-c9-65-an-in-depth-review-by-tech-experts/"><u>Elevating Your Viewing Pleasure with The LG OLED C9 65: An In-Depth Review by Tech Experts</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-apple-iphone-15-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 15 Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-huawei-mediapad-m5-the-ultimate-visual-and-audio-experience/"><u>In-Depth Analysis of Huawei MediaPad M5: The Ultimate Visual & Audio Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nixplay-seeds-revolutionary-approach-to-photo-displaying/"><u>Nixplay Seed's Revolutionary Approach to Photo Displaying</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sizzling-reveal-the-overcooked-2-gameplay-experience-and-taste-of-chaos/"><u>Sizzling Reveal: The Overcooked! 2 Gameplay Experience and Taste of Chaos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/streamline-your-strategy-with-aspect-ratio-mastery-on-youtube-for-2024/"><u>Streamline Your Strategy with Aspect Ratio Mastery on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-troublesome-journey-with-googles-pixel-slate-and-its-chromeos-hurdles/"><u>The Troublesome Journey with Google's Pixel Slate and Its ChromeOS Hurdles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/yokus-island-express-evaluation-remarkable-journeys-unexpectedly-unfold/"><u>Yoku's Island Express Evaluation: Remarkable Journeys Unexpectedly Unfold</u></a></li>
 </ul></div>
 

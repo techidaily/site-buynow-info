@@ -1,7 +1,7 @@
 ---
 title: "G9 X II: The Ultimate Blend of Classic & Contemporary"
-date: 2024-09-04T01:41:24.798Z
-updated: 2024-09-05T01:41:24.798Z
+date: 2025-02-26T22:32:57.902Z
+updated: 2025-03-02T23:40:32.572Z
 categories:
   - BestProducts
 description: "This Article Describes G9 X II: The Ultimate Blend of Classic & Contemporary"
@@ -65,18 +65,6 @@ Lifewire / Erika Rawes
 
  The Amplifi HD is a[Mesh Wi-Fi System](https://www.lifewire.com/best-mesh-wi-fi-network-systems-4139748) with a main router and separate mesh points that serve as satellite routers. The Amplifi system is supposed to extend Wi-Fi range, reduce dead zones, and provide better coverage. To see how Ubiquiti’s mesh system holds up to the demands of a household with multiple devices, I connected the Amplifi HD in my test home that contains roughly 50 Wi-Fi connected devices.
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: A beautiful router with mismatched mesh points**
 
  The Amplifi HD Mesh System comes with a[long-range router](https://www.lifewire.com/best-long-range-routers-4122554) and two satellite mesh points. The router has a unique design. It’s small, cube-shaped, and it looks more like an alarm clock or smart display than a router. It doesn’t have antennas protruding from it as you see on most routers.
@@ -87,38 +75,14 @@ Lifewire / Erika Rawes
 
 ![Amplifi HD](https://www.lifewire.com/thmb/s87ZCkRIGWmpbjF2kUOXJRQtOl4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Amplifi_LongRangeRouters_HD_02-1a111a806ad7495ba9f36d51121fe5b0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Couldn’t get any easier**
 
  The setup for the Amplifi HD system is probably the easiest setup process I’ve encountered. The app walks you through the process step-by-step, with pictures to guide you on each instruction. The most difficult part was deciding where to place the two mesh points in my test home. I placed one in the far bedroom and one in my office, two rooms that notoriously experience drop-offs.
 
  By default, the app creates a dual (2.4 and 5Ghz) network, which directs traffic based on the most efficient pathways. You can create separate 2.4 and 5Ghz networks, or make other adjustments as you see fit though. You can change the band on the mesh points (from 2.4 to 5Ghz), create additional SSIDs, and more. For the purpose of testing, I used the default combined network and allowed the system to direct network traffic between bands.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Lags when you add too many devices**
 
  The Amplifi HD system is not Wi-Fi 6 capable.[It has 802.11ac](https://www.lifewire.com/wireless-standards-802-11a-802-11b-g-n-and-802-11ac-816553) , and it's backwards compatible. On the back of the router sit four gigabit LAN ports in addition to the WAN connection. There’s no multigig port, but the four ports were a welcome addition.
@@ -145,12 +109,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: A little steep**
 
  The Amplifi HD system isn’t cheap. The package I tested, which came with the router and two mesh points, retails for $340\. You can find mesh systems for much less, and of course, some mesh systems are much more expensive. But, the Amplifi system’s design, easy setup, and feature set help justify the price.
@@ -165,18 +123,6 @@ Lifewire / Erika Rawes
 
  The Amplifi HD mesh system is attractive and does provide coverage for a huge area, but it doesn’t deliver lightning-fast speeds in a home with dozens of connected devices.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Amplifi HD Mesh Wi-Fi System
@@ -195,14 +141,11 @@ Lifewire / Erika Rawes
 * Remote connect  Yes
 * What’s included  Amplifi HD Router, two mesh points, power and Ethernet cables, guides
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -211,4 +154,22 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unlocking-the-million-sub-code-insights-for-digital-growth/"><u>[New] 2024 Approved Unlocking the Million-Sub Code Insights for Digital Growth</u></a></li>
+<li><a href="https://win-lab.techidaily.com/1728487681343-windows-1110/"><u>効率的にWindows 11/10 オペレーティングシステムを完全クローニングする手順</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-google-pixel/"><u>Comprehensive Google Pixel</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-features-of-samsungs-latest-note20-ultra-with-5g/"><u>Expert Review: Unveiling the Features of Samsung's Latest Note20 Ultra with 5G</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-installation-guide-brother-mfc-j480dw-printers-for-windows-users/"><u>Latest Installation Guide: Brother MFC-J480dw Printers for Windows Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/macdvd-imoviemp4-macx-dvd-converter/"><u>Mac用無料DVD保護解除ツール: IMovie互換MP4への高速変換 - MacX DVD Converter</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-relink-function-failures-for-an-enhanced-granblue-fantasy-experience/"><u>Overcoming 'Relink' Function Failures for an Enhanced Granblue Fantasy Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/performance-breakdown-the-top-features-and-functions-of-linksys-velop-router/"><u>Performance Breakdown: The Top Features and Functions of Linksys Velop Router</u></a></li>
+<li><a href="https://os-tips.techidaily.com/permanent-deletion-of-your-gmail-a-step-by-step-guide/"><u>Permanent Deletion of Your Gmail: A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/pick-the-best-top-8-srt-tools-without-payment/"><u>Pick the Best Top 8 SRT Tools Without Payment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/pixel-slate-assessment-tangled-in-the-web-of-chromeos-problems/"><u>Pixel Slate Assessment: Tangled in the Web of ChromeOS Problems</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solution-steps-for-the-critical-bsod-error-0x0000007e-on-your-windows-7-pc/"><u>Solution Steps for the Critical BSOD Error 0X0000007E on Your Windows 7 PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/surface-pro-7-re-release-insights-consistent-power-and-functionality-with-subtle-tweaks-unveiled/"><u>Surface Pro 7 Re-Release Insights - Consistent Power and Functionality with Subtle Tweaks Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/syncing-sound-with-visuals-on-facebook-essential-guide-for-2024/"><u>Syncing Sound with Visuals on Facebook - Essential Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unraveling-vyncs-link-reviews-robust-monitoring-software-with-bewildering-payment-schemes/"><u>Unraveling Vyncs Link Reviews: Robust Monitoring Software with Bewildering Payment Schemes</u></a></li>
+</ul></div>
 

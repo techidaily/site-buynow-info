@@ -1,7 +1,7 @@
 ---
 title: Inexpensive Yet Robust - Meet the Coolpix W100
-date: 2025-01-20T20:31:33.093Z
-updated: 2025-01-22T23:35:16.522Z
+date: 2025-02-26T19:34:07.086Z
+updated: 2025-03-02T20:14:50.241Z
 categories:
   - BestProducts
 description: This Article Describes Inexpensive Yet Robust - Meet the Coolpix W100
@@ -42,10 +42,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 [View On Amazon $30](https://www.amazon.com/dp/B00NR2VMNC?tag=lifewire-onsite-prod-20&%2F=&ascsubtag=4846136%7Cn81cb5d49c23640658f86ff160e2903a300%7CB00NR2VMNC) [View On Walmart $28](https://www.walmart.com/ip/TP-Link-RE200-AC750-Dual-Band-Wireless-Wall-plugged-Range-Extender-works-with-any-router-or-WiFi-system/42300087) [View On B&H Photo Video $25](https://www.bhphotovideo.com/c/product/1113036-REG/tp%5Flink%5Fre200%5Fac750%5Fwifi%5Frange%5Fextender.html/?ap=y&ap=y&smp=y&smp=y&lsft=BI%3A514&gclid=EAIaIQobChMIhKjIlrbS6QIVE4rICh0N3wFcEAQYASABEgITKfD%5FBwE)
 
 3.5
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## TP-Link RE200 AC750 Wi-Fi Range Extender
 
@@ -105,10 +101,6 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/frUD2wVjOiQ6xyicmibzSTBMRNY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_04-97804e236e3642ca87cfaf2bd29d69c6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
 
  For example, in one test I registered 23Mbps download speed on the 2.4GHz network and 30Mbps on the 5GHz network in that room, but then pulled 63Mbps on the extender’s 2.4GHz network and 60Mbps on the extender’s 5GHz network. And the wired Ethernet port on the AC750 often boosted speeds further, providing 88Mbps download in that same testing window.
@@ -127,25 +119,13 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 ![TP-Link AV1300 Powerline](https://www.lifewire.com/thmb/iIfxo6VdIGO0JQzuzz4G5WeBKA8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_NetworkExtenders_RE200_03-a1f202abd7e945a18b08ae3013c9d664.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Impulse buy territory**
 
  Price is definitely one of the strongest suits here. At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home. It may not be a seamless mesh network if you lack a recent, compatible TP-Link router, however, and it won’t hit the higher speeds that some pricier extenders provide. You can do better, but you’ll probably have to spend a lot more to do so.
 
  At just $30, this compact, easy-to-use adapter sets up easily and works as advertised, extending Wi-Fi access into dead zones in your home.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **TP-Link RE200 vs. Netgear Nighthawk X4**
 
@@ -183,24 +163,15 @@ thumbnail: https://www.lifewire.com/thmb/wKPSnFOr6KqwAmr-71agKfqk_jM=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://buynow-info.techidaily.com/dying-light-co-op-gaming-review-mastering-first-person-adrenaline-pumped-parkour-challenges-together/"><u>'Dying Light' Co-Op Gaming Review: Mastering First-Person, Adrenaline-Pumped Parkour Challenges Together.</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-exploring-the-depths-of-adobe-cloud-storages-plus-top-non-adobe-choices/"><u>[New] 2024 Approved Exploring the Depths of Adobe Cloud Storages, Plus Top Non-Adobe Choices</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-tactics-to-determine-igtv-viewership-success-for-2024/"><u>[New] Tactics to Determine IGTV Viewership Success for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-essentials-for-successful-channel-creation-for-2024/"><u>[New] Youtube Essentials for Successful Channel Creation for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-unleashing-musical-talent-with-magix-studio/"><u>2024 Approved Unleashing Musical Talent with Magix Studio</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-in-one-info-on-the-upcoming-apple-m4-chip-announcement-date-capabilities-and-core-benefits-exposed/"><u>All-in-One Info on the Upcoming Apple M4 Chip: Announcement Date, Capabilities, and Core Benefits Exposed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/apeman-c450-inspection-a-comprehensive-look-at-this-economical-dash-cam-option/"><u>Apeman C450 Inspection: A Comprehensive Look at This Economical Dash Cam Option</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/behind-the-wheel-remotely-testing-and-evaluating-the-galaxy-ford-f150-rc-truck/"><u>Behind the Wheel, Remotely: Testing and Evaluating the Galaxy Ford F150 RC Truck</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/budget-friendly-powerhouse-the-apple-ipad-air-4-unveiled/"><u>Budget-Friendly Powerhouse: The Apple iPad Air 4 Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/canon-speedlite-430ex-iii-rt-flags-building-excellence/"><u>Canon Speedlite 430EX III-RT Flags Building Excellence</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choosing-between-iphone-and-samsung-smartphones-a-comprehve-comparison-guide/"><u>Choosing Between iPhone & Samsung Smartphones: A Comprehve Comparison Guide</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-vivomove-hr-analysis-the-fashionable-activity-tracker-perfect-for-on-the-go-enthusiasts/"><u>Comprehensive Garmin Vivomove HR Analysis: The Fashionable Activity Tracker Perfect for On-the-Go Enthusiasts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-play-on-a-49-inches-philips-oled-premium-gaming-display/"><u>Elevate Your Play on a 49 Inches Philips OLED Premium Gaming Display</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-realme-gt-5-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Realme GT 5? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/identifying-fake-chatgpt-websites-tips-on-detecting-and-responding-to-potential-scams/"><u>Identifying Fake ChatGPT Websites: Tips on Detecting and Responding to Potential Scams</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-iphone-13-device-from-icloud-by-drfone-ios/"><u>In 2024, How to Remove iPhone 13 Device from iCloud</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-strong-authentication-protocols/"><u>In 2024, Strong Authentication Protocols</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolving-0x800705b4-troubleshooting-steps-for-windows-update-issues-on-windows-10/"><u>Resolving 0X800705b4 Troubleshooting Steps for Windows Update Issues on Windows 10</u></a></li>
-<li><a href="https://program-issues.techidaily.com/solution-steps-loading-problems-with-chrome-webpages-made-easy/"><u>Solution Steps: Loading Problems with Chrome Webpages Made Easy</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-leveraging-background-footage-for-engaging-content/"><u>[New] 2024 Approved Leveraging Background Footage for Engaging Content</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-essential-list-of-20-budget-friendly-1tbplus-cloud-space-providers/"><u>[Updated] In 2024, The Essential List of 20 Budget-Friendly, 1TB+ Cloud Space Providers</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722975751499-complete-setup-for-logitech-k350-keys-fetch-the-drivers-here/"><u>Complete Setup for Logitech K350 Keys - Fetch the Drivers Here!</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/step-by-step-guide-converting-dvd-films-into-xbox-format-for-in-home-cinema-experience/"><u>Step-by-Step Guide: Converting DVD Films Into Xbox Format for In-Home Cinema Experience</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96438705-9781934170311-the-secret-source/"><u>The Secret Source | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-dbpower-600a-a-trusted-18000mah-jump-starter-and-battery-booster-reviewed-here/"><u>Unveiling the DBPower 600A - A Trusted 18,000mAh Jump Starter and Battery Booster Reviewed Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-netgears-hybrid-device-the-c3700-modemrouter/"><u>Unveiling the Features of Netgear's Hybrid Device: The C3700 Modem/Router</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-lenovo-p11-pro-tablet-a-great-device-with-some-blemishes-discussed/"><u>Unveiling the Lenovo P11 Pro Tablet - A Great Device with Some Blemishes Discussed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-video-editing-hack-how-to-reverse-a-clip-in-final-cut-pro/"><u>Updated 2024 Approved Video Editing Hack How to Reverse a Clip in Final Cut Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vuebell-video-doorbell-analysis-unbeatable-price-points-for-home-security/"><u>VueBell Video Doorbell Analysis: Unbeatable Price Points for Home Security</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Deciphering the Enigma: A Look at the Balancing Act Between Cost and Character in the Microsoft Surface Go"
-date: 2024-09-04T01:42:39.042Z
-updated: 2024-09-05T01:42:39.042Z
+date: 2025-02-28T19:46:26.666Z
+updated: 2025-03-02T21:09:59.906Z
 categories:
   - BestProducts
 description: "This Article Describes Deciphering the Enigma: A Look at the Balancing Act Between Cost and Character in the Microsoft Surface Go"
@@ -95,20 +95,8 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7502vZ1Vh2D4nRux6hEnq4BL3Rk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-5-2fb7aa309cc54dd79c07bd799ef7fe84.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Hit the switch**
 
  If you’ve set up a previous Switch console in the past, the process here is mostly the same, but it’s even easier since there are no Joy-Cons.
@@ -135,12 +123,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/kQx9K3tATPBWAMgyJJymqBqYPao=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-3-7349fa7d79f34dbaa50c25cb59aec820.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Performance: Decent for mobile gaming, but no FHD**
@@ -199,12 +181,6 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Battery Life: Slightly better, but not the best**
 
  Battery life on the original Switch was just okay, to put it lightly, but typically you were lucky to get anything over 3 hours of screen time with most titles. It eventually received a bigger battery in a minor hardware revision, which helped. The Switch Lite has a slightly smaller battery than the revised Switch but also has lower power needs due to its small screen.
@@ -227,12 +203,6 @@ Lifewire / Zach Sweat
 
 ![Nintendo Switch Lite](https://www.lifewire.com/thmb/7XA6hgAK2B4hDSlWdmB8VQddrjw=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Nintendo-Switch-Lite-7-Comparison-44dcf88ec51247a2b0756445a3c7884d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Zach Sweat
 
 ## **Nintendo Switch Lite vs. Nintendo Switch**
@@ -255,12 +225,6 @@ Lifewire / Zach Sweat
 
  Despite being stripped of some of the Switch’s more unique features and strengths, the Switch Lite is a perfect console for gamers on the go or those who prefer handheld. It features an extensive library of exclusives that are perfect for a highly mobile system like Animal Crossing—and it’s hard to argue with the price.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 [Nintendo Switch Review](https://www.lifewire.com/nintendo-switch-review-4707563)
@@ -271,12 +235,6 @@ Lifewire / Zach Sweat
 
 [Sony PlayStation 5 Review](https://www.lifewire.com/sony-playstation-5-review-5088394)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Switch Lite
@@ -300,8 +258,6 @@ Lifewire / Zach Sweat
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -309,4 +265,23 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-step-by-step-for-entering-google-meet-via-devices/"><u>[New] 2024 Approved Step-by-Step for Entering Google Meet via Devices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-bypass-software-for-youtube-downloads-for-2024/"><u>[New] Bypass Software for YouTube Downloads for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-mastering-the-art-of-loop-creating-impactful-content-for-instagram/"><u>[New] Mastering the Art of Loop Creating Impactful Content for Instagram</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/abletons-guide-to-softening-transition-endings/"><u>Ableton's Guide to Softening Transition Endings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-tv-4k-how-siri-enhances-your-ultra-hd-streaming-journey/"><u>Apple TV 4K : How Siri Enhances Your Ultra HD Streaming Journey</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-for-remote-success-stories-discover-6-key-approaches/"><u>ChatGPT for Remote Success Stories – Discover 6 Key Approaches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-a-smart-doorbell-why-i-tested-both-ring-and-nest/"><u>Choosing a Smart Doorbell: Why I Tested Both Ring and Nest</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-assessment-of-the-newly-released-google-pixel-6/"><u>Comprehensive Assessment of the Newly Released Google Pixel 6</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnose-and-fix-the-surface-plugged-in-yet-not-powering-up-expert-advice/"><u>Diagnose and Fix the 'Surface Plugged In, Yet Not Powering Up': Expert Advice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-star-wars-squadrons-game-analysis-engrossing-galactic-battles-await/"><u>In-Depth Star Wars Squadrons Game Analysis - Engrossing Galactic Battles Await</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-applecare-plus-a-smart-tech-safety-net-5-perspectives/"><u>Is AppleCare Plus a Smart Tech Safety Net? 5 Perspectives</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-top-4-elon-musk-voice-generator-programs-to-make-you-sound-like-the-billionaire/"><u>New 2024 Approved Top 4 Elon Musk Voice Generator Programs to Make You Sound Like the Billionaire</u></a></li>
+<li><a href="https://win-able.techidaily.com/ogv/"><u>OGVファイル入門：転送・再生手順ガイド - 完全解明</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/qc35-ii-dissection-audiophiles-top-headphone-choice/"><u>QC35 II Dissection - Audiophile’s Top Headphone Choice</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/raspberry-pi-400-review/"><u>Raspberry Pi 400 Review</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/secure-safe-and-free-access-discover-free-guide-to-they-also-include-relevant-keywords-such-as-software-downloads-freeware-dvd-and-video-utilities/"><u>Secure, Safe) and Free Access (Discover Free, Guide to). They Also Include Relevant Keywords Such as Software Downloads, Freeware, DVD, and Video Utilities.</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
-date: 2025-02-10T21:52:46.260Z
-updated: 2025-02-11T23:01:44.801Z
+date: 2025-02-25T00:21:19.959Z
+updated: 2025-03-02T16:21:53.667Z
 categories:
   - BestProducts
 description: "This Article Describes Review of the Tiny Titans: How the Rugged Unihertz Atom XL Packs a Punch"
@@ -77,10 +77,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Slim and clean**
 
  We don’t typically think of[smartwatches](https://www.lifewire.com/an-introduction-to-smart-watches-3441381) as being nearly weightless, but the Withings Move is just that. Weighing in at just a little over one ounce, this watch is almost undetectable on the wrist.
@@ -99,10 +95,6 @@ Lifewire / Yoona Wagener
 
  Lifewire / Yoona Wagener
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**As easy as 1-2-3**
 
  Given such a simple and clean design, it’s natural to expect the setup process to be the same. We found that to be the case.
@@ -112,10 +104,6 @@ Lifewire / Yoona Wagener
  The first thing we had to do was sign up for an account in order to move forward with the installation. After we did that, most of the steps took just a few seconds or up to a minute at the longest.
 
  First, we paired the Withings Move with our phone via Bluetooth, which was instantaneous. Next, we provided profile information for better activity metrics, downloaded an update, made sure the watch dials were working and the time was set correctly, and we were good to go.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Comfort: Light as a feather, even while sleeping**
 
@@ -127,15 +115,7 @@ Lifewire / Yoona Wagener
 
 ![Withings Move](https://www.lifewire.com/thmb/WIXFA6BpXvAMWLdKpJ_jmzZh6o4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-5-cbc0f43d847b453bbfae994f03374cdb.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Limited activity tracking**
 
@@ -162,10 +142,6 @@ Lifewire / Yoona Wagener
 ![Withings Move](https://www.lifewire.com/thmb/02bkMrpkzqBOue1ffhHNfQqaIuk=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/02LW4161013-4-df866fafd70a44c592e0e06e0ea53ae7.jpg)
 
  Lifewire / Yoona Wagener
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Software: An emphasis on general wellness**
 
@@ -226,19 +202,18 @@ Lifewire / Yoona Wagener
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-architecting-top-quality-canon-chrono-films/"><u>[New] Architecting Top Quality Canon Chrono Films</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-exploring-vidmas-screen-capture-tool/"><u>[Updated] Exploring Vidma's Screen Capture Tool</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-from-idea-to-impact-solo-podcasts-that-resonate/"><u>[Updated] From Idea to Impact Solo Podcasts that Resonate</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-metavision-uncovered-analyzing-6-compelling-metaverse-cases/"><u>[Updated] Metavision Uncovered Analyzing 6 Compelling Metaverse Cases</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-review-mobvoi-ticwatch-pro-4g-redefining-connectivity-on-your-wrist/"><u>Comprehensive Review: Mobvoi Ticwatch Pro 4G - Redefining Connectivity on Your Wrist</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/enhancing-data-workflow-chatgpts-6-essential-uses/"><u>Enhancing Data Workflow: ChatGPT's 6 Essential Uses</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-chargetech-27000mah-portable-charger-unveiled/"><u>Expert Insights on the ChargeTech 27000mAh Portable Charger – Unveiled</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/instant-access-to-microsoft-wireless-mouse-5000-drivers-download-now-for-smooth-operation/"><u>Instant Access to Microsoft Wireless Mouse 5000 Drivers: Download Now for Smooth Operation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/microsoft-surface-laptop-go-assessment-the-perfect-blend-of-economy-and-portability-in-an-ultrabook/"><u>Microsoft Surface Laptop Go Assessment - The Perfect Blend of Economy and Portability in an Ultrabook</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/quick-tricks-for-resolving-youtube-video-playback-failures-easily/"><u>Quick Tricks for Resolving YouTube Video Playback Failures Easily</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-timeless-appeal-of-lg-watch-style-an-in-depth-review-of-the-established-wear-os-20-smartwatch-range/"><u>The Timeless Appeal of LG Watch Style: An In-Depth Review of the Established Wear OS 2.0 Smartwatch Range</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-your-wellbeing-potential-with-fitbit-versa-2-the-wearable-that-combines-activity-tracking-excellence-and-smartwatch-brilliance/"><u>Unlocking Your Wellbeing Potential with Fitbit Versa 2 - The Wearable that Combines Activity Tracking Excellence and Smartwatch Brilliance</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1780627-9780804151306-vibrational-healing-through-the-chakras/"><u>Vibrational Healing Through the Chakras | Free Book</u></a></li>
-<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-xiaomi-redmi-13c-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Xiaomi Redmi 13C 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-x-recorder-for-pc-free-recording-software/"><u>[New] In 2024, X-Recorder for PC Free Recording Software</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-jujutsu-kaisens-tiktok-fan-filled-fun-for-2024/"><u>[New] Jujutsu Kaisen's TikTok Fan-Filled Fun for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prime-virtual-marketplaces-ringtone-selections/"><u>[New] Prime Virtual Marketplaces Ringtone Selections</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-depth-theta-s-evaluation-overview-for-2024/"><u>[Updated] In-Depth Theta S Evaluation Overview for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-premium-hd-video-replay-devices-for-2024/"><u>[Updated] Premium HD Video Replay Devices for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-asus-bw-16d1x-u-blu-ray-drive-a-stylish-yet-quirky-device/"><u>Exploring the Features of Asus BW-16D1X-U Blu-Ray Drive: A Stylish Yet Quirky Device</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/find-the-ultimate-bargains-for-apple-gadgets-this-prime-day/"><u>Find the Ultimate Bargains for Apple Gadgets This Prime Day</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fix-warzone-20-launching-problems-in-pc-for-players-learn-these-7-effective-fixes/"><u>Fix Warzone 2.0 Launching Problems in PC for Players - Learn These 7 Effective Fixes!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-your-channels-for-free-with-amazonbasics-flat-antenna-the-budget-solution/"><u>Get Your Channels for Free with AmazonBasics Flat Antenna - The Budget Solution</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/head-to-head-comparison-the-differences-between-nintendo-switch-lite-and-nintendo-switch-oled/"><u>Head-to-Head Comparison: The Differences Between Nintendo Switch Lite and Nintendo Switch OLED</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ideal-iphone-picks-to-level-up-your-gaming-sessions/"><u>Ideal iPhone Picks to Level Up Your Gaming Sessions</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-samsung-galaxy-f15-5g-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Samsung Galaxy F15 5G without App | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-honor-x7b-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Honor X7b Phones</u></a></li>
 </ul></div>
 

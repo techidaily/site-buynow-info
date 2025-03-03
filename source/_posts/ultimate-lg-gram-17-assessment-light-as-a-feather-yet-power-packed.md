@@ -1,7 +1,7 @@
 ---
 title: "Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
-date: 2025-02-05T23:50:12.223Z
-updated: 2025-02-11T20:03:13.789Z
+date: 2025-02-24T18:22:47.065Z
+updated: 2025-03-02T18:42:39.790Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate LG Gram 17 Assessment: Light as a Feather Yet Power-Packed"
@@ -44,17 +44,9 @@ Lifewire / Andy Zahn
 
 4.9
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Razer Book 13
 
 ![Razer Book 13](https://www.lifewire.com/thmb/0i6VvZqT39MNfVUbDSY7z3l8-Tw=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_HeroSquare-80401fcfbef94a1b8444cd0832388aac.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -102,25 +94,13 @@ Lifewire / Andy Zahn
 
  There’s not a lot to say about setting up the Razer Book 13\. It’s just a standard install of Windows 10 Home with no surprises along the way so you can be up and running in just a few minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Display: Positively stunning
 
  The Razer Book 13 configuration we tested comes with an absolutely gorgeous 13.5-inch UHD 60Hz display that is both very color accurate and provides stunning visuals. This is great for both creative tasks that require color accuracy, and for media consumption. The 16:10 aspect ratio is definitely tailored for productivity. The bezel is attractively thin, and the screen is made of Gorilla Glass 6, making it highly scratch resistant.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/C308jEtLYxnwMp68uF5Sd-2hjyA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_02-4da7b450ac1c4b879f1b0bebfa9815b5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Performance: Lean and mean
 
@@ -142,10 +122,6 @@ Lifewire / Andy Zahn
 
 Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Connectivity: The latest and greatest
 
  With[Wi-Fi 6](https://www.lifewire.com/wi-fi-6-802-11-ax-4797345) , the Book 13 had no trouble taking full advantage of my home network. It provides a fast and reliable connection, and Bluetooth 5.0 is available as well.
@@ -163,10 +139,6 @@ Lifewire / Andy Zahn
  You wouldn’t expect to get good audio out of such a small laptop, but the Book 13 does quite well in this regard. It features THX spatial audio and delivers a remarkably good listening experience. It’s certainly loud enough to deliver sound at max volume without noticeable distortion. 2Cellos cover of “Thunderstruck” is my go-to song for testing speakers and headphones, and I also listened to their new cover of “Livin’ on a Prayer.” The Book 13 rendered them both beautifully.
 
 ![Razer Book 13](https://www.lifewire.com/thmb/PL2MokPWQ_egcxv3fE0tw_k09Yo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Razer_Book13_04-6eed60095cbe467c9552c651ba4c9d46.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Andy Zahn
 
@@ -234,18 +206,20 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/2024-approved-analyzing-the-dji-phantom-4-vision-tech/"><u>2024 Approved Analyzing the DJI Phantom 4 Vision Tech</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/amazfits-newest-gadget-the-helio-ring-what-to-know-about-price-launch-and-tech-features/"><u>Amazfit's Newest Gadget - The Helio Ring: What to Know About Price, Launch, and Tech Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-performance-the-ultimate-review-of-the-12mp-docooler-usb-camera-prototype/"><u>Decoding Performance: The Ultimate Review of the 12MP Docooler USB Camera Prototype</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/easy-fixes-how-to-troubleshoot-and-repair-windows-11-shutdown-glitches/"><u>Easy Fixes: How to Troubleshoot and Repair Windows 11 Shutdown Glitches</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exemplars-elevation-all-inclusive-stabilizer-review/"><u>Exemplar's Elevation: All-Inclusive Stabilizer Review</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-14-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>How to Unlock iPhone 14 Plus With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-photographic-precision-the-ultimate-list-of-photo-framing-software/"><u>In 2024, Photographic Precision The Ultimate List of Photo Framing Software</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/setting-up-a-facebook-donation-challenge/"><u>Setting Up a Facebook Donation Challenge</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-game-companion-logitech-g533-reviewed/"><u>The Ultimate Game Companion - Logitech G533 Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-amazon-basics-tablet-support-accessory-evaluation-portable-and-handy/"><u>Top-Rated Amazon Basics Tablet Support Accessory Evaluation – Portable and Handy!</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/unveiling-digital-mastery-at-toms-electronics-review/"><u>Unveiling Digital Mastery at Tom's Electronics Review</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/what-is-an-ai-voice-generator-in-2024/"><u>What Is an AI Voice Generator, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-step-into-the-future-with-these-7-premier-live-streaming-apps-iphoneandroid/"><u>[New] 2024 Approved Step Into the Future with These 7 Premier LIVE Streaming Apps (iPhone/Android)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-framed-fantasies-expert-recommendations-on-software-and-sites/"><u>[Updated] 2024 Approved Framed Fantasies Expert Recommendations on Software & Sites</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-advanced-camera-control-for-iphone-users/"><u>[Updated] Advanced Camera Control for iPhone Users</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-ultimate-exploration-inside-xcreative-media-suite/"><u>[Updated] The Ultimate Exploration Inside XCreative Media Suite</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-and-benchmarks-for-the-netgear-ex62amo-ac1200-wireless-wifi-booster/"><u>Expert Review and Benchmarks for the Netgear EX62amo AC1200 Wireless WiFi Booster</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/future-proofing-your-electronics-with-elite-ups-units-of-2024/"><u>Future-Proofing Your Electronics with Elite UPS Units of 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-earning-strategies-with-youtubes-adsense-payout-per-k-viewers/"><u>In 2024, Earning Strategies with Youtube's AdSense Payout per K Viewers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-itel-s23plus-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Itel S23+ for Streaming | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-netgears-powerline-ac1200-aesthetics-vs-performance/"><u>In-Depth Analysis of Netgear's Powerline AC1200: Aesthetics vs Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/innovative-htpc-solutions-dominating-2024-market-trends/"><u>Innovative HTPC Solutions Dominating 2024 Market Trends</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/introducing-b550-xts-vocal-interface-and-acoustic-harmony/"><u>Introducing B550-XT's Vocal Interface & Acoustic Harmony</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximizing-gpt-freedom-for-pc-enthusiasts/"><u>Maximizing GPT Freedom for PC Enthusiasts</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-a-detailed-and-trustworthy-review-of-murfai-ai-text-to-speech-tool-for-2024/"><u>New A Detailed and Trustworthy Review of Murf.ai AI Text-to-Speech Tool for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-nest-audio-elevating-your-listening-pleasure-as-a-music-buff/"><u>Review of Nest Audio: Elevating Your Listening Pleasure as a Music Buff</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-surprising-capabilities-of-the-apple-iphone-12-mini-breaking-down-its-standout-features/"><u>The Surprising Capabilities of the Apple iPhone 12 Mini: Breaking Down Its Standout Features</u></a></li>
 </ul></div>
 

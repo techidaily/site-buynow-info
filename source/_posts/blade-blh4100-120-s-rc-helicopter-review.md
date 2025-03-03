@@ -1,7 +1,7 @@
 ---
 title: Blade BLH4100 120 S RC Helicopter Review
-date: 2025-02-05T18:47:17.859Z
-updated: 2025-02-11T23:50:06.771Z
+date: 2025-02-28T18:36:53.036Z
+updated: 2025-03-02T19:44:19.343Z
 categories:
   - BestProducts
 description: This Article Describes Blade BLH4100 120 S RC Helicopter Review
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/0k72WSI9zpSx_0NVgOzieZdbYDg=/400x300/fi
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/0PqspYn0Ny1UT0fFzdIhza4naCk=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -52,10 +48,6 @@ Lifewire / Jeremy Laukkonen
 ## Omni 20+ Wireless Power Bank
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/_EV0MTLRfFPHdqFJ2gKyMJff5YY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-HERO-SQ-e459d44e1a2c432f80fec058b858ccfe.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -86,10 +78,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Slick all-black appearance that’s dulled a bit by soft-touch rubber**
 
  The Omni 20+ is a great looking device, with an all-black case and gem-cut edges that fit in nicely when used alongside my[HP Spectre x360](https://www.lifewire.com/hp-spectre-x360-15t-touch-laptop-review-4773540) . The top and bottom are completely bereft of any markings, hiding the presence of a Qi wireless charger hidden in the top, and the labels that it does have for inputs and outputs are understated.
@@ -118,15 +106,7 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/QOfV3Sc5THi3Z0gKZq0e-ciPUEE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-5-000854ae3c4347b7adc13130dcb9d1b9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Display: Crisp and easy to read, but confusing**
 
@@ -163,10 +143,6 @@ Lifewire / Jeremy Laukkonen
  When charged over USB-C using an appropriate charger, like my Nintendo Switch charger, the Omni 20+ takes about three hours to charge to full. Charging it with a weaker charger, or over the barrel connector, takes a bit longer.
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -230,22 +206,22 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-unpacking-the-features-and-shortcomings-of-samsung-image-editor/"><u>[New] 2024 Approved Unpacking the Features and Shortcomings of Samsung Image Editor</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-laughloop-app-a-hub-for-humor-enthusiasts/"><u>[Updated] LaughLoop App - A Hub for Humor Enthusiasts</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-make-my-video-perfectly-fit-instagram-for-2024/"><u>[Updated] Make My Video Perfectly Fit Instagram for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-simple-snippets-for-iphone-sound-capture-for-2024/"><u>[Updated] Simple Snippets for iPhone Sound Capture for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-elevating-the-cold-with-five-cozy-cinematic-elements/"><u>2024 Approved Elevating the Cold with Five Cozy Cinematic Elements</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/sidaomei-image-deploy/"><u>專家指南：如果處理器無SID，如何順利進行AOMEI Image Deploy?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-phone-read-our-comprehensive-review-of-the-oneplus-nord-n10-5g/"><u>Best Phone? Read Our Comprehensive Review of the OnePlus Nord N10 5G!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/bridging-spaces-with-carvers-digital-artistry-in-frames/"><u>Bridging Spaces with Carver's Digital Artistry in Frames</u></a></li>
-<li><a href="https://article-posts.techidaily.com/flipping-video-content-easily-in-android-applications/"><u>Flipping Video Content Easily in Android Applications</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/hands-on-phillips-evnia-49-inch-oled-curved-gaming-monitor/"><u>Hands-On: Phillips Evnia 49-Inch OLED Curved Gaming Monitor</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-new-features-in-samsung-galaxy-tab-s6-explore-s-pen-and-dex-mode/"><u>In-Depth Analysis of the New Features in Samsung Galaxy Tab S6 - Explore S Pen & Dex Mode</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-the-art-of-smartphone-selection-lg-stylo-6-a-visual-and-writing-marvel/"><u>Mastering the Art of Smartphone Selection: LG Stylo 6 – A Visual and Writing Marvel</u></a></li>
-<li><a href="https://article-posts.techidaily.com/maximize-profits-the-top-13-no-experience-reddit-hacks-for-2024/"><u>Maximize Profits The Top 13 No-Experience Reddit Hacks for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-go-to-guide-for-smart-shoppers-unveiling-the-potential-of-the-google-pixel-4a-5g/"><u>The Go-To Guide for Smart Shoppers: Unveiling the Potential of the Google Pixel 4a 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-verdict-on-clearstream-nv-hdtv-antennas-great-capability-hidden-behind-an-unsightly-package/"><u>The Verdict on ClearStream Nv HDTV Antennas: Great Capability Hidden Behind an Unsightly Package</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-rated-wireless-portable-wifi-routers/"><u>Top-Rated Wireless Portable WiFi Routers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-and-testing-the-third-gen-apple-tv-4k-a-comprehensive-review/"><u>Unboxing and Testing the Third Gen Apple TV 4K: A Comprehensive Review</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-advanced-frameworks-for-documenting-e-learning-sessions/"><u>[New] 2024 Approved Advanced Frameworks for Documenting E-Learning Sessions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-explore-and-enjoy-virtual-reality-cinema-on-your-ipad/"><u>[New] Explore and Enjoy Virtual Reality Cinema on Your iPad</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-navigating-snapchat-a-commerce-strategy/"><u>[New] Navigating Snapchat A Commerce Strategy</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ncovering-histories-student-favored-youtubes-on-historic-events-for-2024/"><u>[New] Uncovering Histories Student-Favored YouTubes on Historic Events for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-craft-laughs-eyedroppermemes/"><u>[Updated] Craft Laughs EyeDropperMemes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-finding-your-youtube-stored-melodies-easily/"><u>[Updated] In 2024, Finding Your YouTube-Stored Melodies Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/5-outstanding-coding-bootcamps-and-courses-to-advance-your-career/"><u>5 Outstanding Coding Bootcamps and Courses to Advance Your Career</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-beginners-guide-to-navigating-and-editing-with-preview-on-your-mac-computer/"><u>A Beginner's Guide to Navigating and Editing with Preview on Your Mac Computer</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ace-your-audios-with-steeply-discounted-tribit-products-on-prime-day-extravaganza/"><u>Ace Your Audios with Steeply Discounted Tribit Products on Prime Day Extravaganza</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-review-of-the-latest-apple-tv-4k-series-6-enhanced-performance-and-features/"><u>Comprehensive Review of the Latest Apple TV 4K Series 6 - Enhanced Performance and Features</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/first-steps-into-facebook-data-analysis-for-new-users/"><u>First Steps Into Facebook Data Analysis for New Users</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-strategies-for-seamlessly-transforming-topaz-files-into-epub-format/"><u>Top Strategies for Seamlessly Transforming Topaz Files Into ePUB Format</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-capabilities-of-asuss-latest-gaming-router-an-in-depth-review-of-rt-ac88u/"><u>Unveiling the Capabilities of Asus's Latest Gaming Router: An In-Depth Review of RT-AC88U</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-dji-mavic-n-a-game-changer-in-drone-camera-review/"><u>Unveiling the Power of DJI Mavic N: A Game-Changer in Drone Camera Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-jacos-smartpro-digital-tire-inflator-an-insightful-product-analysis-for-on-the-go-efficiency/"><u>Unveiling the Power of Jaco's SmartPro Digital Tire Inflator: An Insightful Product Analysis for On-the-Go Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-quality-of-amazon-luna-a-seamless-stream-for-gamers/"><u>Unveiling the Quality of Amazon Luna: A Seamless Stream for Gamers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-performers-best-smart-audio-gadgets-revealed/"><u>Unveiling the Top Performers: Best Smart Audio Gadgets Revealed</u></a></li>
 </ul></div>
 

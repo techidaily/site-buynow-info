@@ -1,7 +1,7 @@
 ---
 title: AmazonBasics 12-Sheet High-Security Shredder - Comprehensive Evaluation
-date: 2024-09-04T01:41:44.686Z
-updated: 2024-09-05T01:41:44.686Z
+date: 2025-03-01T18:26:40.871Z
+updated: 2025-03-02T20:37:52.473Z
 categories:
   - BestProducts
 description: This Article Describes AmazonBasics 12-Sheet High-Security Shredder - Comprehensive Evaluation
@@ -62,18 +62,6 @@ Lifewire / Erika Rawes
 
  Indoor TV antennas, like the AmazonBasics Indoor Flat TV Antenna, can provide you with free broadcast TV channels. Once you pay the upfront cost for the antenna you’re not stuck with any monthly fees for your local channels. The[best TV antennas](https://www.lifewire.com/best-tv-antennas-to-buy-4078201) are nothing like the bunny ear style antennas from back in the day. The picture quality is comparable to what you’d get from the cable company or streaming service—or it's supposed to be. I tested the ultra-affordable AmazonBasics Indoor Flat TV Antenna for a week to see if its design, setup, and performance make it a viable option.
 
-<!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: It’s all in the name (basic)**
 
  The AmazonBasics Antenna has a slim design—it’s about as thin as card stock at approximately one-tenth of an inch in thickness. It’s constructed of sturdy plastic, with a reversible black and white side to help it fit better with your home’s decor. It’s not the most attractive antenna, and the backboards smudge and show grease and fingerprints.
@@ -92,12 +80,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -108,12 +90,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -122,38 +98,14 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/MN6DSsu9Myyo6CdrSW5MJTjHoug=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-4-fd9968307cb44c9d9e824750413e0028.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -180,14 +132,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,4 +145,26 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-epic-gaming-recorded-an-analysis-for-2024/"><u>[New] Epic Gaming Recorded An Analysis for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-apowersoft-unveils-new-pc-screen-capture-tech/"><u>[New] In 2024, Apowersoft Unveils New PC Screen Capture Tech</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastery-in-multichannel-instagram-to-tiktok-connector/"><u>[New] Mastery in Multichannel Instagram to TikTok Connector</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-exquisite-visual-enhancement-implementing-filters-on-videos-pc-and-mobile/"><u>[Updated] In 2024, Exquisite Visual Enhancement Implementing Filters on Videos (PC & Mobile)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlocking-potential-mastering-facebooks-best-practices-for-video-advertising/"><u>[Updated] Unlocking Potential Mastering Facebook's Best Practices for Video Advertising</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-garmin-vivosmart-4-analysis-exploring-the-features-of-enhanced-body-battery-and-advanced-stress-tracking/"><u>Comprehensive Garmin Vivosmart #4 Analysis: Exploring the Features of Enhanced Body Battery & Advanced Stress Tracking</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-most-innovative-tv-streaming-apps-dominating-202/"><u>Discover the Most Innovative TV Streaming Apps Dominating 202</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-form-and-function-an-in-depth-evaluation-of-fitbits-latest-tracker-the-charge-4/"><u>Exploring Form & Function: An In-Depth Evaluation of Fitbit's Latest Tracker – The Charge 4</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-all-encompassing-mobility-review/"><u>In 2024, All-Encompassing Mobility Review</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-samsung-galaxy-s24plus-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Samsung Galaxy S24+</u></a></li>
+<li><a href="https://fox-links.techidaily.com/mastering-iphones-playlist-paradise-podcast-edition/"><u>Mastering iPhone's Playlist Paradise Podcast Edition</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/philips-somneo-review-a-top-of-the-line-alarm-clock/"><u>Philips Somneo Review: A Top-of-the-Line Alarm Clock</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-premier-6-e-commerce-platforms-for-televisions-and-flatscreens/"><u>The Premier 6 E-Commerce Platforms for Televisions and Flatscreens</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-unrivaled-power-of-the-netgear-nighthawk-c7000-an-expert-review-on-its-impressive-router-capabilities/"><u>The Unrivaled Power of the Netgear Nighthawk C7000: An Expert Review on Its Impressive Router Capabilities</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-zte-blade-a3y-examined-reliable-efficiency-at-a-reasonable-cost/"><u>The ZTE Blade A3Y Examined: Reliable Efficiency at a Reasonable Cost</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-recommended-digital-programming-classes/"><u>Top Recommended Digital Programming Classes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unbeatable-deal-alert-top-rated-gaming-sound-systems-now-30-discounted-on-amazon-insider-review/"><u>Unbeatable Deal Alert: Top-Rated Gaming Sound Systems Now 30% Discounted on Amazon - Insider Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-best-features-exploring-timeless-elegance-with-cutting-edge-functionality-on-samsung-galaxy-watch6/"><u>Unveiling the Best Features: Exploring Timeless Elegance with Cutting-Edge Functionality on Samsung Galaxy Watch6</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-samsung-galaxy-s23-tactical-edition-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Samsung Galaxy S23 Tactical Edition Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Samsung Galaxy Watch Active Examination: Your Ultimate Fitness & Health Companion"
-date: 2024-09-04T01:40:47.208Z
-updated: 2024-09-05T01:40:47.208Z
+date: 2025-02-24T18:19:23.057Z
+updated: 2025-03-02T23:29:40.276Z
 categories:
   - BestProducts
 description: "This Article Describes Samsung Galaxy Watch Active Examination: Your Ultimate Fitness & Health Companion"
@@ -66,12 +66,6 @@ thumbnail: https://thmb.techidaily.com/eb79ccc0ff831a30910246817b125d2ff7b838321
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -92,26 +86,8 @@ thumbnail: https://thmb.techidaily.com/eb79ccc0ff831a30910246817b125d2ff7b838321
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -128,12 +104,6 @@ thumbnail: https://thmb.techidaily.com/eb79ccc0ff831a30910246817b125d2ff7b838321
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -142,24 +112,12 @@ thumbnail: https://thmb.techidaily.com/eb79ccc0ff831a30910246817b125d2ff7b838321
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
 
  Should you really spend that much on an extender? If you don’t already have a new Wi-Fi 6 router, then probably not. You might see higher peaks of speed as I did, but rather than trying to mix and match old and new tech, you’re probably better off investing in a new Wi-Fi mesh system that can cover the entire house. Netgear’s Orbi is a favorite, as is Google’s similar Nest Wi-Fi system.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Netgear Nighthawk AX8 vs. Netgear Nighthawk X6S (EX8000)**
 
  Both of these Netgear Nighthawk Wi-Fi extenders will set you back $200 or more, and the key difference between them—aside from design—is the Wi-Fi 6 compatibility of the Nighthawk AX8\. The Nighthawk X6S (see on[Amazon](https://www.amazon.com/NETGEAR-Wi-Fi-Range-Extender-EX8000/dp/B074F3M2W8/?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7C) ) doesn’t have that, but it does deliver excellent 5GHz range and has four Gigabit Ethernet ports for wired devices. The Nighthawk AX8 is more future-proof as a result, but at a greater cost that becomes increasingly difficult to justify the higher, it climbs.
@@ -187,8 +145,6 @@ thumbnail: https://thmb.techidaily.com/eb79ccc0ff831a30910246817b125d2ff7b838321
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -196,4 +152,16 @@ thumbnail: https://thmb.techidaily.com/eb79ccc0ff831a30910246817b125d2ff7b838321
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-dreaming-through-the-viewfinder-inspiring-photo-ideas/"><u>[New] 2024 Approved Dreaming Through the Viewfinder Inspiring Photo Ideas</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-fix-guide-resolving-srt-not-working-problems/"><u>[Updated] The Ultimate Fix Guide Resolving SRT Not Working Problems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-and-compact-excellence-in-depth-look-at-the-samsung-galaxy-s10e/"><u>Affordable & Compact Excellence: In-Depth Look at the Samsung Galaxy S10e</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-magic-behind-apples-all-in-one-desktop-a-critical-look-at-the-imac-4k-model/"><u>Discover the Magic Behind Apple's All-in-One Desktop: A Critical Look at the iMac 4K Model</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/google-meet-screen-record-tips-for-iphoneandroid-users-for-2024/"><u>Google Meet Screen Record Tips for iPhone/Android Users for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-motorola-edge-40-neo-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-gif-hacks-for-iphone-users-storage-tips-and-playtime-tricks/"><u>In 2024, GIF Hacks for iPhone Users Storage Tips and Playtime Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-experience-with-viber-out-app/"><u>In-Depth Analysis: Experience with Viber Out App</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-portability-with-the-samsung-galaxy-chromebook-2-productivity-redefined/"><u>Unveiling the Power of Portability with the Samsung Galaxy Chromebook 2 - Productivity Redefined</u></a></li>
+</ul></div>
 

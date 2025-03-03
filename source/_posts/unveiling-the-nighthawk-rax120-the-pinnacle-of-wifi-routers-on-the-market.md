@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the Nighthawk RAX120: The Pinnacle of WiFi Routers on the Market"
-date: 2024-09-04T01:41:43.342Z
-updated: 2024-09-05T01:41:43.342Z
+date: 2025-02-26T16:51:40.873Z
+updated: 2025-03-02T22:15:13.943Z
 categories:
   - BestProducts
 description: "This Article Describes Unveiling the Nighthawk RAX120: The Pinnacle of WiFi Routers on the Market"
@@ -66,12 +66,6 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -80,12 +74,6 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Avoid the app**
 
  The setup options for the Netgear Nighthawk AX8 are the same as with Netgear’s other extenders—even those without Wi-Fi 6 support. You’ll begin with the extender plugged in near your router. If your router supports[WPS](https://www.lifewire.com/what-is-wps-4842308) , then you can pair the extender with it easily by following the process listed in the included booklet, which is as simple as pressing a button on the router and then doing the same on the extender.
@@ -98,20 +86,8 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024347/7443" target="_top" id="2024347">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024347/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Smooth sailing**
 
  Once through the hassle of setup, the Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender really did deliver strong performance. I tested the connection in my office, which reliably sees reduced 5GHz reception from my router due to obstructions in between, and saw a noticeable boost in both reception and speed.
@@ -128,12 +104,6 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
 
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/rtnI3hSe9qP5qFqjhu1LRxe7qYY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_03-19da5fea4d0349ce984f52a11493d337.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
  As a Wi-Fi mesh extender, the Netgear Nighthawk AX8 will automatically replicate the SSID of your router’s existing Wi-Fi networks and seamlessly keep you connected whenever you’re in range of either. That’s true even with non-Netgear routers and those without Wi-Fi 6 support, and it’s a huge benefit over some cheaper extenders that don’t keep the same network info intact across devices.
@@ -142,12 +112,6 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
 
  If you don’t have a Wi-Fi 6 router, then you’ll either want to start there or consider investing in a Wi-Fi mesh system instead.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: More than most**
 
  The Netgear Nighthawk AX8 Wi-Fi 6 Mesh Extender is listed at $250, although it’s being sold for $220 at multiple retailers as of this writing. That’s definitely on the higher end for an extender.
@@ -181,8 +145,6 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -190,4 +152,20 @@ thumbnail: https://thmb.techidaily.com/4bdb303f42b83bdabbc89bbaed552a530d9809337
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-beyond-cyberlink-hunt-for-the-ultimate-screen-recording-app/"><u>[Updated] In 2024, Beyond Cyberlink Hunt for the Ultimate Screen Recording App</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-legality-of-capturing-and-reproducing-youtube-video-playbacks/"><u>[Updated] Legality of Capturing and Reproducing YouTube Video Playbacks</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-lightninglash-delaytape-playback/"><u>[Updated] LightningLash DelayTape Playback</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-simple-guide-transforming-fb-videos-into-720p1080p-mp4-format-free/"><u>[Updated] Simple Guide Transforming FB Videos Into 720P/1080p MP4 Format (Free)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experiencing-android-at-its-finest-a-detailed-look-into-google-pixel-3-xt10-review/"><u>Experiencing Android at Its Finest: A Detailed Look Into Google Pixel 3 XT^10 Review</u></a></li>
+<li><a href="https://fox-within.techidaily.com/exploring-the-legacy-of-deng-xiaopings-revolutionary-reforms-in-china-as-analyzed-by-yl-computing-and-yl-software/"><u>Exploring the Legacy of Deng Xiaoping’s Revolutionary Reforms in China, as Analyzed by YL Computing and YL Software</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/futures-soundtrack-for-future-fitness-enthusiasts/"><u>Future's Soundtrack for Future Fitness Enthusiasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/gopros-boldest-move-in-the-black-hero9-model/"><u>GoPro's Boldest Move in the Black HERO9 Model</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-find-the-perfect-green-screen-software-for-your-mac-workflow/"><u>In 2024, Find the Perfect Green Screen Software for Your Mac Workflow</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/mf4770n-drivers-windows-11-8-7-upgrade-guide/"><u>MF4770n Drivers - Windows 11, 8, 7 Upgrade Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/power-up-your-tech-with-poweradd-pilot-pro2-in-depth-charger-pad-evaluation/"><u>Power Up Your Tech with POWERADD Pilot Pro2 - In-Depth Charger Pad Evaluation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/speak-with-ease-simple-pubg-sound-tweaks-for-2024/"><u>Speak with Ease Simple PUBG Sound Tweaks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-comprehensive-guide-to-choosing-the-right-tv-streamer-app-of-2024/"><u>The Comprehensive Guide to Choosing the Right TV Streamer App of 2024</u></a></li>
+</ul></div>
 

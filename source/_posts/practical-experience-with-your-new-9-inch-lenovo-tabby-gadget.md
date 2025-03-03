@@ -1,7 +1,7 @@
 ---
 title: Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
-date: 2025-02-05T19:28:20.103Z
-updated: 2025-02-11T17:51:07.545Z
+date: 2025-02-24T16:17:17.908Z
+updated: 2025-03-02T18:09:47.419Z
 categories:
   - BestProducts
 description: This Article Describes Practical Experience with Your New 9-Inch Lenovo Tabby Gadget
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/madw9taHRwBTZapEMNcHlZMo7i8=/540x405/fi
 ## Kinesis Freestyle2 Blue
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/Hagf4IpRh30OapEN21WY2crMw1g=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -55,10 +51,6 @@ Lifewire / Emily Isaacs
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/wuNd6MsZiivoQ99Xm0JHB9iB4Rs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_HeroSquare-99f80025b0254cbebe67ed22575a90c5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Emily Isaacs
 
 [View On Amazon $99](https://www.amazon.com/dp/B00NMVJYEW/?tag=lifewire-onsite-prod-20&ascsubtag=4780187%7Cnf95833ce2d2845368fd2b0eac089080a01%7CB00NMVJYEW) [View On Walmart $89](https://www.walmart.com/ip/Kinesis-KB800PB-us-Freestyle2-Ergonomic-Split-Keyboard-for-PC/41539324?slfpid=3) [View On Office Depot $113](https://www.officedepot.com/a/products/989638/Kinesis-Freestyle2-Ergonomic-Keyboard-For-PC/?cm%5Fmmc=PLA-%5F-Google-%5F-Computer%5FTablet%5FAccessories-%5F-989638&gclid=EAIaIQobChMIv7HKttKB6QIVUl8NCh2Afg94EAQYBCABEgJKIvD%5FBwE&gclsrc=aw.ds)
@@ -82,19 +74,11 @@ Lifewire / Emily Isaacs
 
 [The Best Ergonomic Keyboards of 2024](https://www.lifewire.com/best-ergonomic-keyboards-4147386)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design and Features: Freestyle2 breaks the mold**
 
  For people who are tethered to their[computers](https://www.lifewire.com/computer-and-laptop-reviews-4102643) , ergonomic keyboards are a must. These keyboards tend to be large thanks to the frequently employed swoop design that opens up the keys to provide additional spacing, so fingers feel less cramped, and a wrist-friendly position that prevents[repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) while typing. These keyboards are typically space hogs, taking up large portions of any surface that they’re placed on, often forcing users to reach further for[mice](https://www.lifewire.com/best-wireless-mice-6666207) . This can lead to shoulder injuries in place of wrist injuries—a trade-off no one wants.
 
 ![Kinesis Freestyle2 Blue (Mac)](https://www.lifewire.com/thmb/C-YK_WPWu8Ujx1fwDLxvO6Epi-w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Kinesis_ErgoKeyboard_1LW4147386_05-adcddc5fc05b415dbcd82396bc0ada77.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -127,10 +111,6 @@ Lifewire / Emily Isaacs
 ## **Battery: Plenty of juice so you’re never in a bind**
 
  The battery life on the Freestyle2 is excellent. It arrives with a partial charge, so it’s important to remember to fully charge it after receiving it. Once charged, the battery life can last up to 300 plus hours of regular use. The Freestyle2 does an excellent job of letting you know when its battery is getting low—battery lights will flash red to indicate when there are about four hours of battery life remaining. This ensures you’re never left hanging.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the features**
 
@@ -189,14 +169,15 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-navigating-file-transfer-how-to-save-igtv-videos-on-windowsmac-os/"><u>[New] Navigating File Transfer How to Save IGTV Videos on Windows/Mac OS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-thrift-in-tech-streaming-free-seminars-on-youtube/"><u>[Updated] 2024 Approved Thrift in Tech Streaming FREE Seminars on YouTube</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/affordable-and-efficient-tp-link-re200-ac750-wireless-range-expansion-assessment/"><u>Affordable & Efficient TP-Link RE200 AC750 Wireless Range Expansion Assessment</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/all-encompassing-clarification-the-basics-of-googles-podcast-platform-for-2024/"><u>All-Encompassing Clarification The Basics of Google's Podcast Platform for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/come-sviluppare-tecniche-per-bypassare-i-codici-anti-pirateria-sui-dvd-disney/"><u>Come Sviluppare Tecniche per Bypassare I Codici Anti-Pirateria Sui DVD Disney</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cutting-edge-computing-a-comparative-review-of-the-arm-powered-apple-mac-mini-against-competitors/"><u>Cutting-Edge Computing: A Comparative Review of the ARM-Powered Apple Mac Mini Against Competitors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratuite-et-haute-qualite-telechargez-vos-films-en-4k-uhd-gratuitement/"><u>Gratuité Et Haute Qualité : Téléchargez Vos Films en 4K UHD Gratuitement</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/how-the-wii-u-became-a-thriving-force-in-modern-gaming/"><u>How the Wii U Became a Thriving Force in Modern Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-escort-max-360-the-ultimate-multi-functional-radar-detection-system-with-navigation-capabilities/"><u>In-Depth Analysis: Escort Max 360 - The Ultimate Multi-Functional Radar Detection System with Navigation Capabilities</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-essential-tips-for-wirecast-live-streaming-to-youtube/"><u>[Updated] In 2024, Essential Tips for WireCast Live Streaming to Youtube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-apple-watch-series-review-surpassing-excellence-one-step-further/"><u>Comprehensive Apple Watch Series √ Review: Surpassing Excellence, One Step Further</u></a></li>
+<li><a href="https://win-dash.techidaily.com/free-download-steelseries-keyboard-drivers-and-software/"><u>Free Download: SteelSeries Keyboard Drivers & Software</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-infinix-note-30-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Infinix Note 30 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-how-to-choose-vr-headset-mobile-vr-or-tethered-vr/"><u>In 2024, How to Choose VR Headset? Mobile VR or Tethered VR?</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-your-current-ipad-model-falling-behind-the-times/"><u>Is Your Current iPad Model Falling Behind the Times?</u></a></li>
+<li><a href="https://windows11.techidaily.com/resetting-dns-cache-a-quick-tutorial-for-windows-users/"><u>Resetting DNS Cache: A Quick Tutorial for Windows Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-all-in-one-laptop-review-how-the-hp-chromebook-11-excels-in-study-sessions-office-tasks-and-gaming-adventures/"><u>The All-in-One Laptop Review: How the HP Chromebook 11 Excels in Study Sessions, Office Tasks & Gaming Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-synologys-rt2600ac-exceptional-long-range-wi-fi-and-built-in-parental-controls-unveiled/"><u>The Ultimate Guide to Synology's RT2600ac: Exceptional Long Range Wi-Fi & Built-In Parental Controls Unveiled</u></a></li>
 </ul></div>
 

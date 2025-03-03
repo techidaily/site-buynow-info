@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Mac's Hidden Photo Tool: A Complete Guide to Using Preview"
-date: 2024-08-26T06:27:05.568Z
-updated: 2024-08-27T06:27:05.568Z
+date: 2025-03-01T17:05:48.581Z
+updated: 2025-03-02T17:33:06.297Z
 categories:
   - BestProducts
 description: "This Article Describes Mastering the Mac's Hidden Photo Tool: A Complete Guide to Using Preview"
@@ -13,9 +13,6 @@ thumbnail: https://thmb.techidaily.com/521e77f0b3c0772eff4a23cfd11435c9aec9bd0ff
 
 4
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Apple iMac 21.5-inch 4K
 
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/dIY3bLJSRioBJmHFFCGQjcgcxbU=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4045927-1-625cb1ba7a894cc38db8565dd81072b3.jpg)
@@ -67,9 +64,6 @@ Lifewire / Gannon Burgett
 
  Apple is no stranger to creating minimal devices, but the 21.5-inch 4K iMac takes things to a whole new level with a screen that pops and a design that looks stylish no matter the setting. As beautiful as it is on the outside, under the hood you also have a solid set of components with a 3.4GHz 7th generation quad-core Intel Core i5 CPU, 8GB RAM, and 1TB Fusion Drive. Apple has managed to pack quite a bit of power inside the slender frame. We put it to the test to see how it fares for multimedia and productivity uses.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/TCcSm-nkER9HhHM8YIPMWbaezRA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-4-fa6cf253bfd44ab991c366691b68bdf5.jpg)
 
  Lifewire / Gannon Burgett
@@ -98,9 +92,6 @@ Lifewire / Gannon Burgett
 
  Going through the setup process took us approximately five minutes, which included setting up our iCloud account and getting the various login settings in place. We opted to set this up as a new computer, but there’s also the ability to set it up from an Apple Time Capsule backup or transfer content from a PC via USB. The amount of time those options take will vary depending on the device you’re transferring the information from as well as the amount of data being transferred.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Bright, brilliant, and ready to shine**
 
  With a resolution of 4096 x 2304 pixels, the 4K iMac has more than 9.4 million pixels and features a pixel density of 217 pixels per inch, more than enough to make individual pixels indistinguishable at normal viewing distances. Text was clear across nearly every application and browser and photos just came to life with ridiculous levels of detail.
@@ -111,18 +102,6 @@ Lifewire / Gannon Burgett
 
  As mentioned above, it would’ve been nice to see a smaller bezel, but that’s about the only department the display falls short.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/IKZ75jBAosAG3M1Py_-E0ElYAfM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-5-a705ea67b88b4cf694c53e4715a9aceb-f57b3be92a934d8ab579d90728e23fe8.jpg)
 
 Lifewire / Gannon Burgett
@@ -143,9 +122,6 @@ Lifewire / Gannon Burgett
 
  All-in-all, the iMac seems to punch right at or above its specifications when compared to similar hardware. It’s not going to be pumping out 8K footage, but for basic 4K video editing and image post-processing, the graphics card is more than enough. As for productivity, there’s not much you can throw at the iMac that it can’t handle. The only thing we noticed slowing down the computer was the 8GB of RAM when we had over a dozen applications open, but that can be fixed by upgrading to the 16GB or 32GB model (although it’s not a cheap upgrade).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Network: Fast and reliable**
 
  The 21.5-inch 4K iMac features both wired and wireless connectivity for internet access. As previously mentioned, the iMac features a Gigabit Ethernet (RJ-45) port on the rear of the computer for a hardwired internet connection. For Wi-Fi, the iMac uses an 802.11ac network adapter with support for IEEE 802.11a/b/g/n.
@@ -156,16 +132,10 @@ Lifewire / Gannon Burgett
 
  The only camera on the 4K iMac is the integrated webcam, which sits dead center above the display. We would’ve liked to see a 1080p or even 4K webcam included, but the 720p resolution is good enough for basic video messaging.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Apple iMac 21.5-inch 4K](https://www.lifewire.com/thmb/rFu0_k9BjbUxQdoEYOcNGU35LJA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-2-a3d2f38b9509480ba41bbb5b33815d1a.jpg)
 
  Lifewire / Gannon Burgett
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Software: Everything you need and nothing more**
 
  As with all Apple computers, the 21.5-inch 4K iMac comes with macOS Mojave pre-installed. If you’re used to macOS as a whole, you’ll feel right at home as we did. Compared to past versions of macOS, Mojave improves in a number of areas, including an integrated Dark mode that turns much of the user interface dark grey to spare your eyes. There’s also a feature called “Stacks” that intelligently combines files of the same type on your[desktop](https://www.lifewire.com/best-desktop-pcs-4045927) . Improved[screenshot functionality](https://www.lifewire.com/what-is-a-screenshot-1701742) also makes snapping your screen easier.
@@ -174,9 +144,6 @@ Lifewire / Gannon Burgett
 
  Unlike Windows, macOS doesn’t come with any bloatware either. There’s a number of pre-installed apps developed by Apple, including four new ones borrowed from Apple’s mobile operating system, iOS, but most of the pre-installed apps are the standard array of programs you’d expect to see on any modern computer.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: The Apple tax is real**
 
  The 21.5-inch 4K iMac we tested with the aforementioned specifications retails for $1,499\. Compared to other Windows PCs with similar specifications, the iMac is without pricey for the specs it offers. However, this is par for the course with Apple, so much so that the term “Apple tax” has become a commonly-used phrase. What you’re paying for is the entire package, wrapped up in one of the best-looking frames out there.
@@ -207,9 +174,6 @@ Lifewire / Gannon Burgett
 * [Alienware Aurora R7](https://www.lifewire.com/alienware-aurora-r7-review-4689097)
 * [Lenovo ThinkCentre M720 Tower](https://www.lifewire.com/lenovo-thinkcentre-m720-tower-review-4776238)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  iMac 21.5-inch 4K
@@ -226,14 +190,11 @@ Lifewire / Gannon Burgett
 * Connections  3.5 mm headphone jack, SDXC card slot, Four USB 3 ports (compatible with USB 2), Two Thunderbolt 3 (USB-C) ports, 10/100/1000BASE-T Gigabit
 * What’s in the box  21.5‑inch iMac with Retina 4K display Magic Keyboard Magic Mouse 2 Power cord Lightning to USB Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -242,4 +203,26 @@ Lifewire / Gannon Burgett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-high-fidelity-screen-recorder-for-windows-11/"><u>[New] High-Fidelity Screen Recorder for Windows 11</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-list-of-cost-free-game-capture-tools-for-2024/"><u>[New] The Ultimate List of Cost-Free Game Capture Tools for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-discover-facebooks-latest-transformations/"><u>[Updated] 2024 Approved Discover Facebook's Latest Transformations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-elite-windows-11-editing-software-showcase-for-2024/"><u>[Updated] Elite Windows 11 Editing Software Showcase for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-vid-confessions-a-key-to-brand-success/"><u>[Updated] Vid Confessions A Key to Brand Success?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-motorola-moto-g14-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Motorola Moto G14 to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-imo-chat-app-evaluation/"><u>Comprehensive Imo Chat App Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-networking-storage-the-elite-selection-of-server-frames-and-housings-for-tech-enthusiasts-2024/"><u>Cutting-Edge Networking Storage: The Elite Selection of Server Frames and Housings for Tech Enthusiasts - 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-vibrant-creativity-with-the-huion-kamvas-gt-191-artist-drawing-pad-reviewed/"><u>Experience Vibrant Creativity with the Huion Kamvas GT-191 Artist Drawing Pad Reviewed!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/high-definition-superzoom-photos-canon-sx70-to-the-rescue/"><u>High-Definition Superzoom Photos? Canon SX70 to the Rescue!</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-amplifying-photos-keeping-precision/"><u>In 2024, Amplifying Photos Keeping Precision</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-effortlessly-create-a-cross-platform-conversation-space-on-skype-a-detailed-manual-for-users-of-all-os-platforms/"><u>In 2024, Effortlessly Create a Cross-Platform Conversation Space on Skype A Detailed Manual for Users of All OS Platforms</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premier-sounds-selections-for-video-creation/"><u>In 2024, Premier Sounds Selections for Video Creation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/prime-day-specials-unbeatable-deals-on-the-latest-samsung-electronics/"><u>Prime Day Specials: Unbeatable Deals on the Latest Samsung Electronics</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-next-generation-with-netgear-nighthawk-ax8-router-range-extender-perfect-for-future-proof-networks/"><u>Reviewing the Next Generation with Netgear Nighthawk AX8 Router Range Extender: Perfect for Future-Proof Networks?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-ahead-of-the-curve-with-cutting-edge-health-gadgets-best-fitness-tracker-innovations/"><u>Stay Ahead of the Curve with Cutting-Edge Health Gadgets: Best Fitness Tracker Innovations</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/step-by-step-instructions-for-perfect-ps4-webcam-setup/"><u>Step-by-Step Instructions for Perfect PS4 Webcam Setup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tropico-6-review-oppressing-a-tropical-paradise/"><u>Tropico 6 Review: Oppressing A Tropical Paradise</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/update-to-the-most-recent-nvidia-rtx-3080-ti-graphics-card-drivers-for-modern-windows-versions/"><u>Update to the Most Recent NVIDIA RTX 3080 Ti Graphics Card Drivers for Modern Windows Versions</u></a></li>
+</ul></div>
 

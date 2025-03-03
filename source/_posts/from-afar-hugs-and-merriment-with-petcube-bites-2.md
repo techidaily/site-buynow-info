@@ -1,7 +1,7 @@
 ---
 title: From Afar, Hugs and Merriment with Petcube Bites 2
-date: 2025-02-09T21:41:55.393Z
-updated: 2025-02-11T21:47:52.558Z
+date: 2025-02-23T18:30:06.855Z
+updated: 2025-03-02T17:30:26.589Z
 categories:
   - BestProducts
 description: This Article Describes From Afar, Hugs and Merriment with Petcube Bites 2
@@ -92,17 +92,9 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery life: No worries**
 
@@ -118,10 +110,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Autofocus: Blazing fast**
 
  We were shocked by how fast and consistent the autofocus is in the SX70 HS, even in low-light situations. It rarely fails to lock on to your intended subject, and focus tracking works flawlessly.
@@ -129,10 +117,6 @@ Lifewire / Andy Zahn
  The autofocus is really one of the standout features of the SX70 HS—it makes the camera ideal for anyone who will be photographing fast and erratic subjects. Whether you’re capturing precious family moments, sporting events, or wildlife, the SX70 HS will really help ensure you get the shot when it counts the most.
 
  Lifewire / Andy Zahn
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Photo Quality: Great colors, average resolution**
 
@@ -178,10 +162,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -213,10 +193,6 @@ Lifewire / Andy Zahn
  **A tremendously fun camera that is exceedingly well-rounded if a bit pricey.**
 
  For a general-purpose point-and-shoot, the Canon Powershot SX70 HS is hard to beat. It has great build quality and lightning-fast autofocus, and despite a few minor flaws, it just about manages to justify its premium cost—if you can find it on sale, then it makes an even better buy.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -258,18 +234,16 @@ Lifewire / Andy Zahn
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-swift-and-efficient-turning-youtube-vids-into-mp4-high-definition-via-online-service/"><u>[New] 2024 Approved Swift & Efficient Turning YouTube Vids Into MP4, High-Definition via Online Service</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-synchronizing-tracks-through-effective-crossfading/"><u>2024 Approved Synchronizing Tracks Through Effective Crossfading</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boost-your-health-journey-experience-a-new-level-of-motivation-and-tracking-with-the-fitbit-versa-s-3-featuring-inbuilt-gps-technology-and-fitness-applicati87/"><u>Boost Your Health Journey: Experience a New Level of Motivation and Tracking with the Fitbit Versa S 3, Featuring Inbuilt GPS Technology and Fitness Applications.</u></a></li>
-<li><a href="https://driver-error.techidaily.com/enhancing-system-bus-control-on-windows-11/"><u>Enhancing System Bus Control on Windows 11</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/exchange-emergency-management-effective-strategies/"><u>Exchange Emergency Management: Effective Strategies</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-acer-xfa240-monitor-prioritizing-performance-and-usability/"><u>Expert Analysis of the Acer XFA240 Monitor: Prioritizing Performance and Usability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/most-advanced-cable-modems-on-the-market-2024-edition/"><u>Most Advanced Cable Modems on the Market - 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-aesthetic-and-featherlight-advantages-of-the-acer-chromebook-r-11-examined/"><u>The Aesthetic & Featherlight Advantages of The Acer Chromebook R 11 Examined</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-battle-of-tech-titans-ipad-pro-vs-macbook-pro-unveiled/"><u>The Battle of Tech Titans: IPad Pro Vs. MacBook Pro Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-best-laptops-of-2021-ranking-with-a-close-look-at-the-lenovo-yoga-a940/"><u>The Best Laptops of 2021: Ranking with a Close Look at the Lenovo Yoga A940</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/top-5-limitations-why-chatgpt-falls-short-in-analyzing-the-cryptocurrency-market/"><u>Top 5 Limitations: Why ChatGPT Falls Short in Analyzing the Cryptocurrency Market</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshoot-non-responsive-aoc-usb-monitors-in-windows-11-effective-solutions/"><u>Troubleshoot Non-Responsive AOC USB Monitors in Windows 11: Effective Solutions</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/updated-in-2024-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>Updated In 2024, Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximize-your-youtube-reach-key-tips-for-enhancing-video-seo/"><u>[Updated] Maximize Your YouTube Reach Key Tips for Enhancing Video SEO</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/discover-the-top-twelve-multi-device-mp4-cameras-reviewed-and-ranked-by-movavi-for-optimal-video-capture/"><u>Discover the Top Twelve Multi-Device MP4 Cameras Reviewed and Ranked by Movavi for Optimal Video Capture</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/easy-tutorials-for-making-your-videos-compatible-with-apple-mobile-devices/"><u>Easy Tutorials for Making Your Videos Compatible with Apple Mobile Devices</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-bypass-iphone-7-passcode-easily-video-inside-by-drfone-ios/"><u>In 2024, How to Bypass iPhone 7 Passcode Easily Video Inside</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/network-neutralizer-overcoming-facebook-intrusion-for-2024/"><u>Network Neutralizer Overcoming Facebook Intrusion for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/prolonged-gaming-mastery-with-the-mavix-m9-chair-an-insiders-review-on-comfort-and-support/"><u>Prolonged Gaming Mastery with the Mavix M9 Chair - An Insider's Review on Comfort and Support</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/re-routing-failed-files-download-on-windows-11-and-11-pcs/"><u>Re-Routing Failed Files Download on Windows 11 & 11 PCs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reviewing-the-netgear-powerline-1200-is-a-bulky-appearance-sacrificing-internet-speed/"><u>Reviewing the Netgear Powerline 1200 - Is a Bulky Appearance Sacrificing Internet Speed?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stay-on-time-with-the-mirari-childs-alarm-clock-an-honest-product-evaluation/"><u>Stay on Time with the Mirari Child's Alarm Clock: An Honest Product Evaluation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/streamline-your-workflow-with-the-hp-stream-11s-slim-design/"><u>Streamline Your Workflow with the HP Stream 11'S Slim Design</u></a></li>
+<li><a href="https://fox-search.techidaily.com/1728485298443-3/"><u>マッキーで効率的にファイルを同期する方法：無料ツールベスト3解説</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
-date: 2025-02-07T23:34:59.216Z
-updated: 2025-02-11T22:47:22.851Z
+date: 2025-02-28T19:11:05.660Z
+updated: 2025-03-03T00:11:36.906Z
 categories:
   - BestProducts
 description: "This Article Describes The TP-Link Archer C80 Breakdown: Is It Worthy in the Sub-$100 Range? - Reviews & Comparisons"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/ba04435a9c29d64e6b54466059bc1d63c6b55c0d2
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Microsoft Xbox Series S
 
@@ -85,10 +81,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Xbox Series S](https://www.lifewire.com/thmb/3-mUIkkRYilM5F2tvCYMPXtW1Ew=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1-04d996bcdfbb489d84e8945e4c475713.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
  The overall form factor of the Series S is similar to the Xbox One S, but the Series S lacks an optical drive and includes a massive circular vent on one side. This striking design choice has drawn comparisons to a speaker and a washing machine. It also bears a passing resemblance to Microsoft’s[adaptive controller](https://www.lifewire.com/what-is-the-xbox-adaptive-controller-4707753) , which is boxy, white, and features two large black circular pads. This aesthetic might not be for everyone, but I like how it stands next to my television.
@@ -104,10 +96,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -130,10 +118,6 @@ Lifewire / Jeremy Laukkonen
  Post-launch titles have run the gamut. Cyberpunk 2077 was disappointing initially, with a capped frame rate and dynamic resolution. I ended up playing it on a PC instead, but the devs did go back later and add a performance mode that bumped it up to 60 FPS at the cost of a lower resolution. At the other end of the spectrum, I was pleasantly surprised when Hades ran in native 4K, and it felt just as fluid and frenetic as it ever did on PC.
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Games: Microsoft still has an exclusivity problem**
 
@@ -164,10 +148,6 @@ Lifewire / Jeremy Laukkonen
  For those who need more space, the Series S has a slot on the back for a storage expansion card, a proprietary storage device designed to be just as fast as the built-in NVME SSD. The issue is that it's expensive. You can get a USB 3.1 SSD of a similar capacity for less than half as much, so most price-conscious Series S owners will probably gravitate in that direction. However, Microsoft gives the raw I/O bandwidth of the drive, and presumably the expansion card, as 2.4 GB/s, which is almost twice as fast as USB 3.1.
 
  So if you go with an external USB drive, you'll only be able to play Xbox One, Xbox 360, and original Xbox games stored on it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Internet Connectivity: Fast when wired, but Wi-Fi is a mixed bag**
 
@@ -207,10 +187,6 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Jaw-droppingly low**
 
  Pardon me for burying the lede, but the price of the Xbox Series S is the actual headline here. The Series S has an astoundingly low MSRP of just $299\. Additionally, you can buy one by paying just $24.99 per month for two years, including access to Game Pass Ultimate.
@@ -220,10 +196,6 @@ Lifewire / Jeremy Laukkonen
  One nice thing about the Xbox Series X|S is that when you buy a new console, you typically have a bunch of add-ons to worry about that drive the price up. For example, you might have to purchase several controllers to support multiplayer, which adds up to $60 or more per controller. Since the Series S supports most Xbox One peripherals, owners don’t have to worry about the added expense of buying extra controllers.
 
  One expense you may need to budget is a high-speed USB 3.1 drive. The console is perfectly usable without an external drive, but expect to uninstall games regularly to make more space if you limit yourself to the onboard storage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Xbox Series S vs. PS5 Digital**
 
@@ -281,24 +253,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-apex-workplace-data-sphere/"><u>[New] Apex Workplace Data Sphere</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-valorant-thumbnail-geniuses-quick-skilled-and-professionally-done/"><u>[New] Valorant Thumbnail Geniuses Quick, Skilled, and Professionally Done</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-discover-the-evolution-of-video-technology-with-mycams-review/"><u>[Updated] Discover the Evolution of Video Technology with MyCam's Review</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-quick-peek-at-windows-files-heres-how/"><u>[Updated] In 2024, Quick Peek at Windows Files, Here's How</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/my-cloud/"><u>如何将My Cloud家用云存储中文文件安全地备份到外部硬碟上的三种有效途径</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/battle-of-the-apple-behemoths-iphone-15-pro-and-pro-max-compared-in-detail/"><u>Battle of the Apple Behemoths: IPhone 15 Pro and Pro Max Compared in Detail</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-versatile-kootee-laptop-chiller-pad/"><u>Expert Insights on the Versatile Kootee Laptop Chiller Pad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/feature-face-off-how-does-apple-tv/"><u>Feature Face-Off: How Does Apple TV</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/gmail-mastery-101-creating-intelligent-filters-and-managing-multiple-email-accounts-efficiently/"><u>Gmail Mastery 101: Creating Intelligent Filters and Managing Multiple Email Accounts Efficiently</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-nokia-c210-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Nokia C210</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-12-by-drfone-android-unlock-android-unlock/"><u>How to unlock 12</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-7-plus-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 7 Plus Without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/jump-into-22-rapid-online-game-escapes/"><u>Jump Into 22 Rapid Online Game Escapes</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-laptop-evaluation-robust-design-with-simple-features/"><u>Lenovo Ideapad Laptop Evaluation: Robust Design with Simple Features</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/razer-portal-critique-advanced-wi-fi-networking-for-the-competitive-player/"><u>Razer Portal Critique: Advanced Wi-Fi Networking for the Competitive Player</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/redefining-expectations-with-m1-a-comprehensive-review-of-apples-latest-2020-mac-mini/"><u>Redefining Expectations with M1: A Comprehensive Review of Apple's Latest 2020 Mac Mini</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-desktop-performance-the-imac-with-m1-integration-reviewed/"><u>Revolutionizing Desktop Performance: The iMac with M1 Integration Reviewed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-vinyl-upgrade-dive-into-audio-technicas-at-lp120xusb/"><u>The Ultimate Vinyl Upgrade: Dive Into Audio-Technica's AT-LP120XUSB</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-most-advanced-usb-wi-fi-dongles-of-2024-your-comprehensive-guide/"><u>Unveiling the Most Advanced USB Wi-Fi Dongles of 2024 - Your Comprehensive Guide</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-globalviewers-access-unlimited-local-tv-for-life/"><u>[Updated] In 2024, GlobalViewers Access Unlimited Local TV for Life</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-step-by-step-approach-to-freeing-up-space-in-figma/"><u>A Step-by-Step Approach to Freeing Up Space in Figma</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-eero-pro-mesh-network-router-assessment-ideal-choice-for-whole-house-connectivity/"><u>Comprehensive Eero Pro Mesh Network Router Assessment – Ideal Choice For Whole House Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-alcatels-joy-tab-2-best-value-lte-tablets-compared/"><u>Comprehensive Review of Alcatel's Joy Tab 2 - Best Value LTE Tablets Compared</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deconstructing-googles-pixel-slate-an-in-depth-chromeos-review/"><u>Deconstructing Google's Pixel Slate: An In-Depth ChromeOS Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-americas-best-value-singing-rooms-karaoke-nights-for-150-or-less/"><u>Discover America's Best Value Singing Rooms: Karaoke Nights For $150 or Less</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-the-latest-broadcom-bluetooth-drivers-compatible-with-windows-11-8-and-7/"><u>Download the Latest Broadcom Bluetooth Drivers Compatible with Windows 11, 8 & 7</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/economical-studiolightkit-unveiled/"><u>Economical StudioLightkit Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-syma-s111g-remote-controlled-copter-great-deals-and-indoor-adventures/"><u>Explore the Syma S111G Remote Controlled Copter: Great Deals and Indoor Adventures</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-enhanced-features-of-wasteland-2-directors-cut-a-gripping-tbrpg-evaluation/"><u>Exploring the Enhanced Features of Wasteland 2 Director’s Cut - A Gripping TBRPG Evaluation</u></a></li>
+<li><a href="https://win11.techidaily.com/guiding-you-through-secure-boot-and-tpm-control-in-virtualbox/"><u>Guiding You Through Secure Boot & TPM Control in VirtualBox</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-gt-5-pro-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Realme GT 5 Pro Phone without Any Data Loss</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-elevating-live-play-with-professional-gear-lists/"><u>In 2024, Elevating Live Play with Professional Gear Lists</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-realme-gt-neo-5-se-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Realme GT Neo 5 SE Device</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/prime-focus-systems-ultimate-4k-dslr-rig-guide/"><u>Prime Focus Systems Ultimate 4K DSLR Rig Guide</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-tech-truth-about-texting-with-snapchat-and-gpt/"><u>The Tech Truth About Texting with Snapchat & GPT</u></a></li>
 </ul></div>
 

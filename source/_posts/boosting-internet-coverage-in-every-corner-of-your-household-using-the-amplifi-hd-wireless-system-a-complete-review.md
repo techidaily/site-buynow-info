@@ -1,7 +1,7 @@
 ---
 title: Boosting Internet Coverage in Every Corner of Your Household Using the Amplifi HD Wireless System - A Complete Review
-date: 2024-09-04T01:41:05.593Z
-updated: 2024-09-05T01:41:05.593Z
+date: 2025-02-28T22:01:34.797Z
+updated: 2025-03-02T23:05:42.792Z
 categories:
   - BestProducts
 description: This Article Describes Boosting Internet Coverage in Every Corner of Your Household Using the Amplifi HD Wireless System - A Complete Review
@@ -78,12 +78,6 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/8H4QhkgilcsrFlNL40KO1tDnKvs=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-02-cca6ebdc67d6477ab973b796fb7e773c.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
  Beyond this, the other major gameplay mechanic is a system of effort and inspiration. Every action you take will prompt you to use effort. This effort allows for your character to work harder at the chosen action, and thus gives your character a better chance of accomplishing their goal.
@@ -98,12 +92,6 @@ Lifewire / Kelsey Simon
 
  The one thing the game does have to offer is a rich and unique world that combines elements of fantasy and science fiction in an interesting way.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Graphics: Outdated and simplistic**
 
  Tides of Numenera was created in 2017―however, you wouldn’t know this if you jumped into the game and made a guess based upon the[graphics](https://www.lifewire.com/optimizing-video-game-frame-rates-811784) . The graphics look more like they’re stuck in the early 2000s, with blocky, almost pixelated characters. There is some forgiveness to be had because the game isn’t focused on the visuals―it’s more about the words and the story. But there is a limit to how forgiving one can be considering the game isn’t that old.
@@ -112,20 +100,8 @@ Lifewire / Kelsey Simon
 
 ![Torment: Tides of Numenera](https://www.lifewire.com/thmb/DfXjCwwtXMVBL58JZmix5sR3vBQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4580331-Torment-Tides-of-Numeria-04-7f9c8617b9cd41738ad2ac02abf0aec9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Kelsey Simon
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Only worth it if you’re keen on the story**
 
  Torment: Tides of Numenera is still an expensive game, costing $50 on[Steam](https://www.lifewire.com/best-free-steam-games-4176308) when it’s not on sale. It’s a game created with a very specific type of player in mind―and I suspect most people are not going to like it.
@@ -134,12 +110,6 @@ Lifewire / Kelsey Simon
 
  While Tides of Numenera wasn’t really my thing, it could be a fun adventure for someone else.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Competition: Other story focused RPGs**
 
  There are quite a few other games available that are story-focused RPGs besides Tides of Numenera. Wasteland 2 (view on[Amazon](https://www.amazon.com/Wasteland-2-Directors-Cut-PlayStation-4/dp/B013CQHQFU/?tag=lifewire-onsite-prod-20&ascsubtag=5077302%7Cnac6eb02defc3413da4da5d4ed0dc77ea21%7C) ) is a very similar game, as it is made by the same developers, but where Numenera falls flat with its heavy-handed storytelling, Wasteland 2 stands apart with a fun, tactical combat system.
@@ -152,18 +122,6 @@ Lifewire / Kelsey Simon
 
  Torment: Tides of Numenera is a role-playing game focused on creating an experience that is more novel than video game. The storytelling is text heavy, but the world is rich and unique, mixing sci-fi and fantasy elements. Unfortunately, the unique world wasn’t enough to carry me through the outdated graphics and boring gameplay.
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Torment: Tides of Numenera
@@ -172,14 +130,11 @@ Lifewire / Kelsey Simon
 * ESRB Rating  M for Mature
 * Available Platforms  PC, MaxOS,Xbox One, PlayStation 4
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,4 +143,22 @@ Lifewire / Kelsey Simon
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-snappy-strategies-for-reacquiring-deleted-posts/"><u>[New] Snappy Strategies for Reacquiring Deleted Posts</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-list-for-seeking-no-cost-high-quality-vector-imagery/"><u>[New] The Ultimate List for Seeking No-Cost High-Quality Vector Imagery</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-how-to-upscalled-vids-on-instagram/"><u>[Updated] In 2024, Step-by-Step How to Upscalled Vids on Instagram</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-photobooth-recording-stalls-whats-goin-on-in-2024/"><u>[Updated] Photobooth Recording Stalls What's Goin' On, In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-stepwise-journey-to-meme-mastery-in-kinemaster-for-2024/"><u>A Stepwise Journey to Meme Mastery in KineMaster for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/beyond-firetv-the-rise-of-chromecast-powered-by-google-tv/"><u>Beyond FireTV: The Rise of Chromecast Powered by Google TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-exceptional-value-the-lenovo-tab-m10-fhdplus-2020-review-spectacular-screen-unbeatable-budget/"><u>Discover Exceptional Value: The Lenovo Tab M10 FHD+ (2020) Review - Spectacular Screen, Unbeatable Budget</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-visual-space-with-nixplays-advanced-hd-photo-frame/"><u>Elevating Your Visual Space with Nixplay's Advanced HD Photo Frame</u></a></li>
+<li><a href="https://win-answers.techidaily.com/emergency-fixes-for-severe-dev-errors-impacting-call-of-dutys-modern-warfare-and-warzone-titles/"><u>Emergency Fixes for Severe Dev Errors Impacting Call of Duty's Modern Warfare & Warzone Titles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/epic-showdown-my-take-on-the-new-season-of-fortnite-battle-royale/"><u>Epic Showdown: My Take on the New Season of Fortnite Battle Royale</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-vivo-s18e-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Vivo S18e Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/leading-17-inch-computers-of-2024-expertly-curated-top-choices/"><u>Leading 17-Inch Computers of 2024: Expertly Curated Top Choices</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-modifying-text-fonts-on-windows-11/"><u>Step-by-Step Guide: Modifying Text Fonts on Windows 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tablets-face-off-in-depth-comparison-of-amazon-fire-and-samsung-models-to-help-you-decide/"><u>Tablets Face-Off: In-Depth Comparison of Amazon Fire and Samsung Models to Help You Decide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/vr-revolutionized-evaluating-the-strengths-and-challenges-for-the-vive-cosmos-amid-tough-competition/"><u>VR Revolutionized: Evaluating the Strengths and Challenges for the Vive Cosmos Amid Tough Competition</u></a></li>
+</ul></div>
 

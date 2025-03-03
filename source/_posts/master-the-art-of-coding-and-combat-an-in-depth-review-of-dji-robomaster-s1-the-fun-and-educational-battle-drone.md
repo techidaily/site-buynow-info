@@ -1,7 +1,7 @@
 ---
 title: "Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
-date: 2025-02-05T21:00:11.881Z
-updated: 2025-02-11T18:04:12.044Z
+date: 2025-03-01T23:32:39.534Z
+updated: 2025-03-02T22:09:35.338Z
 categories:
   - BestProducts
 description: "This Article Describes Master the Art of Coding & Combat: An In-Depth Review of DJI Robomaster S1, The Fun & Educational Battle Drone"
@@ -78,10 +78,6 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/lHiNdBeYxT8ClO7fv3LwEZqMjWE=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-6-5c924b2dc9e77c0001a9278c.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Fred Meyer
 
  We also loved the fact that the EX6200 uses a separate AC adapter and cord to supply its power. Other extenders that plug into a socket limit the areas you can deploy them, take up a wall plug, and just are usually an eyesore. On the other hand, the EX6200 is a very attractive piece of equipment that looks sharp sitting on a desk. Also, if you just don't want to show, since it uses a cord you have the freedom to tuck it somewhere out of sight easily.
@@ -90,10 +86,6 @@ Lifewire / Fred Meyer
 
  For example, our[router](https://www.lifewire.com/what-is-a-router-2618162) sits in the living room entertainment center against one wall. On the opposite side of the wall sits an entertainment center in our bedroom. Now, we could run an Ethernet cord around the wall, through the bedroom door, and to the entertainment center, which would be around 60 feet or so, or we could drill through the wall and install an Ethernet socket. However, with the EX6200 we didn’t have to do either. Since it's right on the other side of the wall, we can set up the EX6200 and get the full signal to hardwire our TV,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and Xbox One, which gives better speed and reliability than if we used them with WiFi-only.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: A familiar process**
 
  Getting the EX6200 up and running is the same process used with pretty much every wireless extender on the market. Pull the thing out of the box, plug it in within 10-15 feet of your Wi-Fi router, and hit the WPS button. Then head over to your router and hit the corresponding WPS button on it. Voila! You're good to go.
@@ -101,10 +93,6 @@ Lifewire / Fred Meyer
  Alternatively, you can either plug into one of the Ethernet ports, or connect via the temporary network the EX6200 creates when you first turn it on. Check the manual for the web address to access the extender's interface (<www.mynetext.net>), and the bottom of the router for the default username and password (change this immediately), log in and follow the wizard that loads to get connected.
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/Lny9pSzLcp1hItabWfQAbx8cAoc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-2-5c924b5846e0fb0001f8d14a.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Fred Meyer
 
@@ -122,15 +110,7 @@ Lifewire / Fred Meyer
 
 ![Netgear EX6200 AC1200](https://www.lifewire.com/thmb/C3GG9BATc7pjzGQZsIXmC4hlBTY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4043312-4-5c924c5046e0fb000146ae2c-e8aa858c433c410696d08b615cdee234.jpeg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Fred Meyer
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Hardwire everything**
 
@@ -157,10 +137,6 @@ Lifewire / Fred Meyer
  If you're looking for a device with a bit more flair and features than your run-of-the-mill Wi-Fi extender, the Netgear EX6200 is an excellent choice.
 
  From our testing, we'd say the sweet spot for the EX6200 is 50 feet or less. Your results, of course, may vary depending on how many walls you place between yourself and the device and their composition. One area we did find the EX6200 excelled in is verticality. It seems like a lot of plug-in models have their range dramatically affected by height, but the EX6200 transmitted to the second floor into a room around 40 feet away in a straight line and we saw speeds around 300 to 350 Mbps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: A solid balance**
 
@@ -220,22 +196,18 @@ Lifewire / Fred Meyer
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-compelling-youtube-narratives-with-chapters-and-subsections/"><u>[New] In 2024, Crafting Compelling YouTube Narratives with Chapters and Subsections</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-snappy-sharing-uploading-and-publishing-short-videos-online/"><u>[Updated] Snappy Sharing Uploading and Publishing Short Videos Online</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/benefits-and-drawbacks-unveiling-the-truth-about-pidgin-messenger/"><u>Benefits and Drawbacks - Unveiling the Truth About Pidgin Messenger</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-dialogues-the-turkish-korean-connection/"><u>Cultural Dialogues: The Turkish-Korean Connection</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discovering-the-leading-iphones-for-immersive-gaming-sessions-expert-advice/"><u>Discovering the Leading iPhones for Immersive Gaming Sessions: Expert Advice</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/gain-a-new-edge-elevate-your-cars-visibility/"><u>Gain a New Edge: Elevate Your Car's Visibility</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/horizon-proworks-complete-4k-integrated-solution/"><u>Horizon ProWorks Complete 4K Integrated Solution</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-without-jailbreak-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location without Jailbreak On Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-transforming-recording-into-stunning-podcast-edits/"><u>In 2024, Transforming Recording Into Stunning Podcast Edits</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-the-asus-rt-ac6nu-wifi-5-ghz-dual-band-ac400-mbps-velocity-and-vigilance-unleashed/"><u>In-Depth Analysis: The Asus RT-AC6nU WiFi 5 GHz Dual-Band AC400 Mbps - Velocity & Vigilance Unleashed</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/kootek-laptop-cooler-evaluation-robust-and-versatile-performance/"><u>Kootek Laptop Cooler Evaluation: Robust and Versatile Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-bodycams-for-law-enforcement-2024-edition/"><u>Leading Bodycams for Law Enforcement - 2024 Edition</u></a></li>
-<li><a href="https://solve-help.techidaily.com/premiere-pro/"><u>Premiere Proでビデオの揺れを修正する方法</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-list-of-free-stock-image-websites/"><u>The Ultimate List of Free Stock Image Websites</u></a></li>
-<li><a href="https://fox-that.techidaily.com/top-7-solutions-why-your-iphone-wont-deliver-messages/"><u>Top 7 Solutions: Why Your iPhone Won't Deliver Messages</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transitioning-from-windows-1132-bit-to-64-bit-edition/"><u>Transitioning From Windows 11:32-Bit to 64-Bit Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-the-full-potential-of-android-with-the-google-pixel-3-reviewed/"><u>Unlocking the Full Potential of Android with the Google Pixel 3 Reviewed</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-leverage-your-influence-top-10-igtv-video-tactics-for-brands-for-2024/"><u>[New] Leverage Your Influence Top 10 IGTV Video Tactics for Brands for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-10-free-programs-for-restoring-vintage-photographs-with-artificial-intelligence/"><u>Best 10 Free Programs for Restoring Vintage Photographs with Artificial Intelligence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/considering-the-value-proposition-of-apple-tv/"><u>Considering the Value Proposition of Apple TV</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/converti-file-mpe-in-formato-m4a-gratuitamente-online-con-movavi/"><u>Converti File MPE in Formato M4A Gratuitamente Online Con Movavi</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cutting-down-on-time-spent-error-0x800736cc-in-windows-update/"><u>Cutting Down on Time Spent: Error 0X800736CC in Windows Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cyberpower-cp6ups-review-the-dependable-basic-ups-solution-that-delivers-exceptional-performance/"><u>Cyberpower CP6#Ups Review - The Dependable Basic UPS Solution That Delivers Exceptional Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/detailed-breakdown-and-reviews-of-google-maps-for-apples-handheld-device/"><u>Detailed Breakdown and Reviews of Google Maps for Apple's Handheld Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/diving-into-dragons-lair-a-full-review-of-the-remastered-spyro-trilogys-epic-value-proposition/"><u>Diving Into Dragon's Lair: A Full Review of the Remastered Spyro Trilogy's Epic Value Proposition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/effective-ways-to-save-a-temporary-image-from-your-word-documents/"><u>Effective Ways to Save a Temporary Image From Your Word Documents</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-fun-singing-with-singing-machine-sml385btbk-a-colorful-simplified-karaoke-solution-for-all-skill-levels/"><u>Experience Fun Singing with Singing Machine SML385BTBK - A Colorful, Simplified Karaoke Solution for All Skill Levels</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-picks-best-outboard-media-players-of-the-year-2024/"><u>Expert Picks: Best Outboard Media Players of the Year 2024</u></a></li>
+<li><a href="https://win-guides.techidaily.com/maximize-system-efficiency-by-shutting-down-unnecessary-windows-1011-startup-services/"><u>Maximize System Efficiency by Shutting Down Unnecessary Windows 10/11 Startup Services</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resetting-connectivity-a-users-manual-to-freshen-up-network-setups-on-a-mac/"><u>Resetting Connectivity: A User's Manual to Freshen Up Network Setups on a Mac</u></a></li>
 </ul></div>
 

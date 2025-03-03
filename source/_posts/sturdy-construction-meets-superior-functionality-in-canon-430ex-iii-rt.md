@@ -1,7 +1,7 @@
 ---
 title: Sturdy Construction Meets Superior Functionality in Canon 430EX III-RT
-date: 2024-08-26T06:26:28.969Z
-updated: 2024-08-27T06:26:28.969Z
+date: 2025-03-02T00:08:42.459Z
+updated: 2025-03-02T22:42:26.357Z
 categories:
   - BestProducts
 description: This Article Describes Sturdy Construction Meets Superior Functionality in Canon 430EX III-RT
@@ -75,9 +75,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Classic action camera design**
 
  The GoPro HERO7 Black measures in at 2.4 x 1.3 x 1.8 inches, so it’s super compact and almost a cube. The device is all black with a very nice rubber casing around the unit that makes it feel soft to the touch.
@@ -88,18 +85,12 @@ Lifewire / Jeff Dojillo
 
  While testing the GoPro HERO7 Black we noticed that the body of the device becomes very hot when used for long periods of time. We tested it for a few hours nonstop and noticed it was still very warm even when it was not recording. This can be a big concern if the device is used for long recordings in hot temperatures.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Bright and visible**
 
  The back of the GoPro HERO7 Black has a two-inch touchscreen that is bright and easy to read. While testing the camera, we were able to navigate through the menus with the single touch of a finger, which are intuitive and easy to adjust. Simply tap to select.
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Updates out of the box**
 
  The GoPro HERO7 Black did not have much battery life out of the box. Once we powered it on, we set the date, time, and location. It then prompted us to update the software, which required a blank memory card and fully-charged battery to complete.
@@ -116,9 +107,6 @@ Lifewire / Jeff Dojillo
 
  It makes your footage impressively stable even when filming handheld or while riding on rough terrain.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Lens: Great for video**
 
  The fixed lens on the GoPro HERO7 Black shoots wide or in SuperView mode, the latter of which is an extra-wide field of view and can sometimes give a kind of distorted fisheye effect to your footage. This distortion can be frustrating, but there are ways to work around it during editing, including using video editing software to correct. And when shooting at a lower resolution, the camera can shoot with a linear field of view which reduces the distortion of the lens. The SuperView is not available when shooting in a 4:3 aspect ratio.
@@ -145,9 +133,6 @@ Lifewire / Jeff Dojillo
 
  But generally speaking, the GoPro HERO7 Black is not a camera known for its stunning photographs—it is known for its stunning video capabilities. It’s not for someone that wants to use it specifically for still photographs.
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Sound Quality: Sensitive to the touch**
 
  The GoPro HERO7 Black’s microphones are sensitive and record ambient noise easily. The microphones are located on the body of the camera and any slight touch becomes audible in your video. When taking some handheld footage, we accidentally covered up the microphones with our fingers, which caused the audio to sound muffled in our video.
@@ -160,9 +145,6 @@ Lifewire / Jeff Dojillo
 
  Lifewire / Jeff Dojillo
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Connectivity: Speedy Wi-Fi and Bluetooth pairing**
 
  Wifi and Bluetooth connectivity is a breeze with the GoPro HERO7 Black. Once we installed the GoPro app on our smartphone, the camera connected instantly. The app also gave us a much larger and easier-to-read interface, plus a live view function that allowed us to use our phone to frame and compose videos and remotely control the camera.
@@ -175,9 +157,6 @@ Lifewire / Jeff Dojillo
 
  Another option to extend shooting time would be to connect the GoPro HERO7 Black to an external battery pack via the[USB port.](https://www.lifewire.com/what-is-a-usb-port-818166)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Fairly priced for what you get**
 
  Retailing for $400 but often selling for less, the GoPro HERO7 Black is reasonably priced for its amazing features. 4K recording, HyperSmooth image stabilization, high frame rates, Bluetooth connectivity, a waterproof body, and live streaming features make this camera well worth the asking price.
@@ -186,10 +165,6 @@ Lifewire / Jeff Dojillo
 
  The portability of the GoPro HERO7 Black is perfect for adventurers, filmmakers, and vloggers that need a rugged and compact camera to create content on the go.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Competition: Less rugged, but better with still photography**
 
 **_Canon PowerShot G7 X Mark II:_** The Canon PowerShot G7 X Mark II retails for $700, and though it usually sells for between $600 and $650, it’s still considerably more expensive than the GoPro HERO7 Black. For those who are considering the GoPro as a vlogging camera, the PowerShot is another great option. It records video at 1080p rather than 4K, but it has a larger 20.3-megapixel sensor and a 180-degree articulating LCD touchscreen display that’s perfect for self-recording.
@@ -218,9 +193,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 * [Canon PowerShot G7 X Mark II](https://www.lifewire.com/canon-powershot-g7-x-mark-ii-review-4706895)
 * [Sony DSC-W800](https://www.lifewire.com/sony-dsc-w800-review-4589510)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  HERO7 Black
@@ -243,8 +215,6 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -252,4 +222,24 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-a-step-by-step-tutorial-for-capturing-excellent-igtv-footage-for-2024/"><u>[New] A Step-by-Step Tutorial for Capturing Excellent IGTV Footage for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-facebook-video-presentation-boost-adding-bb-and-lc-frameworks/"><u>[Updated] In 2024, Facebook Video Presentation Boost Adding BB and LC Frameworks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cutting-edge-headsets-discovering-2024s-best-wears/"><u>Cutting-Edge Headsets: Discovering 2024'S Best Wears</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-amazfit-bip-a-top-pick-for-those-new-to-smart-wearables/"><u>Exploring the Amazfit BIP: A Top Pick for Those New to Smart Wearables</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-outlook-rules-not-working-on-windows/"><u>How to Fix Outlook Rules Not Working on Windows</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immerse-in-words-with-the-kobo-libra-h2o-a-pioneering-review-of-a-revolutionary-waterproof-ereader/"><u>Immerse in Words with the Kobo Libra H2O: A Pioneering Review of a Revolutionary Waterproof eReader</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-photographic-fundamentals-in-5-minutes-with-snapseed/"><u>In 2024, Photographic Fundamentals in 5 Minutes with Snapseed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-image-editing-suite-for-text-overlay/"><u>In 2024, Top Image Editing Suite for Text Overlay</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/insights-on-the-affordable-yet-stunning-performance-of-the-samsung-galaxy-s1amobileandroidandplatformios)s10e/"><u>Insights on the Affordable Yet Stunning Performance of the Samsung Galaxy S1amobile=android&platform=ios>S10e</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-oppo-find-x7-ultra-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Oppo Find X7 Ultra.</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/say-goodbye-to-complimentary-charges-the-end-of-the-free-rivian-ev-road-trip-perk/"><u>Say Goodbye to Complimentary Charges: The End of the Free Rivian EV Road Trip Perk</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/strategies-for-privacy-preventing-gpt-from-logging-dialogs/"><u>Strategies for Privacy: Preventing GPT From Logging Dialogs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-powerhouse-companion-for-your-devices-an-anker-usb-30-speed-test-and-review/"><u>The Powerhouse Companion for Your Devices: An Anker USB 3.0 Speed Test & Review.</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-simple-guide-to-bouncies-cost-effective-reliable-gps-tracker-options/"><u>The Simple Guide to Bouncie's Cost-Effective, Reliable GPS Tracker Options</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/topmates-cost-effective-laptop-chiller-c302-a-thorough-examination/"><u>TopMate's Cost-Effective Laptop Chiller (C302) - A Thorough Examination</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-ultimate-list-of-2024s-premier-cable-modems/"><u>Unveiling the Ultimate List of 2024'S Premier Cable Modems</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/webcam-breakthroughs-ideas-to-try-now/"><u>Webcam Breakthroughs Ideas to Try Now</u></a></li>
+</ul></div>
 

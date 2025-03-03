@@ -1,7 +1,7 @@
 ---
 title: "Ultra-Light LG Gram 17: Unveiling High-Performance at an Astounding Weight"
-date: 2024-09-04T01:40:04.134Z
-updated: 2024-09-05T01:40:04.134Z
+date: 2025-02-28T17:33:30.709Z
+updated: 2025-03-02T19:23:00.511Z
 categories:
   - BestProducts
 description: "This Article Describes Ultra-Light LG Gram 17: Unveiling High-Performance at an Astounding Weight"
@@ -97,30 +97,12 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/1qu1WvdEgTzjUQ8QH_Lssx79xF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Trackpad_05-f0d9dc63b03e4650a92e30747090889a.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 ## **Setup Process: Just follow the directions**
 
  There's little reason to worry about getting the LG Gram 15.6-inch laptop up and running quickly. It has Windows 10 pre-installed, so you'll simply follow the onscreen prompts to enter your Wi-Fi info, check for updates, select a few options, and ultimately find yourself ready to roll on the desktop. It shouldn't take more than a handful of minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display: Large and capable enough**
 
  The LG Gram's 15.6-inch screen is good, but not great. It's certainly large: the widescreen panel stretches out longer than the 13-inch screens seen on a lot of ultraportable computers, and the extra real estate is absolutely noticeable. It gives you enough extra space to comfortably multitask, such as having a web browser and a document side-by-side, or a Slack window in full view to distract you from whatever you're supposed to be doing for work.
@@ -145,34 +127,10 @@ Lifewire / Andrew Hayward
 
  As an aside, while the LG Gram often runs near-silently, there are extended periods of time in which there's an audible hum coming from the back. It's not the typical, very loud fan noise that pops up while gaming or heavy multitasking from some computers, but it can be a bit grating. We noticed it while charging the computer, but also while running on the battery—with no consistency on that front. It's a mild annoyance, but it's one we noticed whenever it emerged.
 
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Audio: It makes an impression**
 
  You won't see the speakers when the LG Gram is standing up as normal, but you'll hear them loud and clear. The stereo speakers are tucked underneath the laptop at the left and right edges near where your wrists rest, and thanks to the slight elevation from the rubbery feet on the bottom of the laptop, they're given enough space for the output to shine. Audio playback sounds robust and clear—not quite to the level of Apple's current MacBook Air and MacBook Pro, but very close. We were pleased with it.
 
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Network: Connects as expected**
 
  The LG Gram had no problem connecting to a few different networks, including a home Wi-Fi network, the Google Wi-Fi network at Starbucks, and a mobile hotspot. The connection always seemed speedy and downloads ran at a steady clip. Testing it on a home Wi-Fi network during peak evening hours, we saw a download speed of about 30Mbps and an upload speed of 13Mbps. We tested the network on an iPhone XS Max immediately after and saw comparable speeds there, as well. You can connect to both 2.4Ghz and 5Ghz networks with ease.
@@ -181,12 +139,6 @@ Lifewire / Andrew Hayward
 
 ![LG Gram 15.6-inch (2018)](https://www.lifewire.com/thmb/AhDZOG33ttJ8LfKQnzvHO7K-S8I=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-Gram_Closed_02-d40445064b4945729278aeae3d8ae1c0.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Andrew Hayward
 
 ## **Battery: Seriously amazing**
@@ -203,18 +155,6 @@ Lifewire / Andrew Hayward
 
  Unfortunately, this entry-level model of the LG Gram 15.6-inch isn't able to take advantage of Windows Hello biometric security, as the camera above the display doesn't have the needed sensors for scanning your face. We missed the near-instantaneous facial recognition of the Surface Laptop 2, and having to type in a PIN number each time we opened up the lid. Pricier models of the laptop offer a fingerprint scanner, however.
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Solidly priced, considering its strengths**
 
  Originally priced at $1,249, the entry-level LG Gram 15.6-inch (2018) can now be found for about $999 as of this writing. LG has rolled out newer 2019 versions that look identical and have the same core features, but upgrade to the latest generation of Intel Core processors. You should see a little bit more speed in benchmark testing, although it's unclear whether there's any noticeable difference during regular usage.
@@ -225,12 +165,6 @@ Lifewire / Andrew Hayward
 
  Lifewire / Andrew Hayward
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **LG Gram 15.6-inch (2018) vs. Microsoft Surface Laptop 2: Better than Microsoft's own?**
 
  The LG Gram 15.6-inch and Microsoft Surface Laptop 2 are similarly equipped, in terms of having the same processor and integrated graphics chip, although they vary quite a bit from there. As noted, the LG Gram's claim to fame comes with the resilient battery and large screen for such a lightweight computer.
@@ -262,14 +196,11 @@ Lifewire / Andrew Hayward
 * Battery Capacity  72 Wh
 * Ports  1x USB-C, 3x USB-3, HDMI, microSD, 3.5mm headphone port
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -278,4 +209,26 @@ Lifewire / Andrew Hayward
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-stepwise-guide-to-optimal-zoom-audio-recording/"><u>[New] 2024 Approved Stepwise Guide to Optimal Zoom Audio Recording</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-a-backward-glance-proven-strategies-for-pinpointing-picture-sources-on-instagram-for-2024/"><u>[New] A Backward Glance Proven Strategies for Pinpointing Picture Sources on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-upcoming-games-with-industry-experts/"><u>[New] In 2024, Upcoming Games with Industry Experts</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-the-numbers-game-a-guide-to-yt-stardom/"><u>[Updated] Navigating the Numbers Game A Guide to YT Stardom</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-value-and-performance-elite-17-inch-laptop-guide-for-the-new-year-2024/"><u>Best Value and Performance: Elite 17-Inch Laptop Guide for the New Year 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/buyers-spotlight-the-foremost-external-blu-ray-drive-selections/"><u>Buyer's Spotlight: The Foremost External Blu-Ray Drive Selections</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elgoog-decoded-a-witty-take-on-googles-functionality-as-a-mirror-site-review/"><u>ElgooG Decoded: A Witty Take on Google's Functionality as a Mirror Site Review</u></a></li>
+<li><a href="https://common-error.techidaily.com/enhance-windows-7-boot-speed-with-proven-strategies-overcome-system-lags-easily/"><u>Enhance Windows 7 Boot Speed with Proven Strategies: Overcome System Lags Easily</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-sturdiness-of-sony-dsc-w800-and-its-fair-pricing/"><u>Exploring the Sturdiness of Sony DSC-W800 and Its Fair Pricing</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-are-you-still-using-a-netgear-c3000-router-heres-why-you-should-switch/"><u>In-Depth Analysis: Are You Still Using a Netgear C3000 Router? Here's Why You Should Switch</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-camera-recording-top-10-camcorders-of-2024/"><u>Mastering Camera Recording Top 10 Camcorders of 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/powershot-g9x-mark-ii-fusing-nostalgia-with-new-tech/"><u>PowerShot G9X Mark II – Fusing Nostalgia with New Tech</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/quick-guide-placing-several-pins-at-once-in-google-maps-made-simple/"><u>Quick Guide: Placing Several Pins at Once in Google Maps Made Simple</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/restore-brilliance-blackened-lenovo-fixed/"><u>Restore Brilliance - Blackened Lenovo Fixed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/silence-the-snoops-opt-out-of-gpts-data-harvesting/"><u>Silence the Snoops: Opt-Out of GPT's Data Harvesting</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-understanding-why-the-vive-cosmos-stands-out-in-a-sea-of-vr-options/"><u>The Ultimate Guide to Understanding Why the Vive Cosmos Stands Out in a Sea of VR Options</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-smooth-operation-of-amazon-lunas-game-streaming-platform/"><u>Uncovering the Smooth Operation of Amazon Luna's Game Streaming Platform</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-potential-a-detailed-review-of-the-adaptive-samsung-galaxy-tab-s/"><u>Unleashing Potential: A Detailed Review of the Adaptive Samsung Galaxy Tab S</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "The Best of Both Worlds: Free Broadcast Television From Antop's Sophisticated AT- 127 Antenna"
-date: 2024-09-04T01:42:17.981Z
-updated: 2024-09-05T01:42:17.981Z
+date: 2025-03-01T17:43:12.730Z
+updated: 2025-03-02T18:36:35.741Z
 categories:
   - BestProducts
 description: "This Article Describes The Best of Both Worlds: Free Broadcast Television From Antop's Sophisticated AT- 127 Antenna"
@@ -70,18 +70,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -94,12 +82,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Performance: Almost two dozen channels (in a rural area)**
 
  So many things[affect an antenna’s performance](https://www.lifewire.com/how-to-improve-tv-antenna-reception-4586904) —location, household electronics, tree cover, tower location, and more. The antenna displays channels of high quality. However, sometimes the channels would take a few seconds to load, and other times, I’d see a pixelated effect when I first changed the channel that would clear up after a few seconds. Once the picture was fully loaded, it was in clear high definition. The antenna is capable of displaying a clear HD picture, so I couldn’t tell the difference between the antenna’s picture and the picture from streaming services like Hulu or Netflix.
@@ -108,18 +90,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -128,12 +98,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -142,12 +106,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -158,18 +116,6 @@ Lifewire / Erika Rawes
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -186,14 +132,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -202,4 +145,20 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-capturing-facetime-best-practices-unveiled/"><u>[New] Capturing FaceTime Best Practices Unveiled</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-erasing-the-spotlight-hide-visuals-in-shared-media/"><u>[New] Erasing the Spotlight Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-practical-steps-for-smooth-recording-of-remote-workshops-on-windowsapple-systems/"><u>[New] In 2024, Practical Steps for Smooth Recording of Remote Workshops on Windows/Apple Systems</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-windows-file-glance-fast-assessment-technique/"><u>[Updated] Window's File Glance Fast Assessment Technique</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-bang-for-your-buck-in-depth-review-of-the-tcl-50s425-50-uhd-roku-smart-tv-2019/"><u>Best Bang for Your Buck: In-Depth Review of the TCL 50S425 50 UHD Roku Smart TV (2019)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-best-of-smart-frames-with-in-depth-nixplay-seed-review/"><u>Discover the Best of Smart Frames with In-Depth Nixplay Seed Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-value-of-the-beantech-bitwatch-s1-plus-your-guide-to-an-affordable-and-compelling-wearable-tech-experience/"><u>Explore the Value of the Beantech Bitwatch S1 Plus: Your Guide to an Affordable and Compelling Wearable Tech Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-performance-of-linksys-wrt1900acs-a-detailed-open-source-wi-fi-router-assessment/"><u>Exploring the Performance of Linksys WRT1900ACS: A Detailed Open Source Wi-Fi Router Assessment</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-the-art-of-instagram-post-scheduling-for-2024/"><u>Mastering the Art of Instagram Post Scheduling for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/professional-photo-tweaking-picarts-tactical-background-stripping/"><u>Professional Photo Tweaking PicArt's Tactical Background Stripping</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ultimate-5-choice-of-online-meeting-recorder-gadgets-for-2024/"><u>Ultimate 5 Choice of Online Meeting Recorder Gadgets for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/ultimate-showdown-of-2024s-premier-gaming-rigs-an-in-depth-comparison/"><u>Ultimate Showdown of 2024'S Premier Gaming Rigs: An In-Depth Comparison</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unlocking-full-control-consistently-opening-applications-with-admin-rights-on-windows-11/"><u>Unlocking Full Control: Consistently Opening Applications with Admin Rights on Windows 11</u></a></li>
+</ul></div>
 

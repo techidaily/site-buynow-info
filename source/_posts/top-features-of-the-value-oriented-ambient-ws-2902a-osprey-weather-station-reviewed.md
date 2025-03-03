@@ -1,7 +1,7 @@
 ---
 title: Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
-date: 2025-02-09T22:36:39.343Z
-updated: 2025-02-11T17:32:37.561Z
+date: 2025-02-25T18:10:14.880Z
+updated: 2025-03-02T22:46:27.774Z
 categories:
   - BestProducts
 description: This Article Describes Top Features of the Value-Oriented Ambient WS-2902A Osprey Weather Station Reviewed
@@ -79,37 +79,21 @@ Lifewire / Jonno Hill
 
  Setup of the Mohu Leaf 30 TV Antenna is as easy as it gets with antennas. Since there is no external power to connect, you only need to worry about connecting the included coaxial cable to the device and to your TV and using the included pins or adhesive tabs to affix the device to a surface. Ease of setup is one of the benefits of a non-amplified antenna such as the Mohu Leaf.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Performance: Acceptable but not incredible**
 
  The Mohu Leaf 30 TV Antenna wasn’t the highest performing antenna that I tested, even among similar unpowered antennas. In my channel acquisition test, the Leaf picked up 56 channels on average across all the iterations performed.
 
  My apartment is located within city limits and doesn’t provide too much of a challenge for antennas, but I was able to reliably get as many as 76 channels from other devices. Nonetheless, the Leaf still provided a clear picture of all the major network stations without any issue. The only channels that I couldn’t pick up with the Leaf were pretty obscure, such as an audio-only station from a Korean Christian church. I think I’ll be okay without that one.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Range: Fairly limited**
 
  The Mohu Leaf 30 TV Antenna is rated, as its name implies, for up to 30 miles of range. This is about what I would expect from an unpowered antenna. This device is clearly designed for buyers who live within close proximity to their local TV broadcast source, and not for those further out into the suburbs and beyond.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Excellent for the performance**
 
  The Mohu Leaf 30 TV Antenna has a 90-day rolling average price of $29 on Amazon, which puts it on the more affordable end of the spectrum. The price definitely feels appropriate for the performance and feature set, but it’s not an all-out bargain.
 
  Buyers probably wouldn’t be wise to spend more money unless they live a bit further from their signal source and have had trouble with similar antennas in the past. I think that for most people living in cities, the Mohu Leaf 30 TV Antenna should be more than enough.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Mohu Leaf 30 TV Antenna vs Mohu Blade TV Antenna**
 
@@ -119,10 +103,6 @@ Lifewire / Jonno Hill
 
 **No fuss, good value.**
  The Mohu Leaf 30 TV Antenna is a great entry point into the TV antenna space, providing a nice mix of performance and value in a dead-simple package that won’t burden buyers during setup. It might not be powerful enough to suit the needs of suburban users and beyond, but if you’re close enough to the signal source, it’s a nice option.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -151,17 +131,16 @@ Lifewire / Jonno Hill
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-empower-your-filmmaking-skills-using-phone-cameras-for-recording/"><u>[New] 2024 Approved Empower Your Filmmaking Skills Using Phone Cameras for Recording</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/aunching-a-dominant-biz-channel-key-tips-and-hacks/"><u>[New] Launching a Dominant Biz Channel Key Tips & Hacks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-hidden-dangers-of-high-follower-bloat-avoidance-tactics/"><u>[Updated] 2024 Approved The Hidden Dangers of High-Follower Bloat Avoidance Tactics</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1726030431501-dvdmov/"><u>一歩一丁 DvdをMovフォーマットにするための迅速対応手順</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/all-you-need-to-know-in-depth-ipad-comparisons-unveiled/"><u>All You Need To Know: In-Depth iPad Comparisons Unveiled</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-tablets-in-the-market-face-off-the-ultimate-guide-to-ipad-air-4-and-galaxy-tab-s7plus/"><u>Best Tablets in the Market Face-Off: The Ultimate Guide to iPad Air 4 and Galaxy Tab S7+</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/chatgpt-and-the-art-of-crafting-your-own-poetry-anthology/"><u>ChatGPT and the Art of Crafting Your Own Poetry Anthology</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-minecraft-campfire-chronicles-skin-collection-an-in-depth-critique/"><u>Exploring Minecraft Campfire Chronicles Skin Collection - An In-Depth Critique</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/featured-by-apple-mondly-is-app-of-the-day-in-157-countries/"><u>Featured by Apple: Mondly Is App of the Day in 157 Countries</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/step-by-step-guide-saving-images-from-microsoft-word/"><u>Step-by-Step Guide: Saving Images From Microsoft Word</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/tackling-the-black-screen-dilemma-in-windows-11-expert-solutions-unveiled/"><u>Tackling the Black Screen Dilemma in Windows 11: Expert Solutions Unveiled</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-top-motion-tracking-tools-for-text-animation/"><u>Updated Top Motion Tracking Tools for Text Animation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-identifying-a-user-writes-silent-unseen-snapshots/"><u>[New] 2024 Approved Identifying a User' Writes Silent, Unseen Snapshots</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-best-virtual-race-titles-reviewed-for-2024/"><u>[New] Best Virtual Race Titles Reviewed for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-the-simple-process-of-uploading-videos-to-twitter/"><u>[New] In 2024, The Simple Process of Uploading Videos to Twitter</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boosting-group-discussions-by-incorporating-gpt-3/"><u>Boosting Group Discussions by Incorporating GPT-3</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/capture-lifes-moments-with-fz80-review-insights/"><u>Capture Life's Moments with FZ80 Review Insights</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsun-scansnap-ix1600-analysis-the-ultimate-desktop-doc-scanner/"><u>Comprehensive Fujitsun ScanSnap iX1600 Analysis - The Ultimate Desktop Doc Scanner</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-budget-friendly-caixun-75-inch-android-4k-television/"><u>Comprehensive Review of the Budget-Friendly Caixun 75-Inch Android 4K Television</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-samsung-galaxy-note-n-review-top-choice-in-large-display-smartphones/"><u>Comprehensive Samsung Galaxy Note N Review - Top Choice in Large Display Smartphones</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-the-mechanics-of-generative-ai-in-search-top-companies-leveraging-this-technology/"><u>Exploring the Mechanics of Generative AI in Search: Top Companies Leveraging This Technology</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-apple-iphone-7-fix-now-drfone-by-drfone-virtual-ios/"><u>In 2024, 3uTools Virtual Location Not Working On Apple iPhone 7? Fix Now | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/minecraft-wont-start-heres-how-you-can-fix-it-easily/"><u>Minecraft Won't Start? Here's How You Can Fix It Easily!</u></a></li>
 </ul></div>
 

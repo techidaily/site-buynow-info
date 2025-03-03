@@ -1,7 +1,7 @@
 ---
 title: Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
-date: 2025-02-06T16:49:07.931Z
-updated: 2025-02-11T16:32:35.141Z
+date: 2025-02-25T22:56:32.743Z
+updated: 2025-03-02T23:54:21.475Z
 categories:
   - BestProducts
 description: This Article Describes Evaluating Samsung UN65NU8000FXZA - Is a Premium Tag Justified for the Underwhelming Experience?
@@ -17,10 +17,6 @@ thumbnail: https://www.lifewire.com/thmb/-VS2-Etc0zkaOlIkOJ7aMJ5ymJo=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Alienware Aurora R9
 
@@ -104,10 +100,6 @@ Lifewire / Zach Sweat
 
  Inside the case, Alienware has made the new R9 quite upgradeable, allowing owners to easily pull things apart for access to various components. Though it’s a bit cramped inside, the genius ability to swing the PSU (power supply unit) out to the side when the case is removed provides easier access to the motherboard and all its parts. While we’re a bit concerned with the airflow due to this tight fit inside the case, it does allow you to upgrade hardware down the line if you want.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Plug and play**
 
  Because this is a prebuilt, setting up your new PC is super simple—essentially plug and play. This is another hugely important thing to consider if you want to get into PC gaming, but don’t know the first thing about installing an OS, troubleshooting build issues or navigating the BIOS.
@@ -137,10 +129,6 @@ Lifewire / Zach Sweat
 ![Dell Alienware Aurora R9](https://www.lifewire.com/thmb/zWvKnnWGsRBdtRIHTYYD7HEs0qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4045927-13-88a6bd8dac13438794a0bb038df7757f.jpg)
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Gaming: From ok to amazing, if you have the cash**
 
@@ -200,10 +188,6 @@ Lifewire / Zach Sweat
 
  For RGB fans, the AlienFX hardware and software provides tons of potential combinations with up to 16.8 million color options. Users can take full control of the external RGB along the front and sides of the tower in addition to supported peripherals. Themes you create can also be saved and assigned to specific games, which is a pretty sweet perk.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Not the best bang for your buck**
 
  PC gaming is notoriously expensive to initially get into, but the prices of many components have continued to dwindle over the decades. Although the old adage that building your own computer from scratch is cheaper still holds true, prebuilt computers have also become much more comparable. So how does this Alienware match up?
@@ -217,10 +201,6 @@ Lifewire / Zach Sweat
  Another thing to keep in mind here is that the $850 price point doesn’t include much in the way of peripherals, and these can really add up. The Aurora R9 does include a shoddy Dell keyboard and mouse, but these accessories are definitely the bare minimum, and won’t provide the best experience.
 
  Overall, the price of the R9 is ok at best, and you do get some nice software features from Alienware, but it’s still cheaper to build your own.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Alienware Aurora R9 vs. Dell G5 5090**
 
@@ -237,10 +217,6 @@ Lifewire / Zach Sweat
  **A quality prebuilt, but not the most frugal.**
 
  With a distinct design that only Alienware can pull off, the Aurora R9 is a futuristic-looking prebuilt PC with a lot of good, but a bit of extra cost. If you love Alienware or the look of the R9, it’s not a bad option, but it’s certainly not the most frugal.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -270,14 +246,18 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-engaging-with-srt-soundfiles-on-pc-and-mac/"><u>[New] Engaging with SRT Soundfiles on PC & Mac</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-cutting-edge-green-screen-strategies-for-professional-streamers/"><u>[Updated] 2024 Approved Cutting-Edge Green Screen Strategies for Professional Streamers</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-oneplus-nord-ce-3-5g-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your OnePlus Nord CE 3 5G</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-macbook-models-air-vs-pro-key-features-and-performance/"><u>Comparing MacBook Models: Air Vs. Pro - Key Features and Performance</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/essential-guide-8-key-points-before-you-purchase-a-tablet/"><u>Essential Guide: 8 Key Points Before You Purchase a Tablet</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-expert-choice-list-ultimate-streaming-audio-gear/"><u>In 2024, Expert Choice List Ultimate Streaming Audio Gear</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-motorola-moto-g14-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Motorola Moto G14</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-viewing-experience-the-ultimate-guide-to-choosing-a-mohu-leaf-30-antenna-balance-between-cost-and-capability/"><u>Maximizing Your Viewing Experience: The Ultimate Guide to Choosing a Mohu Leaf 30 Antenna Balance Between Cost and Capability</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-the-ring-battery-powered-doorbell-system/"><u>Unveiling the Features of the Ring Battery-Powered Doorbell System</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-brilliance-in-display-top-5-for-grading-professionals/"><u>[New] Brilliance in Display TOP 5 for Grading Professionals</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-dive-deep-into-metaverse-with-top-8-vr-helmets-for-2024/"><u>[New] Dive Deep Into Metaverse with Top 8 VR Helmets for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-smooth-video-in-every-shot-prime-mobile-cameras-with-ois/"><u>[Updated] Smooth Video in Every Shot Prime Mobile Cameras With OIS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-techniques-for-upgrading-to-a-high-performance-graphics-chip/"><u>Advanced Techniques for Upgrading to a High-Performance Graphics Chip</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722998377854-destiny-navigating-the-challenges-of-beyond-light-launch-crash-fixes-on-pc-here-are-solutions/"><u>Destiny Navigating the Challenges of Beyond Light Launch Crash Fixes on PC? Here Are Solutions</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/download-top-hollywood-blockbusters-in-hd-free-mp4movavi-formats-for-pc-and-mac/"><u>Download Top Hollywood Blockbusters in HD: Free MP4/MOV/AVI Formats for PC and Mac</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/expert-advice-to-fix-persona-5-strikers-opaque-display-faults/"><u>Expert Advice to Fix 'Persona 5 Strikers' Opaque Display Faults</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-charm-of-classical-design-in-modern-technology-the-withings-move-smartwatch-evaluation/"><u>Exploring the Charm of Classical Design in Modern Technology: The Withings Move Smartwatch Evaluation</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-align-video-elements-in-your-playback-directory/"><u>In 2024, Align Video Elements in Your Playback Directory</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/speaking-to-tomorrow-iphone-voice-memo/"><u>Speaking to Tomorrow - iPhone Voice Memo</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-hp-zbook-firefly-15-g8-your-new-portable-powerhouse/"><u>The Ultimate Guide to the HP ZBook Firefly 15 G8 - Your New Portable Powerhouse</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-shoppers-list-the-finest-cable-modemrouter-sets/"><u>Ultimate Shopper's List: The Finest Cable Modem/Router Sets</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unveiling-the-garmin-venu-sq-a-revolutionary-device-for-247-wellness-monitoring/"><u>Unveiling the Garmin Venu Sq: A Revolutionary Device for 24/7 Wellness Monitoring</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
-date: 2025-02-04T23:48:30.450Z
-updated: 2025-02-11T20:11:14.749Z
+date: 2025-02-25T17:27:05.329Z
+updated: 2025-03-02T22:43:06.771Z
 categories:
   - BestProducts
 description: This Article Describes Comprehensive BLH4100 Blade FPV RTF Indoor/Outdoor Copter Evaluation
@@ -46,10 +46,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
@@ -72,10 +68,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -97,10 +89,6 @@ Lifewire / Jeffrey Daniel Chadwick
  When you do finally get it wrapped up, the pump fits nicely in its included carrying case. It’s made of gore-tex, a fairly durable material, so it can take the punishment of being stored long-term in your trunk, and it’s compact enough that it won’t take up much room.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
 
@@ -132,10 +120,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -149,10 +133,6 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,22 +159,20 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-capture-still-shots-from-video-using-photos-on-windows-10/"><u>[Updated] 2024 Approved Capture Still Shots From Video Using Photos on Windows 10</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-crafting-content-success-top-hashtags-to-follow-today/"><u>[Updated] Crafting Content Success Top #Hashtags to Follow Today</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-mastering-the-art-of-self-presentation-in-facebook-bios/"><u>[Updated] Mastering the Art of Self-Presentation in Facebook Bios</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-exploring-instagrams-max-video-length/"><u>2024 Approved Exploring Instagram's Max Video Length</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-radeon-r5-graphic-card-update-download-drivers-for-windows-11-10-8-and-n7-systems/"><u>AMD Radeon R5 Graphic Card Update: Download Drivers for Windows 11, 10, 8, and N7 Systems</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/1728486505102-aomei-backupper/"><u>AOMEI Backupper免費版如何有效地修复和回復損壞的硬碟文件和目錄</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/audiophiles-dream-best-compact-cds-devices-2024/"><u>Audiophile's Dream: Best Compact CDs Devices 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevate-your-internet-experience-with-asus-rt-ac68u-the-ultimate-5g-wi-fi-solution-reviewed/"><u>Elevate Your Internet Experience with ASUS RT-AC68U: The Ultimate 5G Wi-Fi Solution Reviewed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/e-the-worlds-most-successful-business-youtube-sites-for-2024/"><u>Inside the World's Most Successful Business YouTube Sites for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/insta360-one-x2-the-go-to-waterproof-360-camera/"><u>Insta360 One X2: The Go-To Waterproof 360 Camera</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ps5-versus-ps5-slim-which-next-gen-console-wins-out/"><u>PS5 Versus PS5 Slim - Which Next-Gen Console Wins Out?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/sony-ps4-pro-evaluation-experience-ultra-hd-graphics-on-the-next-gen-console/"><u>Sony PS4 Pro Evaluation: Experience Ultra HD Graphics on the Next-Gen Console</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/transforming-your-home-an-in-depth-look-at-the-4th-gen-echo-dot/"><u>Transforming Your Home: An In-Depth Look at the 4Th Gen Echo Dot</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-economical-sound-pleasures-with-paww-triad-headphones/"><u>Unboxing Economical Sound Pleasures with Paww Triad Headphones</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-value-a-review-of-the-cost-effective-beantech-bitwatch-s1plus-smart-device/"><u>Unveiling The Value: A Review Of The Cost-Effective Beantéch BitWatch S1+ Smart Device</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-free-mov-video-orientation-changers-top-5-list/"><u>Updated 2024 Approved Free MOV Video Orientation Changers Top 5 List</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/why-rings-video-doorbell-2-reigns-supreme-in-smart-home-tech/"><u>Why Ring's Video Doorbell 2 Reigns Supreme in Smart Home Tech</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-harvest-high-quality-pics-the-free-edition-guide/"><u>[New] 2024 Approved Harvest High-Quality Pics The Free Edition Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-a-comprehensive-analysis-mycams-video-capture-technology-for-2024/"><u>[Updated] A Comprehensive Analysis MyCam's Video Capture Technology for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-poco-c51-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-exploring-the-wonders-of-minecraft-a-cross-generational-adventure/"><u>Comprehensive Guide: Exploring the Wonders of Minecraft - A Cross-Generational Adventure</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/eliminating-bsod-errors-caused-by-inadequate-memory-management-in-windows-10-and-11/"><u>Eliminating BSOD Errors Caused by Inadequate Memory Management in Windows 10 & 11</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-on-the-modest-and-inexpensive-fitbit-versa-smartwatch/"><u>Expert Analysis on the Modest and Inexpensive Fitbit Versa Smartwatch</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experts-rate-the-ergohead-desk-mat-a-trustworthy-choice-for-continuous-use/"><u>Experts Rate the Ergohead Desk Mat - A Trustworthy Choice for Continuous Use</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-oppo-a1x-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Oppo A1x 5G | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-11-pro-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme 11 Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/inside-look-at-elgoog-insightful-reviews-and-features-of-the-top-mirror-site/"><u>Inside Look at ElgooG - Insightful Reviews and Features of the Top Mirror Site</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/midlands-gxt1nova-transceiver-unveiled-revolutionizing-clear-communications-in-review/"><u>Midland's GXT1nova Transceiver Unveiled: Revolutionizing Clear Communications in Review</u></a></li>
+<li><a href="https://win-blog.techidaily.com/say-goodbye-to-rdo-crashes-ultimate-troubleshooting-guide-for-players/"><u>Say Goodbye to RDO Crashes: Ultimate Troubleshooting Guide for Players</u></a></li>
+<li><a href="https://win-blog.techidaily.com/unlocking-new-adventures-celebrate-the-arrival-of-it-takes-two-on-screen/"><u>Unlocking New Adventures: Celebrate the Arrival of 'It Takes Two' On Screen</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Oppo K11 5G? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/why-the-tp-link-archer-c9-is-a-standout-choice-for-cost-conscious-internet-users/"><u>Why the TP-Link Archer C9 Is a Standout Choice for Cost-Conscious Internet Users</u></a></li>
 </ul></div>
 

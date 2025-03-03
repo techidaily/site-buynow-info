@@ -1,7 +1,7 @@
 ---
 title: Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
-date: 2025-02-09T22:12:45.481Z
-updated: 2025-02-11T20:29:49.923Z
+date: 2025-02-25T23:10:20.669Z
+updated: 2025-03-02T17:52:05.195Z
 categories:
   - BestProducts
 description: This Article Describes Lenovo ThinkPad X12 Convertible Laptop - An In-Depth Examination of the Superior Keyboard and Exceptional Dual Functionality
@@ -21,10 +21,6 @@ thumbnail: https://www.lifewire.com/thmb/M7cbcf9RaLnWFD_BZCSTd_n3AbI=/400x300/fi
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/OL3QdFJ2E8lLE0w3IGyxR-rAD4Y=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -48,10 +44,6 @@ Lifewire / Danny Chadwick
 ## Z-Edge Z3 Plus Dashcam
 
 ![Z-Edge Z3 Plus Dashcam](https://www.lifewire.com/thmb/sE7fZzxcPjZXohzroVqLVr5l4qs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/03LW406226_HeroSquare-b7e0d530ed9948eda68372d2984bbdc2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Danny Chadwick
 
@@ -114,10 +106,6 @@ Lifewire / Danny Chadwick
 
  Lifewire / Danny Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Camera Quality: Beyond high definition**
 
  The Z3 Plus has outstanding recording abilities for a camera this size and can capture footage up to 2560 x 1440 resolution. However, this will fill up your camera quite fast, so you can set it as low as 720p if you don’t need super high-resolution footage. You can also adjust the frame rate to 30 and 60 frames per second (for resolutions exceeding 1920 x 1080, only 30 fps is available).
@@ -138,10 +126,6 @@ Lifewire / Danny Chadwick
 
  We did experience one strange glitch at the end of our testing—a couple of minutes after we had boxed up the Z3 Plus and put it away, we noticed loud, rapid beeping coming from the box. We took the Z3 Plus back out and it was frozen on the power-up screen. We couldn’t get it to turn off (or stop beeping) until the battery died a few minutes later. The camera appeared to work fine after that and we weren’t able to replicate the problem, but it was something of an alarming glitch from such a new device.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: Fair price for a fair product**
 
  As of the time of this writing, you can pick up this dashcam from Z-Edge for between $120 and $140, which seems like a good value to us. Given its features, tools, and image quality, it’s a fair price for a useful and reliable device.
@@ -161,10 +145,6 @@ Lifewire / Danny Chadwick
  **A durable, reliable dashboard camera that captures high-quality footage.**
 
  The Z-Edge Z3 Plus is easy to set up, intuitive to use, captures clear video footage for a reasonable price. We would like to have seen a second mounting option to the suction cup and a longer-lasting battery, but those are minor quibbles in light of this device’s reliable performance.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -198,24 +178,22 @@ Lifewire / Danny Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/updated-constructing-a-premium-video-editing-pc-from-the-ground-up-for-2024/"><u>[Updated] Constructing a Premium Video Editing PC From the Ground Up for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-how-to-personalize-videos-adding-captions-in-the-photos-app/"><u>[Updated] How to Personalize Videos Adding Captions in the Photos App</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-visualconstruct-pro-for-2024/"><u>[Updated] VisualConstruct Pro for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/caixuns-budget-4k-smart-tv-for-large-screens-in-depth-evaluation/"><u>Caixun's Budget 4K Smart TV for Large Screens – In-Depth Evaluation</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsn-scansnap-ix1600-evaluation-the-ultimate-workstation-document-scanner/"><u>Comprehensive Fujitsn ScanSnap iX1600 Evaluation: The Ultimate Workstation Document Scanner</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/download-all-youtube-images-for-free-in-2024/"><u>Download All YouTube Images for Free, In 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/effective-solutions-for-continuous-lags-and-pauses-in-overwatch-gameplay/"><u>Effective Solutions for Continuous Lags & Pauses in Overwatch Gameplay</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/embrace-literary-adventures-with-style-review-of-kobo-clara-hds-unmatched-portability-and-ease/"><u>Embrace Literary Adventures with Style: Review of Kobo Clara HD's Unmatched Portability and Ease</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-rt-ac68u-a-comprehensive-look-at-its-speedy-and-secure-wi-fi-capabilities/"><u>Evaluating the Asus RT-AC68U: A Comprehensive Look at Its Speedy and Secure Wi-Fi Capabilities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-differences-between-apple-watch-series-9-and-fitbit-charge-6-which-wins/"><u>Exploring the Differences Between Apple Watch Series 9 and Fitbit Charge 6 – Which Wins?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-barnes-and-nobles-nook-glowlight-3-a-bright-choice-for-night-readers/"><u>Exploring the Features of Barnes & Noble's Nook GlowLight 3 - A Bright Choice for Night Readers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/in-depth-review-acer-chromebook-r-11-perfect-blend-of-style-and-portability/"><u>In-Depth Review: Acer Chromebook R 11 – Perfect Blend of Style & Portability</u></a></li>
-<li><a href="https://techtrends.techidaily.com/is-roblox-not-responding-finding-out-whether-its-server-downtime-or-your-internet-connection/"><u>Is Roblox Not Responding? Finding Out Whether It's Server Downtime or Your Internet Connection</u></a></li>
-<li><a href="https://extra-information.techidaily.com/master-guide-to-unrestricted-digital-vaults/"><u>Master Guide to Unrestricted Digital Vaults</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/power-up-with-the-ultimate-anker-superspeed-usb-hub-evaluation/"><u>Power Up with the Ultimate Anker SuperSpeed USB Hub Evaluation</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/premium-tools-for-transforming-m2ts-files-deliver-unparalleled-clarity-and-quality-in-video-conversion/"><u>Premium Tools for Transforming M2TS Files: Deliver Unparalleled Clarity and Quality in Video Conversion</u></a></li>
-<li><a href="https://driver-install.techidaily.com/revamp-acer-graphics-via-windows-11-drivers-renewal/"><u>Revamp Acer Graphics via Windows 11 Drivers Renewal</u></a></li>
-<li><a href="https://article-tips.techidaily.com/slow-motion-showcase-top-cameras-with-unparalleled-snapshot-power/"><u>Slow-Motion Showcase Top Cameras with Unparalleled Snapshot Power</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultra-reliable-canon-speedlite-430ex-iii-rt-flash-test/"><u>Ultra Reliable Canon Speedlite 430EX III-RT Flash Test</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-mastery-in-conflict-the-leading-7-total-war-tactics/"><u>[New] 2024 Approved Mastery in Conflict The Leading 7 Total War Tactics</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-comprehensive-acid-pro-evaluation-and-alternative-software/"><u>2024 Approved Comprehensive ACID Pro Evaluation & Alternative Software</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-fundamentals-of-animation-and-graphic-expression/"><u>2024 Approved Fundamentals of Animation and Graphic Expression</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-gaming-on-the-go-in-depth-look-at-the-nintendo-switch-lite-the-budget-friendly-portable-console-alternative/"><u>Affordable Gaming on the Go: In-Depth Look at the Nintendo Switch Lite - The Budget Friendly Portable Console Alternative</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/apple-watch-series-6-assessment-slight-improvements-yet-unmatched-excellence/"><u>Apple Watch Series 6 Assessment: Slight Improvements, Yet Unmatched Excellence</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-amazon-basics-flat-antenna-unlocking-free-hdtv-channels/"><u>Budget-Friendly Amazon Basics Flat Antenna - Unlocking Free HDTV Channels</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/discover-the-ultimate-selection-of-free-anime-websites-with-download-features/"><u>Discover the Ultimate Selection of Free Anime Websites with Download Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/glow-up-guide-3-masterful-instagram-highlight-tricks/"><u>Glow-Up Guide 3 Masterful Instagram Highlight Tricks</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-pc-hdr-views-and-edits/"><u>In 2024, Mastering PC HDR Views & Edits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nikon-coolpix-b500-review-a-wi-fi-camera-that-does-not-impress/"><u>Nikon COOLPIX B500 Review: A Wi-Fi Camera That Does Not Impress</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/paving-the-pathway-to-popularity-thriving-on-instagram-for-2024/"><u>Paving the Pathway to Popularity Thriving on Instagram for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/quick-and-easy-steps-transforming-hevch265-videos-into-avi-format/"><u>Quick & Easy Steps: Transforming HEVC/H.265 Videos Into AVI Format</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-summary-sony-w800-reliability-and-cost-savings-proven/"><u>Review Summary: Sony W800 - Reliability & Cost Savings Proven</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-guide-to-downloading-and-converting-dvd-films-on-your-windows-10-system/"><u>The Ultimate Guide to Downloading & Converting DVD Films on Your Windows 10 System</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tiny-smart-speakers-decoded-echo-dot-and-homepod-mini-side-by-side/"><u>Tiny Smart Speakers Decoded: Echo Dot and HomePod Mini Side by Side</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/uncovering-the-entertaining-secrets-of-pokemons-shining-pearl/"><u>Uncovering the Entertaining Secrets of Pokémon's 'Shining Pearl'</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unmatched-features-at-an-unbeatable-price-discover-the-lg-2ebytv162895alexpa-24lh4830/"><u>Unmatched Features at an Unbeatable Price: Discover the LG 2ebyTV_162895_ALEXPA 24LH4830</u></a></li>
 </ul></div>
 

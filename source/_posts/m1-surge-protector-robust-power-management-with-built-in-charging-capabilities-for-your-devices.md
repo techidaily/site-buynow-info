@@ -1,7 +1,7 @@
 ---
 title: M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
-date: 2025-02-10T19:50:50.757Z
-updated: 2025-02-11T19:48:33.301Z
+date: 2025-02-28T20:56:36.270Z
+updated: 2025-03-02T17:43:57.774Z
 categories:
   - BestProducts
 description: This Article Describes M1 Surge Protector - Robust Power Management with Built-In Charging Capabilities for Your Devices
@@ -90,10 +90,6 @@ Lifewire / Jeremy Laukkonen
 
  For a premium device with a premium price like the Omni 20+, I’d like to see a different material used for the case.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Initial Setup: Frustrating due to a lack of documentation**
 
  While it’s clear that a lot of thought and care went into designing the Omni 20+, it’s just as clear that almost no thought was given over to the packaging and documentation. When you open the box, you’re greeted with the battery itself, a USB-A to C cable, a[USB-C](https://www.lifewire.com/usb-c-4149490) to C cable, and a couple of brochures. One of those brochures is marked as a quick start guide, but it really isn’t.
@@ -112,19 +108,11 @@ Lifewire / Jeremy Laukkonen
 
  Lifewire / Jeremy Laukkonen
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Display: Crisp and easy to read, but confusing**
 
  The display is small, but it’s quite bright and easy to read. The only issue is that it isn’t particularly easy to figure out what the individual icons mean, or how to use the display to change input and output settings, without referring to an instruction manual that isn’t included in the box.
 
  I’ve already covered the issue with the manual in the previous section, so suffice it to say I recommend avoiding frustration and just downloading the manual from the Omnicharge website rather than trying to figure out the display and controls on your own.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Sockets and Ports: Excellent array, including wireless**
 
@@ -156,10 +144,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Omnicharge Omni 20 Portable Power Bank](https://www.lifewire.com/thmb/aZDfINCcUg9uIHRuhVr2k3wmX94=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Omni-portable-power-bank-1-815fe3c777eb4f46a77cb00127bd88c2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Jeremy Laukkonen
 
 ## **Charging Speed: True fast charging available for some USB-C devices**
@@ -175,10 +159,6 @@ Lifewire / Jeremy Laukkonen
  By plugging the Omni 20+ into power when available, I found it to be a fantastic replacement for an otherwise bulky assortment of power adapters for my laptop, phone, and other devices.
 
  The built-in Qi charger is capable of putting out 10 watts, and I found it to work just as well as other 10 watt Qi chargers I’ve used. It is a bit touchy in terms of positioning, but I was able to get the hang of it pretty fast.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: High end**
 
@@ -199,10 +179,6 @@ Lifewire / Jeremy Laukkonen
  **Fantastic functionality, decent battery capacity, and frustrating setup experience.**
 
  The Omnicharge Omni 20+ is one of the best power banks out there, and it had better be for the price they’re asking. This is the power bank you need if you count a high wattage USB-C port, barrel connector input and output, wireless charging, and a standard power outlet among your needs. You can find cheaper power banks that provide more juice, but you won’t find one with this same feature set.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -230,19 +206,24 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-live-cutting-edge-strategies-audiences/"><u>[New] In 2024, Facebook Live Cutting-Edge Strategies Audiences</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-aptly-convert-speech-to-text-with-googles-innovative-tech-for-2024/"><u>[Updated] Aptly Convert Speech to Text with Google's Innovative Tech for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-strategies-for-hiring-superior-cinematographers-for-2024/"><u>[Updated] Strategies for Hiring Superior Cinematographers for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1725287033718-windows-1011/"><u>完美上色指南：在Windows 10/11下如何添加到多种格式的视频中的字幕</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/airpods-max-high-price-high-sound-quality/"><u>AirPods Max: High Price, High Sound Quality?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/before-you-launch-the-importance-of-web-page-previews-in-uploading/"><u>Before You Launch: The Importance of Web Page Previews in Uploading</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-online-discounts-amazons-exclusive-tech-deals-for-prime-day-2angs/"><u>Best Online Discounts: Amazon's Exclusive Tech Deals for Prime Day 2Angs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/boost-productivity-and-health-using-the-cubefit-terramat-our-complete-assessment/"><u>Boost Productivity and Health Using the CubeFit TerraMat - Our Complete Assessment</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/evaluating-the-bookbook-v2-by-twelve-south-smart-stylish-and-safe-macbook-case/"><u>Evaluating the BookBook V2 by Twelve South: Smart, Stylish, and Safe MacBook Case</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oneplus-11r-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from OnePlus 11R to Outlook | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/score-an-apple-pencil-gen-2-for-only-95-save-big-during-labor-day-sales-tech-deals/"><u>Score an Apple Pencil (Gen 2) for Only $95 - Save Big During Labor Day Sales Tech Deals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-asus-rt-ac68u-next-level-speed-and-protection-for-your-home-network/"><u>Ultimate Guide to Asus RT-AC68U: Next-Level Speed & Protection for Your Home Network</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-2024-approved-crack-open-the-savings-wondershare-filmora-easter-discount-code-inside/"><u>Updated 2024 Approved Crack Open the Savings Wondershare Filmora Easter Discount Code Inside</u></a></li>
-<li><a href="https://win11.techidaily.com/win11s-control-panel-customizing-made-simple/"><u>Win11's Control Panel: Customizing Made Simple</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-eco-friendly-visuals-for-film-enthusiasts-for-2024/"><u>[New] Eco-Friendly Visuals for Film Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-filmmaker-tips-youtube-trailers-using-filmora/"><u>[New] Filmmaker Tips YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-harnessing-windows-10-tools-for-exquisite-video-editing-for-2024/"><u>[New] Harnessing Windows 10 Tools for Exquisite Video Editing for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-the-ultimate-guide-to-irecorders-features-for-2024/"><u>[New] The Ultimate Guide to iRecorder's Features for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-professional-videographers-guide-to-efficient-color-keying/"><u>[Updated] Professional Videographer's Guide to Efficient Color-Keying</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/efficiently-sharing-multiple-pictures-on-facebook-in-one-go-tips-and-tricks/"><u>Efficiently Sharing Multiple Pictures on Facebook in One Go – Tips & Tricks!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/immediate-frame-grabbers-help/"><u>Immediate Frame Grabber's Help</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-stepwise-guide-to-optimal-zoom-audio-recording/"><u>In 2024, Stepwise Guide to Optimal Zoom Audio Recording</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/pick-your-favorites-top-6-fb-lite-videos-downloaders-for-2024/"><u>Pick Your Favorites Top 6 FB Lite Videos Downloaders for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/taking-flight-with-dji-phantom-4-pro-v2-a-review-that-soars-close-to-perfection/"><u>Taking Flight with DJI Phantom 4 Pro v2: A Review That Soars Close to Perfection</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-nixplay-w15a-journey-highlights-and-hurdles/"><u>The Nixplay W15A Journey: Highlights and Hurdles</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-picks-for-car-battery-boosters-an-in-depth-look-at-the-m-mock-1000as-stellar-performance/"><u>Top Picks for Car Battery Boosters: An In-Depth Look at the M MOCK 1000A's Stellar Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-review-of-kooteks-advanced-laptop-cooling-pad-ideal-for-intensive-users/"><u>Top Review of Kootek's Advanced Laptop Cooling Pad: Ideal for Intensive Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-extended-computer-mats-the-ultimate-guide/"><u>Top-Rated Extended Computer Mats - The Ultimate Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/tp-link-av1300-powerline-network-extender-analysis-unexpectedly-limited-performance/"><u>TP-Link AV1300 Powerline Network Extender Analysis: Unexpectedly Limited Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultrazoom-at-your-fingertips-with-sx720hs-camera-review/"><u>UltraZoom at Your Fingertips with SX720HS Camera Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unboxing-and-test-drives-the-ultimate-guide-to-holy-stone-racing-cartoon-vehicles-for-family-entertainment/"><u>Unboxing & Test Drives: The Ultimate Guide to Holy Stone Racing Cartoon Vehicles for Family Entertainment</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unpacking-the-potential-of-googles-second-generation-nest-hub-a-perspective-on-its-non-camera-design-choice/"><u>Unpacking the Potential of Google's Second Generation Nest Hub: A Perspective on Its Non-Camera Design Choice</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-11-update-superior-display-settings-available/"><u>Windows 11 Update: Superior Display Settings Available</u></a></li>
 </ul></div>
 

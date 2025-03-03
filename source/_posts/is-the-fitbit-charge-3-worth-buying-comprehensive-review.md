@@ -1,7 +1,7 @@
 ---
 title: Is the Fitbit Charge 3 Worth Buying – Comprehensive Review
-date: 2024-09-04T01:41:26.004Z
-updated: 2024-09-05T01:41:26.004Z
+date: 2025-02-25T22:24:17.019Z
+updated: 2025-03-02T18:13:41.682Z
 categories:
   - BestProducts
 description: This Article Describes Is the Fitbit Charge 3 Worth Buying – Comprehensive Review
@@ -70,18 +70,6 @@ Lifewire / Erika Rawes
 
  The 10-foot coaxial cable is long enough for you to mount your antenna in high places.
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup: Relatively easy**
 
  Setting up the antenna is pretty straightforward. You start by plugging one end of the coaxial cable into the antenna, and then the other end to the coaxial/antenna-in connector to your[TV](https://www.lifewire.com/best-tvs-to-buy-4061107) .
@@ -92,12 +80,6 @@ Lifewire / Erika Rawes
 
 ![AmazonBasics Indoor TV Antenna](https://www.lifewire.com/thmb/z_YIDnD2uHBFyEpRQlkQ1HUaA_8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/AmazonBasics-Flat-TV-Antenna-2-e19a3a09a82f438d8f902ded5b0fecd4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2024329/7443" target="_top" id="2024329">
-  <img src="//a.impactradius-go.com/display-ad/7443-2024329" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024329/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Lifewire / Erika Rawes
 
 ## **Performance: Almost two dozen channels (in a rural area)**
@@ -108,12 +90,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Range: 35 miles**
 
  The AmazonBasics antenna has a 35-mile range, which isn’t very far considering 50 plus miles is becoming more common. It is omnidirectional, however, so you don’t need to point it in a specific direction. It supports UHF/VHF, so I was able to get a decent selection of channels.
@@ -122,12 +98,6 @@ Lifewire / Erika Rawes
 
  It supports UHF/VHF, so I was able to get a decent selection of channels.
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Super affordable**
 
  The AmazonBasics Flat TV antenna sells in used condition on Amazon for only $13\. In new condition, it sells for $20, which is still a great deal. However, you can find other affordable antennas for between $20 and $50 that provide a much longer range, and many offer additional features, like a longer cable. With the AmazonBasics model, you can return the unit within 30 days if it doesn’t work in your area.
@@ -136,12 +106,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **AmazonBasics Indoor TV Antenna vs. Antop AT-127 Antenna**
 
  The Antop AT-127 (see[online](https://www.lowes.com/pd/ANTOP-Omni-Directional-Indoor-HD-UHF-VHF-TV-Antenna/1000503257?) ) is a 40-mile range antenna that sells for around $35\. It’s one of the better-looking antennas I’ve seen, as it’s reversible with faux light wood and dark wood sides. Unlike the AmazonBasics antenna, the Antop comes with a stand, and it has an easy-push connector for faster setup. These features go some ways towards justifying the Antop's higher price tag.
@@ -152,18 +116,6 @@ Lifewire / Erika Rawes
 
  The AmazonBasics Antenna is a good option for anyone who wants an ultra-cheap way to get broadcast TV.
 
-<!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  Ultra-Thin Antenna
@@ -180,14 +132,11 @@ Lifewire / Erika Rawes
 * Ports  Coax
 * Cable length  10-foot Coax Cable
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -196,4 +145,21 @@ Lifewire / Erika Rawes
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-highest-rated-10-non-game-screenshot-tools/"><u>[New] 2024 Approved Highest Rated 10 Non-Game Screenshot Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-break-free-from-youtube-top-5-innovative-video-editing-tools/"><u>[Updated] 2024 Approved Break Free From Youtube Top 5 Innovative Video Editing Tools</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ace-your-macs-facetime-camera-with-apple-vision-pro-tips-screenshots-recordings-done-right-no-quirks-included/"><u>Ace Your Mac's FaceTime Camera with Apple Vision Pro Tips: Screenshots, Recordings Done Right (No Quirks Included)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/affordable-high-quality-viewing-with-the-hisense-50h8f-4k-hdr-television-set/"><u>Affordable High-Quality Viewing with the Hisense 50H8F 4K HDR Television Set</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-new-fitbit-charge-6-smartwatch-user-reviews-and-features-guide/"><u>Comprehensive Analysis of the New Fitbit Charge 6 Smartwatch - User Reviews & Features Guide</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/could-an-older-generation-of-ipads-be-considered-outmoded-nowadays/"><u>Could an Older Generation of iPads Be Considered Outmoded Nowadays?</u></a></li>
+<li><a href="https://win-hot.techidaily.com/how-to-effortlessly-move-iphone-playlists-and-songs-onto-a-windows-or-mac-desktop/"><u>How to Effortlessly Move iPhone Playlists and Songs Onto a Windows or Mac Desktop</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-you-can-experience-the-power-of-gpt-4-available-for-everyone-now/"><u>How You Can Experience the Power of GPT-4, Available for Everyone Now</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/reclaim-original-look-for-discoloured-extend-volume/"><u>Reclaim Original Look for Discoloured Extend Volume</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionizing-the-digital-read-2019-kindle-oasis-book-review/"><u>Revolutionizing the Digital Read: 2019 Kindle Oasis Book Review</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/skyrim-on-nintendo-switch-a-comprehensive-guide-to-the-ultimate-rpg-experience/"><u>Skyrim on Nintendo Switch: A Comprehensive Guide to The Ultimate RPG Experience</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-economical-marvel-of-mobile-tech-a-comprehensive-review-of-the-samsung-galaxy-s1-0e/"><u>The Economical Marvel of Mobile Tech - A Comprehensive Review of the Samsung Galaxy S1 0E</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-list-of-elite-power-inverters-dominating-2024-market/"><u>Ultimate List of Elite Power Inverters Dominating 2024 Market</u></a></li>
+</ul></div>
 

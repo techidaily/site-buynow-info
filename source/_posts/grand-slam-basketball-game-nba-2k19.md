@@ -1,7 +1,7 @@
 ---
 title: "Grand Slam Basketball Game: NBA 2K19"
-date: 2025-02-08T21:14:00.411Z
-updated: 2025-02-11T19:49:09.136Z
+date: 2025-02-26T22:20:34.419Z
+updated: 2025-03-02T23:05:19.025Z
 categories:
   - BestProducts
 description: "This Article Describes Grand Slam Basketball Game: NBA 2K19"
@@ -21,10 +21,6 @@ thumbnail: https://thmb.techidaily.com/9fa9e4346708270d82530e01172580b66a8c63e17
 ## Lenovo Tab M10 FHD Plus (2nd Gen)
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/qvZCuf5GNYc0R5K4KD2s9QFXUgs=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_HeroSquare-fd396d12e6ec48668ead96bed2f790fb.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -78,10 +74,6 @@ Lifewire / Jeremy Laukkonen
 
  I recently had the opportunity to pack along a Tab M10 FHD Plus as part of my daily carry, using it for everything from email to streaming video and even some video conferencing over the span of about a week. I tested everything from overall performance and battery life to camera quality and wireless connectivity to see if this budget Android tablet rises above the crowd or disappears inside it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What’s New: Better specs and price than the first-gen Tab M10
 
  The Tab M10 FHD Plus (2020) is one successor to 2019’s Tab M10\. It packs a slightly more powerful processor, bigger battery, and batter cameras. The display remains unchanged in resolution, but the Tab M10 FHD Plus (2020) does have a slightly bigger display. The price tag of the Tab M10 FHD Plus (2020) is also a bit smaller.
@@ -116,10 +108,6 @@ Lifewire / Jeremy Laukkonen
 
  The colors look great, the image is nice and crisp without visible pixelation, and it has great viewing angles thanks to the IPS panel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Performance: Decent enough for the price
 
  The Tab M10 FHD Plus is powered by an octa-core Mediatek MT6762 Helio P22T chip, and it’s available in a handful of[RAM](https://www.lifewire.com/what-is-random-access-memory-ram-2618159) and storage configurations. You can get it with 32GB of storage and 2GB of RAM, 64GB and 4GB, or 128GB with 4GB of RAM. My test unit was the 128GB / 4GB model.
@@ -129,10 +117,6 @@ Lifewire / Jeremy Laukkonen
  To get a solid baseline of what you can really expect from this hardware, I ran a handful of[benchmark tests](https://www.lifewire.com/what-is-a-benchmark-2625811) . The first test I ran was the Work 2.0 benchmark from PCMark, which is designed to simulate a variety of productivity tasks. In the Work 2.0 benchmark, the Tab M10 FHD scored 5,316, which is pretty good for this hardware configuration.
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/tt3HD9uM-f4_vqoAxok0dfwOVb8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_02-264a43b354b148d7bfeea1a952ddcb71.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Jeremy Laukkonen
 
@@ -147,10 +131,6 @@ Lifewire / Jeremy Laukkonen
  Due to slightly slugging performance in some areas, however, it’s tough to recommend for any real work. I did pair it with a Bluetooth keyboard to do a little writing when I was away from the office, but that isn’t a usage scenario I’d really recommend.
 
  I also used it for a handful of[Discord](https://www.lifewire.com/discord-4174046) video calls, but the low quality selfie cam failed to impress in that department. It works well enough in a pinch, but I wouldn’t recommend it as a primary device for word processing, video conferencing, or anything along those lines.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Audio: Stereo sound with Dolby Atmos
 
@@ -176,10 +156,6 @@ Lifewire / Jeremy Laukkonen
 
 ![Lenovo Tab M10 FHD Plus (2020)](https://www.lifewire.com/thmb/fW7pWFeGLdIkaBDNJBR5LIE2TF0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Lenovo_TabM10FHDPlus_03-638edb188f924604b2d38f1307add396.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeremy Laukkonen
 
  The rear camera turns in uniformly disappointing results. Even given perfect light outdoors, shots tended to look washed out, unfocused, and lacking in detail. In less-than-perfect light, I found it very difficult to avoid blown-out photos, tons of noise, or even both in the same shot.
@@ -194,10 +170,6 @@ Lifewire / Jeremy Laukkonen
 
  The battery is the same one found in the less expensive Tab M10 HD, and it should really be bigger due to the increased power consumption of the bigger display.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Software: Originally shipped with Android Pie, now comes with Android 10
 
  The Tab M10 FHD Plus originally shipped with Android Pie, but my test unit came equipped with Android 10 from the factory. There are a couple important takeaways from that.
@@ -205,10 +177,6 @@ Lifewire / Jeremy Laukkonen
  First, make sure which version of Android the tablet has before you buy it, as you may come across old stock with Android 9\. The update may be available immediately in that case, or you may have to wait. Additionally, it’s unlikely the tablet will receive any further OS updates since it’s already technically received one.
 
  Lenovo’s implementation of Android 10 is essentially stock, and I found it to run quite well. There are no unnecessary changes, additions, or cumbersome UX tweaks layered on top. You get pretty close to a stock experience, with the notable addition of Google Kids Space. This is a welcome addition, as it’s totally optional. You can ignore it if you bought the tablet for yourself or an older teen, or open the app and set it up if you want to provide tons of pre-approved apps, books, and other content for a younger child.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Price: Decent price for a basic Android tablet
 
@@ -273,24 +241,21 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-enchanted-realms-on-reels/"><u>[New] Enchanted Realms on Reels</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-comprehensive-lg-bp350-monitor-review-with-comparisons/"><u>[Updated] Comprehensive LG BP350 Monitor Review with Comparisons</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unlocking-the-power-of-zoom-with-your-chrome-os-device/"><u>[Updated] Unlocking the Power of Zoom with Your Chrome OS Device</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-voices-for-change-highlighting-influential-ladies-on-youtube-for-2024/"><u>[Updated] Voices for Change Highlighting Influential Ladies on YouTube for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/choose-wisely-understanding-the-pros-and-cons-of-gps-and-cellular-apple-watches/"><u>Choose Wisely: Understanding The Pros And Cons of GPS & Cellular Apple Watches</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-pros-and-cons-an-insightful-look-at-the-hp-stream-14-budget-laptop/"><u>Exploring the Pros and Cons: An Insightful Look at the HP Stream 14 Budget Laptop</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-on-iphone-se-by-drfone-ios/"><u>How to Fix Locked Apple ID on iPhone SE</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-asus-networking-devices-for-the-year-2024/"><u>Leading Asus Networking Devices for the Year 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-flashes-made-easy-and-cost-effective-with-yn560iv/"><u>Mastering Flashes Made Easy & Cost-Effective with YN560IV</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mohu-blades-advanced-television-antenna-review-revolutionary-form-factor-meets-efficient-indoor-connectivity/"><u>Mohu Blade's Advanced Television Antenna Review: Revolutionary Form Factor Meets Efficient Indoor Connectivity</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-videos-from-samsung-by-fonelab-android-recover-video/"><u>Possible solutions to restore deleted videos from Samsung</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviews-and-insights-on-the-spectacular-sony-49-inch-smart-led-tv-with-4k-ultra-hd-capabilities-xbr4ex900f/"><u>Reviews and Insights on the Spectacular Sony 49-Inch Smart LED TV with 4K Ultra HD Capabilities: XBR4eX900F</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ring-video-doorbell-pro-analysis-an-ultimate-intelligent-surveillance-solution/"><u>Ring Video Doorbell Pro Analysis: An Ultimate Intelligent Surveillance Solution</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-amazing-two-in-one-a-complete-breakdown-of-features-on-the-asus-chromebook-flip-c3e-ca/"><u>The Amazing Two-in-One: A Complete Breakdown of Features on the Asus Chromebook Flip C3e CA</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/tweaking-windows-defender-settings-for-enhanced-protection-expert-tips-from-yl-software/"><u>Tweaking Windows Defender Settings for Enhanced Protection: Expert Tips From YL Software</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/uncover-the-benefits-of-an-ergodriven-topo-mat-effective-anti-fatigue-solution-for-prolonged-standing-work/"><u>Uncover the Benefits of an Ergodriven Topo Mat - Effective Anti-Fatigue Solution for Prolonged Standing Work</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/walmarts-ultimate-christmas-and-festive-season-offers-the-most-exciting-discounts-to-shop-this-year/"><u>Walmart's Ultimate Christmas and Festive Season Offers: The Most Exciting Discounts to Shop This Year!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-honor-90-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Honor 90? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/x-chair-x4-executive-desk-chair-evaluation-ideal-workspace-seating-solution/"><u>X-Chair X4 Executive Desk Chair Evaluation: Ideal Workspace Seating Solution</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-comprehensive-sync-protocol-for-iphone-to-snapchat-media/"><u>[New] 2024 Approved Comprehensive Sync Protocol for iPhone to Snapchat Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-the-4k-revolution-takes-flight-q500-review/"><u>[New] 2024 Approved The 4K Revolution Takes Flight - Q500 Review</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-the-marketing-landscape-essential-strategies-for-newbies/"><u>[New] Navigating the Marketing Landscape Essential Strategies for Newbies</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/caption-kings-and-queens-top-10-mobile-writing-aids-iosandroid-for-2024/"><u>Caption Kings and Queens Top 10 Mobile Writing Aids (iOS/Android) for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-analysis-of-the-sumind-bt70b-bluetooth-transmitter-adaptor-for-vehicles-2023-update/"><u>Expert Analysis of the Sumind BT70B Bluetooth Transmitter Adaptor for Vehicles - 2023 Update</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/fashion-forward-fitness-tracking-the-pros-and-cons-of-the-amazfit-gts-unveiled/"><u>Fashion-Forward Fitness Tracking: The Pros and Cons of the Amazfit GTS Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-wireless-nest-doorbell-battery-review/"><u>Google Wireless Nest Doorbell (Battery) Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-infinix-smart-7-to-mac-drfone-by-drfone-android/"><u>How to Mirror Infinix Smart 7 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/immersed-in-surprising-escapades-a-critical-look-at-yokun-islands-express/"><u>Immersed in Surprising Escapades: A Critical Look at Yoku'n Islands Express</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-boosting-productivity-in-ms-onenote-using-onetastic-extension/"><u>In-Depth Analysis: Boosting Productivity in MS OneNote Using Onetastic Extension</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-get-steady-a-comprehensive-guide-to-the-best-free-online-video-stabilizers/"><u>New In 2024, Get Steady A Comprehensive Guide to the Best Free Online Video Stabilizers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-ranking-evaluation-of-microsoft-surface-laptop-4-exceptional-quality/"><u>Top Ranking Evaluation of Microsoft Surface Laptop 4 - Exceptional Quality!</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranking-gaming-graphics-cards-insights/"><u>Top-Ranking Gaming Graphics Cards - Insights</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlock-the-power-of-words-the-top-4-reasons-to-join-kindle-unlimited/"><u>Unlock the Power of Words: The Top 4 Reasons to Join Kindle Unlimited</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/wiederverwendung-von-unerkannten-daten-auf-einem-flash-laufwerk/"><u>Wiederverwendung Von Unerkannten Daten Auf Einem Flash-Laufwerk</u></a></li>
 </ul></div>
 

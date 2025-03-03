@@ -1,7 +1,7 @@
 ---
 title: "LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
-date: 2025-02-07T21:51:04.643Z
-updated: 2025-02-11T20:38:26.009Z
+date: 2025-02-28T23:43:01.312Z
+updated: 2025-03-02T19:09:34.410Z
 categories:
   - BestProducts
 description: "This Article Describes LightZone Impressions: Comprehensive Darkroom Toolset Across Windows/Mac/Linux Platforms"
@@ -87,10 +87,6 @@ Lifewire / Jeremy Laukkonen
 
  Aside from the bold vent grill, the Series S doesn’t break any new ground regarding design choices. It has sturdy rubber feet on two sides, so you can lay it flat or stand it up on end, as has become more or less standard with home consoles. It feels pretty sturdy in both positions.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Easier than ever before**
 
  Game consoles are usually pretty easy to set up, but the Xbox Series S takes that to the next level. Start by connecting the console to a television with an HDMI cable and plugging it into power. When you turn the Series S and the TV on, you get an invitation to set up the console with the Xbox app or do it the traditional way.
@@ -100,10 +96,6 @@ Lifewire / Jeremy Laukkonen
  I highly recommend setting up the Xbox Series S with the help of the Xbox app. It massively streamlines the process, makes it easier to connect to Wi-Fi since you don’t need to type out your password with the Xbox’s on-screen keyboard, and even pre-loads the Series S with settings from your old Xbox One if you had one.
 
  I ended up wiping the console back to factory settings a few times while I put it through its paces, so I also tried the traditional setup method after circling back. It’s similar to setting up an Xbox One; not that difficult or time-consuming, but the app option is better.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: Rock solid 1440p gaming**
 
@@ -127,10 +119,6 @@ Lifewire / Jeremy Laukkonen
 
  Load times were negligible in each game I played, which I expected from a super-fast NVME SSD storage system. Some games had more noticeable load times than others, but not enough to disrupt gameplay.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Games: Microsoft still has an exclusivity problem**
 
  You won't have any shortage of games to play on the Xbox Series S, especially if you're a[Game Pass](https://www.lifewire.com/xbox-game-pass-4178809) subscriber. I predicted that the Series S would be the ultimate Game Pass machine at release, and that prediction has borne fruit in my home, at least.
@@ -146,10 +134,6 @@ Lifewire / Jeremy Laukkonen
  Other consoles, like the PlayStation 5 and Nintendo Switch, have games you can't get anywhere else, while the Xbox Series X|S has timed exclusives and console exclusives. That isn't a knock against Microsoft, as the availability of Xbox exclusives on the PC is fantastic for computer gamers. Still, it does put Xbox consoles in a tough spot compared to consoles from other manufacturers.
 
  Microsoft's $7.5B purchase of Bethesda's parent company, Zenimax, brought some hope of additional exclusives appearing in Microsoft's arsenal. (Bethesda is the publisher of Fallout, DOOM, Dishonored, Skyrim, Wolfenstein, The Elder Scrolls, and more.) However, the situation is murky as the company has yet to clarify which (if any) Bethesda titles will be exclusive to Xbox.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Storage: Disappointingly shallow, so bring your USB drive**
 
@@ -170,10 +154,6 @@ Lifewire / Jeremy Laukkonen
  With all those massive games and the fact that the Series S is a digital-only console, you will spend a lot of time downloading. The Series S has built-in Wi-Fi and an Ethernet port, so you have options, but a wired connection is the way to go here.
 
 ![Xbox Series S](https://www.lifewire.com/thmb/_GSxQvNgtJMhoyNl62qlg671Qvo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2-25991056c5c2486695923f7c1b61c7b5.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Jeremy Laukkonen
 
@@ -206,10 +186,6 @@ Lifewire / Jeremy Laukkonen
 ![Xbox Series S](https://www.lifewire.com/thmb/MZdEnnFWPzhGzv_P5GO8byAY5qI=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/3-dd9458b294e74205acad2ff6fee33913.JPG)
 
  Lifewire / Jeremy Laukkonen
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Jaw-droppingly low**
 
@@ -245,10 +221,6 @@ Lifewire / Jeremy Laukkonen
 
 [Nintendo Switch Lite Review](https://www.lifewire.com/nintendo-switch-lite-review-4788015)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Specs
 
 * Product Name  Xbox Series S
@@ -281,24 +253,14 @@ Lifewire / Jeremy Laukkonen
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-evolution-of-streaming-youtube-tv-in-focus/"><u>[Updated] The Evolution of Streaming YouTube TV In Focus</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-integrated-content-the-brands-on-youtube-movement/"><u>2024 Approved Integrated Content The Brands on YouTube Movement</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/compendium-of-video-camera-classifications/"><u>Compendium of Video Camera Classifications</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-and-evaluation-of-the-google-maps-iphone-version/"><u>Comprehensive Guide & Evaluation of the Google Maps iPhone Version</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/critical-analysis-of-the-pixel-slate-unraveling-chromeos-complications/"><u>Critical Analysis of the Pixel Slate: Unraveling ChromeOS Complications</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-iphones-software-succession-for-future-proofing-phones/"><u>Decoding iPhone's Software Succession for Future-Proofing Phones</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/1716464804911-download-free-sound-effects-for-youtubers/"><u>Download Free Sound Effects for YouTubers!</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/effective-blog-monetization-strategies-leveraging-buyselladscom-to-increase-earnings/"><u>Effective Blog Monetization Strategies: Leveraging BuySellAds.com to Increase Earnings</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-acer-2-in-1s-touch-functionality-back-with-updated-drivers-for-windows-11-download/"><u>Get Your Acer 2-In-1's Touch Functionality Back with Updated Drivers for Windows 11 [Download]</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-poco-x6-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Poco X6 to Other Android devices | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ideal-trackpad-solutions-for-your-ipad/"><u>Ideal Trackpad Solutions for Your iPad</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/identifying-key-differences-between-amazons-echo-pop-and-echo-dot/"><u>Identifying Key Differences Between Amazon's Echo Pop and Echo Dot</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-redmi-note-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-insight-into-watermark-functionality-for-fb-media/"><u>In 2024, Insight Into Watermark Functionality for Fb Media</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mavix-m9-chairs-for-gamers-a-thorough-review-on-performance-and-ergonomic-support/"><u>Mavix M9 Chairs for Gamers – A Thorough Review on Performance and Ergonomic Support</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-installing-and-updating-razers-gaming-drivers-on-various-windows-systems/"><u>Step-by-Step Guide: Installing & Updating Razer's Gaming Drivers on Various Windows Systems</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unboxing-the-competition-how-the-s10plus-stands-against-the-new-samsung-s20/"><u>Unboxing the Competition: How the S10+ Stands Against the New Samsung S20</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-features-of-the-huion-inspiroy-g1-t-tablet-a-detailed-review-on-quality-and-efficiency/"><u>Unveiling the Features of the Huion Inspiroy G1# T-Tablet: A Detailed Review on Quality and Efficiency</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-decoding-the-capabilities-of-samsung-photo-studio-for-2024/"><u>[New] Decoding the Capabilities of Samsung Photo Studio for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-template-treasures-to-craft-unique-corporate-emblems/"><u>2024 Approved Explore Template Treasures to Craft Unique Corporate Emblems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-economical-and-reliable-philips-hf3520-alarm-clock/"><u>Comprehensive Analysis of the Economical and Reliable Philips HF3520 Alarm Clock</u></a></li>
+<li><a href="https://extra-information.techidaily.com/elevate-your-sketches-essential-free-drawing-software-on-mac/"><u>Elevate Your Sketches - Essential Free Drawing Software on Mac</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-overcome-game-crashing-issues-in-total-war-warhammer-ii-for-smooth-gaming-experience/"><u>How to Overcome Game-Crashing Issues in Total War: Warhammer II for Smooth Gaming Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/nickelodeon-unveils-newest-nickwatch-at-the-kids-choice-awards/"><u>Nickelodeon Unveils Newest NickWatch at the Kid's Choice Awards</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/syma-s107g-rc-helicopter-review/"><u>Syma S107G RC Helicopter Review</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-marketers-mvp-list-top-10-instagram-video-editing-apps-for-2024/"><u>The Marketer's MVP List Top 10 Instagram Video Editing Apps for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-netgear-nighthawk-rax80-experience-lightning-fast-wi-fi-6-technology/"><u>Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology</u></a></li>
 </ul></div>
 

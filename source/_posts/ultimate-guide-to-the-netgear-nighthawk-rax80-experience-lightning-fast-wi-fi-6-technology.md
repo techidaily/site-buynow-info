@@ -1,7 +1,7 @@
 ---
 title: "Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
-date: 2025-02-10T17:25:42.132Z
-updated: 2025-02-11T16:35:44.181Z
+date: 2025-02-28T23:13:33.646Z
+updated: 2025-03-02T17:10:49.891Z
 categories:
   - BestProducts
 description: "This Article Describes Ultimate Guide to the Netgear Nighthawk RAX80: Experience Lightning-Fast Wi-Fi 6 Technology"
@@ -17,10 +17,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -46,10 +42,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 [View On Amazon $185](https://www.amazon.com/dp/B07T89YZWD?tag=lifewire-onsite-prod-20&ascsubtag=4846125%7Cn35b11b2c61b54fa1a2d951691d1a61ed04%7CB07T89YZWD) [View On Walmart $379](https://www.walmart.com/ip/NETGEAR-Nighthawk-AX6000-Dual-Band-WiFi-Wireless-6-Mesh-Range-Extender-EAX80-100NAS/122370265) [View On Best Buy $197](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fnetgear-nighthawk-ax6000-ax8-dual-band-wi-fi-6-range-extender-black%2F6359409.p%3FskuId%3D6359409)
 
 4.2
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Netgear Nighthawk EAX80 AX6000 Wi-Fi 6 Mesh Extender
 
@@ -79,10 +71,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
  If you don’t already have one of those new Wi-Fi 6 routers, should you spend extra for the Netgear Nighthawk AX8 to futureproof your setup? Here’s what I think after testing the device for several days across everyday web usage, media streaming, playing online games, and more.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Pretty awkward**
 
  The Netgear’s Nighthawk AX8 Wi-Fi 6 Mesh Extender is not only the largest and heaviest Wi-Fi extender I’ve tested at 10 inches tall and nearly two pounds, but it’s also one of the oddest-looking. It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward. Also, the little plastic feet don’t do a great job of supporting the weight, making it a bit wobbly on a flat surface.
@@ -90,10 +78,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
  With very large sides, the front is really just a small panel with light-up LED indicators showing connectivity details and which Ethernet ports are in use. There’s also a small WPS button beneath the LED panel for easy connectivity with a router. On the wider back panel are the four wired[Ethernet ports](https://www.lifewire.com/what-is-an-ethernet-port-817546) for plugging in devices such as game consoles and computers, as well as a USB 3.0 port, DC power port, and the power button itself.
 
  It has a lot more angles and tapered elements than I’d think are necessary, which results in an overall look that’s dynamic but ultimately awkward.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: Avoid the app**
 
@@ -108,10 +92,6 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 ![Netgear Nighthawk AX8 (EAX80) Wi-Fi 6 Mesh Extender](https://www.lifewire.com/thmb/xru8JLL_UOk3sXBYpbrOyAl-ihc=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Netgear_NetWorkExtenders_NighthawkEAX80_02-b120eab8816746338c53e4eb1cfc62d6.jpg)
 
  Lifewire / Andrew Hayward
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Smooth sailing**
 
@@ -179,17 +159,22 @@ thumbnail: https://thmb.techidaily.com/3f8283f501ee0d430cb6d4495367186d5cee7442e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-blank-canvas-to-biggest-hit-mastering-youtube-thumbnail-sizes/"><u>[New] 2024 Approved From Blank Canvas to Biggest Hit Mastering YouTube Thumbnail Sizes</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-premium-8-editors-compatible-with-linux/"><u>[Updated] Premium 8 Editors Compatible with Linux</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-maximizing-performance-optimal-settings-for-logitech-webcam/"><u>2024 Approved Maximizing Performance Optimal Settings for Logitech Webcam</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/decoding-the-simplicity-of-power-reviewing-the-latest-iteration-of-samsung-galaxy-s-series/"><u>Decoding the Simplicity of Power - Reviewing the Latest Iteration of Samsung Galaxy S Series</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/navigating-the-unexpected-wonders-of-yokus-island-express-a-gamers-critique/"><u>Navigating the Unexpected Wonders of Yoku's Island Express: A Gamer's Critique</u></a></li>
-<li><a href="https://win11.techidaily.com/streamline-windows-input-with-custom-shortcuts/"><u>Streamline Windows Input with Custom Shortcuts</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-next-level-in-gaming-explore-virtual-worlds-from-your-phone/"><u>The Next Level in Gaming: Explore Virtual Worlds From Your Phone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-the-superior-connectivity-offered-by-netgears-acclaimed-nighthawk-c7000-model/"><u>The Ultimate Guide to the Superior Connectivity Offered by NetGear's Acclaimed Nighthawk C7000 Model</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/ultimate-evaluation-of-apples-top-tier-iphone-xs-max-is-it-worth-the-price/"><u>Ultimate Evaluation of Apple's Top-Tier iPhone XS Max - Is It Worth the Price?</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-ai-evolutions-how-does-gpt-4-turbo-stack-up-against-the-standard-and-gpt-n/"><u>Understanding AI Evolutions: How Does GPT-4 Turbo Stack Up Against the Standard and GPT-N?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-effortless-performance-of-amazon-luna-for-video-games-on-demand/"><u>Unveiling the Effortless Performance of Amazon Luna for Video Games on Demand</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/why-doesnt-itunes-121-run-expert-solutions-for-fixing-the-problems/"><u>Why Doesn't iTunes 12.1 Run? Expert Solutions for Fixing the Problems</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-quickly-stop-live-feed-capture-with-quicktime/"><u>[New] Quickly Stop Live Feed Capture with QuickTime</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-formulating-impressive-online-media-introductions/"><u>[Updated] Formulating Impressive Online Media Introductions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/analyzing-the-oneplus-9-shortcomings-in-performance-metrics-revealed/"><u>Analyzing the OnePlus 9: Shortcomings in Performance Metrics Revealed</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypassing-the-hassles-simple-repair-techniques-for-winodws-error-ebd-c0fe3897-b4f0-4aa5-a8e1-2dd5d3cbcefa/"><u>Bypassing the Hassles: Simple Repair Techniques for Winodws Error Ebd-C0fe3897-B4f0-4aa5-A8e1-2dd5d3cbcefa</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/can-you-trust-inexpensive-ssl-providers/"><u>Can You Trust Inexpensive SSL Providers?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-the-new-samsung-galaxy-s23-ultra-with-the-s21-ultra-which-one-wins/"><u>Comparing the New Samsung Galaxy S23 Ultra with the S21 Ultra: Which One Wins?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-the-intensified-experience-of-marvels-spider-man-with-miles-morales/"><u>Comprehensive Review: The Intensified Experience of Marvel’s Spider-Man with Miles Morales</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-most-advanced-networking-equipment-leading-servers-and-cabinets-in-2e24/"><u>Discover the Most Advanced Networking Equipment: Leading Servers & Cabinets in 2E24</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/examining-the-expensive-features-of-airpods-max/"><u>Examining the Expensive Features of AirPods Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-the-rotibox-beanie-hat-your-ideal-bluetooth-headset-with-outstanding-comfort-and-clear-sound-quality/"><u>Experience the Rotibox Beanie Hat - Your Ideal Bluetooth Headset with Outstanding Comfort & Clear Sound Quality</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-fix-msvcrtdll-is-missing-or-not-found-errors/"><u>How to Fix Msvcrt.dll Is Missing or Not Found Errors</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-realme-12-pro-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Realme 12 Pro 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-honor-magic-5-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Honor Magic 5 Users</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-kernel32dll-issues-on-your-windows-system/"><u>Resolving Kernel32.dll Issues on Your Windows System</u></a></li>
+<li><a href="https://games-able.techidaily.com/solutions-to-apples-insufficient-ram-warning-roblox/"><u>Solutions to Apple's Insufficient RAM Warning (Roblox)</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-from-realme-gt-5-240w-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Realme GT 5 (240W) FRP Bypass</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-tcl-32s325-an-experts-review-on-the-latest-roku-integrated-smart-led-tv-of-2019/"><u>Unveiling The TCL 32S325: An Expert's Review on the Latest Roku-Integrated Smart LED TV of 2019</u></a></li>
 </ul></div>
 

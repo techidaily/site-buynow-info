@@ -1,7 +1,7 @@
 ---
 title: The Perfect Photographic Companion - FZ80 Reviewed
-date: 2024-09-04T01:43:10.672Z
-updated: 2024-09-05T01:43:10.672Z
+date: 2025-02-25T21:50:25.560Z
+updated: 2025-03-02T23:21:35.565Z
 categories:
   - BestProducts
 description: This Article Describes The Perfect Photographic Companion - FZ80 Reviewed
@@ -87,18 +87,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process** :**Get charged up and you’re ready to go**
 
  We found it easy enough to set up the SX70 HS and start shooting. Language, time, and date options are presented upon initial startup. The battery charges externally in an included wall charger and takes only a few hours to power up completely from empty.
@@ -109,18 +97,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Display and Viewfinder: Saturated and clear**
 
  The three-inch, 920,000-dot screen on the SX70 HS looks amazing—perhaps_too_ amazing, as your photos will look better on it than on your phone or computer. The screen is fully articulating and solidly built. Our one complaint would be how easily it picks up smudges, and how difficult those smudges are to remove. An advantage of the articulating screen is that it can be turned face-in to avoid dirt and damage and to save on battery life.
@@ -137,12 +113,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Photo Quality: Great colors, average resolution**
 
  We love the warm, natural color tone that[Canon cameras](https://www.lifewire.com/best-new-canon-cameras-493499) produce, and the SX70 HS doesn’t disappoint. Its photos are vibrant and it captures particularly nice portraits.
@@ -173,12 +143,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
-  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Video Quality: A mixed bag**
 
  The SX70 HS fumbles a bit when it comes to video. It’s no slouch by any means, but the footage is nothing to brag about. You can record up to 4K resolution, but unfortunately, the camera has to crop in to record at this resolution. Also, we found that footage is never especially sharp compared to other cameras.
@@ -193,12 +157,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Software: Lots of options**
 
  The camera comes with Canon’s Digital Photo Professional software for editing. Canon also has a number of free programs available for download on its website, including Eos Movie Utility for video editing. Though Canon’s software is relatively basic, it’s quite capable for basic editing.
@@ -209,12 +167,6 @@ Lifewire / Andy Zahn
 
  Lifewire / Andy Zahn
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Price: Big brand, big price tag**
 
  With an MSRP of $549, the SX70 HS isn’t cheap (though you can often find it for $50-$100 less). However, considering the overall high quality of this camera, the premium price is at least somewhat justified.
@@ -268,8 +220,6 @@ Lifewire / Andy Zahn
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -277,4 +227,22 @@ Lifewire / Andy Zahn
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-perfecting-switch-pro-techniques-on-steam-platform/"><u>[New] Perfecting Switch Pro Techniques on Steam Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-navigating-netizens-youtubes-footprint-in-facebook/"><u>[Updated] 2024 Approved Navigating Netizens YouTube’s Footprint in Facebook</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-durability-and-ease-of-use-in-a-cumuluspro-stand-up-desking-experience/"><u>Assessing the Durability and Ease of Use in a CumulusPRO Stand-Up Desking Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-battle-between-ring-and-nest-an-in-depth-user-comparison/"><u>Decoding the Battle Between Ring and Nest: An In-Depth User Comparison</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/effortlessly-enhanced-images-learn-the-insider-snapchat-tactics/"><u>Effortlessly Enhanced Images Learn the Insider Snapchat Tactics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/embracing-illusion-what-is-vrs-truth/"><u>Embracing Illusion What Is VR's Truth?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/essential-guide-yakuza-like-a-dragon-the-ultimate-rpg-experience/"><u>Essential Guide: Yakuza: Like a Dragon - The Ultimate RPG Experience</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/experience-comfort-with-the-ergodriven-topo-mat-your-standing-desk-solution/"><u>Experience Comfort with the ErgoDriven Topo Mat - Your Standing Desk Solution</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-can-i-unlock-my-iphone-11-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>How Can I Unlock My iPhone 11 Pro After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-broken-iphone-12-pro-screen-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Data from Broken iPhone 12 Pro Screen | Stellar</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-lenovo-thinkpad-x1-fold-marvelous-innovation-with-minor-setbacks/"><u>In-Depth Analysis of the Lenovo ThinkPad X1 Fold: Marvelous Innovation with Minor Setbacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-alert-discover-how-your-pocket-gets-smart-with-amazon-basics-tablet-support/"><u>Review Alert! Discover How Your Pocket Gets Smart with Amazon Basics Tablet Support</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-essential-alexa-device-shrunk-down-a-comprehensive-review-of-the-echo-dot-3rd-gen/"><u>The Essential Alexa Device Shrunk Down: A Comprehensive Review of the Echo Dot (3Rd Gen)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209839399-9780994001818-the-trinity-theory/"><u>The Trinity Theory | Free Book</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-computer-components-review/"><u>Tom's Computer Components Review</u></a></li>
+</ul></div>
 

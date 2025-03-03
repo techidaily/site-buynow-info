@@ -1,7 +1,7 @@
 ---
 title: "The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
-date: 2025-02-09T20:18:04.188Z
-updated: 2025-02-11T21:54:39.801Z
+date: 2025-03-01T20:39:15.574Z
+updated: 2025-03-02T17:51:37.543Z
 categories:
   - BestProducts
 description: "This Article Describes The All-New Dell XPS 13 (7390): A Flexible, Elegant Ultrabook That Redefines Portability"
@@ -46,10 +46,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
 ![Kensun Portable Tire Inflator](https://www.lifewire.com/thmb/MEKNaqKs5klEYPtoc5EGv7lAyJU=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/KensunPortableTireInflator_HeroSquare-c74ce1562bed43b897087fa89d11df23.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Lifewire / Jeffrey Daniel Chadwick
 
 [View On Amazon $100](https://www.amazon.com/Kensun-Performance-Portable-Compressor-Inflator/dp/B01J8Y91GC/?tag=lifewire-onsite-prod-20&ascsubtag=4776821%7Cn7137248c5e6f4b0b979879dcac87fc7908%7CB01J8Y91GC)
@@ -72,10 +68,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  Lifewire / Jeffrey Daniel Chadwick
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design and Features: Maximum portability, but not maximum flexibility**
 
  The form factor of the Kensun Portable Tire Inflator is a case study in maximum portability. It weighs a mere 5 pounds, and the sturdy handle makes it easy to pick up and move around. Moreover, at 11.8 inches long, 4.3 inches wide and 6.7 inches tall, it’s quite compact. And it’s hard plastic casing means it can withstand some punishment and still deliver top performance.
@@ -97,10 +89,6 @@ Lifewire / Jeffrey Daniel Chadwick
  When you do finally get it wrapped up, the pump fits nicely in its included carrying case. It’s made of gore-tex, a fairly durable material, so it can take the punishment of being stored long-term in your trunk, and it’s compact enough that it won’t take up much room.
 
  Lifewire / Jeffrey Daniel Chadwick
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Setup Process: T-minus one minute**
 
@@ -132,10 +120,6 @@ Lifewire / Jeffrey Daniel Chadwick
 
  The Kensun Portable Tire Inflator has an MSRP of $80 on Amazon, which is a good price for what you get. It’s not nearly as affordable as some budget models we’ve seen, such as the Audew Portable Air Compressor Pump, which will only run you $40, but it gives you the convenience of not having to be tethered to your car to inflate something.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Kensun Portable Tire Inflator vs. Jaco Digital Tire Inflator**
 
  The Kensun Portable Tire Inflator is similar to the Jaco Digital Tire Inflator, they have similar cord and hose lengths, and can continually run for about half an hour. But the Kensun is more than twice the size of the Jaco, so it can deliver more power to fill your tires faster. Additionally, the Jaco lacks the ability to plug into an AC socket, so you can only use it in your car.
@@ -149,10 +133,6 @@ Lifewire / Jeffrey Daniel Chadwick
  **A portable tire inflator that can work well in a car or at home.**
 
  The Kensun Portable Tire Inflator is a great choice to keep in your truck, garage, or wherever you keep your “just-in-case” supplies. It’s a device that is as necessary for drivers as jumper cables and an emergency flashlight. You can count on it to be reliable when you need it, and fill your tires quickly and accurately. Plus, the added benefit of being able to plug it into your wall can’t be overstated. It has its foibles, but in the grand scheme of things, they’re minor inconveniences.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -179,22 +159,20 @@ Lifewire / Jeffrey Daniel Chadwick
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-2024-approved-visualize-the-possibilities-a-beginners-guide-to-snapseed/"><u>[New] 2024 Approved Visualize the Possibilities A Beginner's Guide to Snapseed</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-capture-cartoon-characters-in-everyday-life-using-snapchats-anime-filter/"><u>[New] In 2024, Capture Cartoon Characters in Everyday Life Using Snapchat's Anime Filter</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-vanguard-of-virtual-fame-instagrams-25-luminaries/"><u>[Updated] In 2024, The Vanguard of Virtual Fame Instagram's 25 Luminaries</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-art-and-science-of-hand-movement-tracking-for-2024/"><u>[Updated] The Art and Science of Hand Movement Tracking for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/boost-graphics-performance-with-updated-geforce-rtx-2080-ti-drivers-for-gamers/"><u>Boost Graphics Performance with Updated GeForce RTX 2080 Ti Drivers for Gamers</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/discover-why-the-mohu-leaf-30-is-a-top-pick-for-value-and-functionality-in-tv-antenna-shopping/"><u>Discover Why the Mohu Leaf 30 Is a Top Pick for Value and Functionality in TV Antenna Shopping</u></a></li>
-<li><a href="https://techtrends.techidaily.com/easy-fixes-for-when-you-cant-find-physxloaderdll-errors/"><u>Easy Fixes for When You Can't Find PhysXLoader.dll Errors</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-performance-of-tp-link-re505x-wireless-booster/"><u>Expert Insights on the Performance of TP-Link RE505X Wireless Booster</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/master-image-editing-with-lightzone-the-ultimate-cross-platform-photo-toolkit/"><u>Master Image Editing with LightZone - The Ultimate Cross-Platform Photo Toolkit</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/my-videos-arent-playing-on-motorola-razr-40-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Motorola Razr 40 – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/samsung-galaxy-a71-groovy-dont-you-think/"><u>Samsung Galaxy A71 Groovy, Don't You Think?</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/snag-the-sensational-deal-on-quest-3-with-512gb-storage-metas-latest-offer-that-dominates-the-vr-market-insight/"><u>Snag the Sensational Deal on Quest 3 with 512GB Storage - Meta's Latest Offer That Dominates the VR Market Insight</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/streamlining-your-workflow-with-the-fujitsu-scansnap-ix1400-ideal-for-solo-professionals-and-smes/"><u>Streamlining Your Workflow with the Fujitsu ScanSnap iX1400: Ideal for Solo Professionals and SMEs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-packed-little-bundle-exploring-the-remarkable-capabilities-of-the-xbox-series-s-gaming-console/"><u>Tech-Packed Little Bundle? Exploring the Remarkable Capabilities of the Xbox Series S Gaming Console</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-ranked-artists-choice-for-graphic-tablets-2024-edition/"><u>Top Ranked Artists' Choice for Graphic Tablets - 2024 Edition</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/totobays-2nd-gen-wake-up-light-evaluated-your-ideal-budget-sleep-solution/"><u>Totobay's 2Nd Gen Wake-Up Light Evaluated: Your Ideal Budget Sleep Solution</u></a></li>
-<li><a href="https://games-able.techidaily.com/transform-xbox-gaming-into-a-community-event-via-discord/"><u>Transform Xbox Gaming Into a Community Event via Discord</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-preserve-and-organize-transforming-snaps-into-gallery-photos/"><u>[New] 2024 Approved Preserve and Organize Transforming Snaps Into Gallery Photos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-tailored-guide-for-selective-youtube-content-download-for-2024/"><u>[Updated] Tailored Guide for Selective YouTube Content Download for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-unlocking-potential-exploring-ginger-valley/"><u>[Updated] Unlocking Potential Exploring Ginger Valley</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/assessing-the-economical-aspects-of-nikons-sb-700/"><u>Assessing the Economical Aspects of Nikon's SB-700</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/beyond-the-basics-non-inshot-pc-video-tools-for-2024/"><u>Beyond the Basics Non-Inshot PC Video Tools for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-the-asus-vivobook-11-perfect-blend-of-portability-and-affordability/"><u>Comprehensive Review of the Asus Vivobook 11: Perfect Blend of Portability and Affordability</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/empowering-gameplay-with-the-perfect-apc-ups-solution/"><u>Empowering Gameplay with the Perfect APC UPS Solution</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/football-manager-2022-release-delayed-heres-how-to-access-it-now/"><u>Football Manager 2022 Release Delayed? Here's How To Access It Now</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/hero9-unveiled-excellence-in-action-cameras-with-a-price-tag/"><u>HERO9 Unveiled: Excellence in Action Cameras with a Price Tag</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/how-did-founding-the-peoples-republic-of-china-reshape-regional-dynamics-and-influence-neighboring-countries-digital-insights-by-yl-computing/"><u>How Did Founding the People's Republic of China Reshape Regional Dynamics and Influence Neighboring Countries? - Digital Insights by YL Computing</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/inside-ai-vulnerabilities-understanding-the-science-behind-prompt-injection-attacks/"><u>Inside AI Vulnerabilities: Understanding the Science Behind Prompt Injection Attacks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/iphone-vs-android-showdown-determining-the-perfect-match-for-you/"><u>IPhone Vs Android Showdown: Determining the Perfect Match for You</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lihan-lhfm1039-wireless-fm-transmitter-in-depth-review-and-how-it-enhances-your-vehicles-bluetooth-connectivity/"><u>LIHAN LHFM1039 Wireless FM Transmitter: In-Depth Review and How It Enhances Your Vehicle's Bluetooth Connectivity</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-smart-compromise-a-comprehensive-review-of-apples-iphone-se-2020/"><u>The Smart Compromise: A Comprehensive Review of Apple's iPhone SE (2020)</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/us-and-china-form-high-level-trade-task-force-amidst-controversy-reactions-from-congressional-figures/"><u>US & China Form High-Level Trade Task Force Amidst Controversy: Reactions From Congressional Figures</u></a></li>
 </ul></div>
 

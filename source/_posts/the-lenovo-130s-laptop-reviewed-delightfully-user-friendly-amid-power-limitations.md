@@ -1,7 +1,7 @@
 ---
 title: "The Lenovo 130S Laptop Reviewed: Delightfully User-Friendly Amid Power Limitations"
-date: 2024-09-04T01:42:19.269Z
-updated: 2024-09-05T01:42:19.269Z
+date: 2025-02-28T16:55:55.301Z
+updated: 2025-03-02T20:23:56.686Z
 categories:
   - BestProducts
 description: "This Article Describes The Lenovo 130S Laptop Reviewed: Delightfully User-Friendly Amid Power Limitations"
@@ -77,12 +77,6 @@ Lifewire / Rebecca Isaacs
 
  To me, the design seems a little clunky. It has smooth edges, but it’s clearly designed as a gamer’s edgy laptop cooling pad with seemingly unnecessary grooves that serve only to hold dust. If you’re looking for a simple design, this is not your cooling pad. That being said, the metal mesh pad for air circulation can accommodate laptops ranging from 14 to 17 inches thanks to its 15.87 x 11.81 x 1.34 inches (LWH) in dimension.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Fans: Wasn’t blown away
 
  I set up the cooling pad and flipped on the roller switch. HAVIT promises five quiet fans—one 110-millimeter fan, and four other strategically placed 85-millimeter fans. HAVIT holds true to its promise: This cooling pad emits a fairly faint sound I can’t hear through my Samsung Buds headphones, even with their noise cancelling features. The fans are so quiet that if I was gaming, I wasn’t able to hear them.
@@ -95,12 +89,6 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Rebecca Isaacs
 
  That’s not to say that this laptop cooling pad doesn’t help cool it down. Since my Eluktronics is getting some much-needed TLC in the shop, I tested the MSI’s internal temps while running[Tropico Six](https://www.lifewire.com/tropico-6-review-5077604) on my laptop. Without the laptop cooling pad, I was running around 187 degrees Fahrenheit. With the cooling pad, it adjusted to around 169 degrees. It’s not much, but it’s enough to make a difference.
@@ -125,20 +113,8 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lifewire / Rebecca Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
  It makes sense to compare the Kootak Laptop Cooling Pad to the HAVIT. Both have five cooling fans, both fit laptops up to 17 inches, and both offer anti-slip baffles to ensure your laptop is safe if you want to adjust the height for more air circulation or wrist angle preferences. The key differences are design and adjustability.
@@ -151,30 +127,12 @@ Lifewire / Rebecca Isaacs
 
  It’s not the best out there, but so long as it cools the internal laptop core temperatures by about 20 degrees, it’s a worthy investment. Props go to HAVIT for giving it a roller switch for ultimate adjustability and an LED light that will show how high the fans are blowing. The fans could be stronger, but quieter fans over more power is preferable.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Similar Products We've Reviewed
 
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Specs
 
 * Product Name  5 Fan Laptop Cooler
@@ -189,14 +147,11 @@ Lifewire / Rebecca Isaacs
 * Warranty  One year limited
 * Connectivity Options  USB port (one cord included)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -205,4 +160,17 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-achieving-prominence-in-online-gaming-content-for-2024/"><u>[Updated] Achieving Prominence in Online Gaming Content for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/amazon-fire-hd-8-8th-gen-assessment-delivering-value-for-money-in-an-entry-level-device/"><u>Amazon Fire HD 8 (8Th Gen) Assessment: Delivering Value for Money in an Entry-Level Device</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/amplify-your-iphones-sound-with-top-rated-podcasts/"><u>Amplify Your iPhone's Sound with Top-Rated Podcasts</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/are-you-ready-for-next-gen-ps5-or-sustained-ps4-pro-use/"><u>Are You Ready for Next-Gen? PS5 or Sustained PS4 Pro Use</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-netgear-wireless-routers-2024s-lineup-unveiled/"><u>Best NETGEAR Wireless Routers - 2024'S Lineup Unveiled</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-asus-vivobook-n-novel-review-miniaturized-power-in-an-affordable-package/"><u>Evaluating the Asus Vivobook N Novel Review: Miniaturized Power in an Affordable Package</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-filmoras-secrets-to-captivating-youtube-trailers/"><u>In 2024, Filmora's Secrets to Captivating YouTube Trailers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-focusflexzoom-7-detailed-resizing-at-a-glance/"><u>In 2024, FocusFlexZoom 7 Detailed Resizing at a Glance</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/swift-transfer-obtain-rs232-usb-drivers-at-lightning-speed/"><u>Swift Transfer: Obtain RS232-USB Drivers at Lightning Speed</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-ranked-video-game-scores-download-the-greatest-tracks-at-no-cost/"><u>Top-Ranked Video Game Scores: Download the Greatest Tracks at No Cost</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: IMac Upgrade Guide for Intel iMacs
-date: 2024-09-04T01:42:48.180Z
-updated: 2024-09-05T01:42:48.180Z
+date: 2025-03-01T20:53:26.188Z
+updated: 2025-03-03T00:14:10.937Z
 categories:
   - BestProducts
 description: This Article Describes IMac Upgrade Guide for Intel iMacs
@@ -26,12 +26,6 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 
  However, as you'll see below, you can still install Windows 11 on your Windows 8 computer. It's just not free, or as easy as it used to be.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Before You Upgrade to Windows 11
 
  Before we go any further, you need to[check if your computer can actually run Windows 11](https://www.lifewire.com/can-my-computer-run-windows-11-5207777) . You can do so by downloading a free program from Microsoft, detailed in that link. There are minimum system requirements that your PC has to meet to be eligible for the installation.
@@ -40,28 +34,10 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 
  If you'll be installing a fresh copy of Windows 11 and you want to keep your files, you'll_need_ to[back up your data](https://www.lifewire.com/ways-to-back-up-your-data-2640426) , at least the most important stuff. There will not be an option to keep them during the installation.  
 
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Upgrade Windows 8 to Windows 11
 
  There are two ways to get Windows 11 on your Windows 8 computer:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Install a Virtual Machine
 
  If you have the system resources for it, installing Windows 11_within_ Windows 8, through a[virtual machine](https://www.lifewire.com/virtual-machine-4147598) , is the quickest way to get the latest version of Windows without overwriting all your files.
@@ -70,12 +46,6 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 
 [Create a New Virtual Machine With VMware's Fusion](https://www.lifewire.com/create-new-virtual-machine-vmwares-fusion-2260218)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Install Windows 11 Over Windows 8
 
  The other option is to delete Windows 8 completely and install Windows 11 instead. We have a whole[guide on how to install Windows 11](https://www.lifewire.com/install-windows-11-5221219) that details your options. If you go this route, remember to restore your backed-up files once you get to your desktop.
@@ -84,15 +54,11 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
 
 [Should I Upgrade to Windows 11?](https://www.lifewire.com/should-you-upgrade-to-windows-11-7153359)
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -101,4 +67,22 @@ thumbnail: https://www.lifewire.com/thmb/IpK0Kt8GJQlgPr2F2qR-DRaJZdM=/400x300/fi
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-phone-pics-to-professional-videos-selecting-the-top-9-enhancers/"><u>[New] 2024 Approved From Phone Pics to Professional Videos Selecting the Top 9 Enhancers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-delving-into-vlc-screenshot-technology-for-2024/"><u>[Updated] Delving Into VLC Screenshot Technology for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-mastering-360-degree-videos-secure-youtube-uploads/"><u>2024 Approved Mastering 360-Degree Videos Secure YouTube Uploads</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/advanced-manfrotto-befree-aluminum-tripod-reliable-stability/"><u>Advanced Manfrotto Befree Aluminum Tripod: Reliable Stability</u></a></li>
+<li><a href="https://fox-links.techidaily.com/best-editors-on-smartphones-for-dji-footage-excellence-for-2024/"><u>Best Editors on Smartphones for DJi Footage Excellence for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-linksys-ac1900-mammoth-wifi-router-ideal-choice-for-all-users/"><u>Comprehensive Analysis of the Linksys AC1900 Mammoth WiFi Router – Ideal Choice for All Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-midland-lxt50ev3-assessment-high-tech-functional-handheld-radios-underwhelming-in-performance/"><u>Comprehensive Midland LXT50eV3 Assessment: High-Tech, Functional Handheld Radios Underwhelming in Performance</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/enhance-your-ps3s-vault-space-via-hardware-swap/"><u>Enhance Your PS3's Vault Space via Hardware Swap</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/frontline-focus-tripod-ideal-for-the-journeying-photographer/"><u>Frontline Focus Tripod: Ideal for the Journeying Photographer</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-sony-xperia-5-v-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Sony Xperia 5 V to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-from-iphone-11-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even From iPhone 11 If Youve Tried Everything</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/moto-g-stylus-review-great-performance-decent-battery-life-and-a-stylus/"><u>Moto G Stylus Review: Great Performance, Decent Battery Life, and a Stylus</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-ethernet-control-failure-on-windows-10/"><u>Solved Ethernet Control Failure on Windows 10</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transformez-votre-fic-amv-en-format-avi-gratuit-enligne-convertisseur-facile/"><u>Transformez Votre FIC Amv en Format Avi Gratuit Enligne - Convertisseur Facile</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-apples-m1-chip-an-in-depth-mac-mini-2e-2020-review/"><u>Unveiling the Power of Apple's M1 Chip: An In-Depth Mac Mini (2E, 2020) Review</u></a></li>
+</ul></div>
 

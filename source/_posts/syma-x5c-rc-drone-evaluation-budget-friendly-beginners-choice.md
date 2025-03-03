@@ -1,7 +1,7 @@
 ---
 title: "SYMA X5C RC Drone Evaluation: Budget-Friendly Beginner's Choice"
-date: 2025-02-08T22:55:50.795Z
-updated: 2025-02-11T17:23:53.450Z
+date: 2025-02-26T17:44:16.832Z
+updated: 2025-03-02T18:20:12.145Z
 categories:
   - BestProducts
 description: "This Article Describes SYMA X5C RC Drone Evaluation: Budget-Friendly Beginner's Choice"
@@ -43,10 +43,6 @@ Lifewire / Erika Rawes
 
 3
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## TP-Link Archer C9 Wireless Router
 
 ![TP-Link Archer C9 AC1900](https://www.lifewire.com/thmb/5L4k_oD-GKPyliYY-jL-tLQH-Uk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/TPLink_LongRangeRouters_ArcherAC1900_HeroSquare-68c63e89f59a47a2944b2a73434417e9.jpg)
@@ -73,10 +69,6 @@ Lifewire / Erika Rawes
 
  The TP-Link Archer C9 AC1900 is a budget-friendly router, so it doesn’t include too many of the features you see in newer, more expensive models. It doesn’t include[Alexa](https://www.lifewire.com/amazon-alexa-voice-assistant-4152107) control or MU-MIMO technology, but it’s supposed to provide a long signal range for larger homes, as well as support fast enough speeds for online gaming and 4K media. I tested the TP-Link AC1900 alongside several other[long range routers](https://www.lifewire.com/best-long-range-routers-4122554) to see how well it performs in the real world.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Design: Fingerprints galore**
 
  The Archer AC1900 definitely isn’t the most attractive router I’ve seen. The version I tested is black, but TP-Link also makes the C9 in white. The gloss finish gives the AC1900 a cheap look, and it, unfortunately, shows each and every smudge and fingerprint when you touch the surface. The indicator lights sit on the front face, and you can easily see the network status with a quick glance.
@@ -92,10 +84,6 @@ Lifewire / Erika Rawes
 ## **Setup: Takes less than 10 minutes**
 
  Setup is simple, and you can use the Tether app or the TP-Link site. There’s a QR code in the quick setup leaflet, so you can easily find the app. As it goes with most routers, you’ll find a temporary network name, password, and login info on the label. The app walks you through the setup process step-by-step, guiding you through creating your 2.4 and 5 GHz networks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Connectivity: Decent speeds, long range**
 
@@ -131,10 +119,6 @@ Lifewire / Erika Rawes
 
  Lifewire / Erika Rawes
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Price: A budget router**
 
  The Archer C9 AC1900 is an older model, so it’s not as readily available as it was a couple of years back. You can typically find it for around $120, which is a good price for a long-range router with its feature set.
@@ -148,10 +132,6 @@ Lifewire / Erika Rawes
  **A reliable budget router that will help prevent drop-offs.**
 
  The TP-Link Archer C9 AC1900 is a good option for those who want a reasonably fast and stable network connection, but don’t want to pay a lot of cash for extra bells and whistles.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -189,18 +169,24 @@ Lifewire / Erika Rawes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-echo-into-words-best-transcription-software-for-no-internet/"><u>[New] 2024 Approved Echo Into Words Best Transcription Software for No Internet</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-unveiling-the-magic-behind-gopro-hero5-sessions/"><u>[New] Unveiling the Magic Behind GoPro Hero5 Sessions</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-selecting-the-top-cameras-for-smooth-twitch-broadcasts/"><u>[Updated] In 2024, Selecting the Top Cameras for Smooth Twitch Broadcasts</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-recommended-frame-rates-for-professional-slow-motion-videos-for-2024/"><u>[Updated] Recommended Frame Rates for Professional Slow-Motion Videos for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/automate-creative-output-a-guide-to-canva-and-chatgpt-for-bulk-designs/"><u>Automate Creative Output: A Guide to Canva and ChatGPT for Bulk Designs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comparing-kobo-nia-with-amazon-kindle-an-in-depth-review/"><u>Comparing Kobo Nia with Amazon Kindle: An In-Depth Review</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/economical-vuebell-video-doorbell-assessment-leading-low-cost-option/"><u>Economical VueBell Video Doorbell Assessment: Leading Low-Cost Option</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/explore-the-powerhouse-behind-home-networking-in-depth-review-of-linksys-wrt3200acm-leading-open-source-routers-unveiled/"><u>Explore the Powerhouse Behind Home Networking: In-Depth Review of Linksys WRT3200ACM – Leading Open Source Routers Unveiled</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-nokia-c210-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Nokia C210 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/mastering-aerial-photography-how-the-dji-mavic-2-pro-leads-professional-drone-use/"><u>Mastering Aerial Photography: How the DJI Mavic 2 Pro Leads Professional Drone Use</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/run-faster-track-better-garmin-forerunner/"><u>Run Faster, Track Better: Garmin Forerunner</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/spark-viewers-attention-with-these-10-youtube-responses-for-2024/"><u>Spark Viewer's Attention with These 10 YouTube Responses for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/your-windows-11-device-wont-be-supported-next-year-discover-five-essential-options-before-its-too-late-zdnet/"><u>Your Windows 11 Device Won't Be Supported Next Year. Discover Five Essential Options Before It's Too Late | ZDNET</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-the-great-debate-continues-is-bandicam-or-camtasia-better/"><u>[Updated] 2024 Approved The Great Debate Continues Is Bandicam or Camtasia Better?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-expanding-digital-presence-stream-to-youtube-plus-additional-platforms-for-2024/"><u>[Updated] Expanding Digital Presence Stream to YouTube + Additional Platforms for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-prime-tiktok-tools-for-impeccable-video-creation/"><u>[Updated] In 2024, Prime TikTok Tools for Impeccable Video Creation</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-utilizing-top-users-to-increase-visibility-for-2024/"><u>[Updated] Utilizing Top Users to Increase Visibility for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-to-make-time-lapse-videos-with-gopro-studio/"><u>2024 Approved How to Make Time Lapse Videos With GoPro Studio</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/a-comprehensible-approach-to-personal-branding-in-the-youtube-sphere/"><u>A Comprehensible Approach to Personal Branding in the YouTube Sphere</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/best-mobile-device-iphone-or-samsung-galaxy-for-your-next-purchase/"><u>Best Mobile Device : IPhone or Samsung Galaxy for Your Next Purchase?</u></a></li>
+<li><a href="https://win-blog.techidaily.com/boost-your-gameplay-experience-in-dragons-dogma-2-by-overcoming-low-fps-issues-and-stutter/"><u>Boost Your Gameplay Experience in Dragon's Dogma 2 by Overcoming Low FPS Issues and Stutter</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/boosting-your-pcs-visual-power-graphics-card-upgrades/"><u>Boosting Your PC's Visual Power: Graphics Card Upgrades</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/deciding-between-streamers-is-it-chromecast-or-roku-that-reigns-supreme/"><u>Deciding Between Streamers: Is It Chromecast or Roku That Reigns Supreme?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-display-apple-iphone-13-pro-max-screen-on-pc-easily-drfone-by-drfone-ios/"><u>In 2024, How to Display Apple iPhone 13 Pro Max Screen on PC Easily? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-yuva-3-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Yuva 3 to Outlook | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-seamlessly-explore-facebooks-past-content/"><u>In 2024, Seamlessly Explore Facebook's Past Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-mobvoi-ticwatch-pro-3-with-gps-and-dual-screens-a-game-changer-for-battery-efficiency/"><u>In-Depth Analysis of Mobvoi TicWatch Pro 3 with GPS and Dual Screens – A Game Changer for Battery Efficiency</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/m1-revolution-unveiling-apples-2020-macbook-pro-13-inch-transformation/"><u>M1 Revolution: Unveiling Apple's 2020 MacBook Pro 13-Inch Transformation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-faceoff-how-the-iphone-15-pro-stacks-up-to-the-pro-max/"><u>The Ultimate Faceoff: How the iPhone 15 Pro Stacks Up to the Pro Max</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-portable-energy-givers-for-cars-2024/"><u>Top Portable Energy Givers for Cars 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-step-by-step-imac-intel-hardware-upgrade-tips-and-tricks/"><u>Ultimate Step-by-Step iMac (Intel) Hardware Upgrade Tips and Tricks</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unleashing-blistering-wireless-speeds-with-netgear-nighthawk-rax120-a-comprehensive-overview/"><u>Unleashing Blistering Wireless Speeds with Netgear Nighthawk RAX120 - A Comprehensive Overview</u></a></li>
 </ul></div>
 

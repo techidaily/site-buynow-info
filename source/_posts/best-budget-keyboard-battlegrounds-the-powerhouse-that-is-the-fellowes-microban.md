@@ -1,7 +1,7 @@
 ---
 title: "Best Budget Keyboard Battlegrounds: The Powerhouse That Is the Fellowes Microban"
-date: 2024-08-26T06:26:47.317Z
-updated: 2024-08-27T06:26:47.317Z
+date: 2025-02-27T17:16:08.067Z
+updated: 2025-03-02T18:51:11.562Z
 categories:
   - BestProducts
 description: "This Article Describes Best Budget Keyboard Battlegrounds: The Powerhouse That Is the Fellowes Microban"
@@ -43,9 +43,6 @@ Lifewire / Emily Isaacs
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 Lifewire / Emily Isaacs
@@ -68,16 +65,10 @@ Lifewire / Emily Isaacs
 
  You can tell Microsoft put a considerable amount of thought into the Sculpt Ergonomic Keyboard’s design. From the manta ray style folds, which keep shoulders and hands at a relaxed, comfortable angle, to the detached numpad and magnetized risers for increased customization options when you want them, the Sculpt is quite the package. As with anything new, it took a period of adjustment, but we found it relatively quick thanks to the intuitive, easy-to-use design.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Design: Made for comfort**
 
  The Sculpt is an ergonomic keyboard with a split design akin to that of a manta ray. The two halves of the keyboard sweep outwards and downwards creating an empty, raised space in the center of its swoop design. Its keys vary in size, with those nearest to the split being slightly wider than those on the outer edges of the keyboard. It’s largely made with plastic and has a bit of a clacky sound as you type. The Sculpt employs a standard layout with a fabric wrist pad at the front for extra comfort. This intuitive, split design combined with the wrist pad help your wrists, hands, and shoulders sit at a neutral, natural angle in order to[alleviate repetitive stress injuries](https://www.lifewire.com/game-play-and-streaming-4781449) that frequent typists are prone to over time.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
  Lifewire / Emily Isaacs
@@ -88,9 +79,6 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -109,9 +97,6 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
@@ -120,9 +105,6 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## **Microsoft Sculpt Ergonomic Keyboard vs. Microsoft Surface Ergonomic Keyboard**
 
  The Sculpt’s main competition is the Microsoft Surface Ergonomic Keyboard. It’s a split-style ergonomic keyboard that connects wirelessly to a PC. Instead of using plastic materials, the Surface has a higher quality build that is not only more comfortable but slightly more sound-absorbent as well. And, better yet, the Surface uses the fan-favorite Alcantara fabric, an Italian material with a suede-like feel to it, as part of its wrist pad which makes it incredibly comfortable. Its numpad is attached, however, and it doesn’t include a magnetic riser. If you prefer your wrist sitting at a raised, more neutral angle, or if you like the idea of a detached numpad, the Sculpt is the clear winner here.
@@ -133,9 +115,6 @@ Lifewire / Emily Isaacs
 
 [Microsoft Surface Ergonomic Keyboard Review](https://www.lifewire.com/microsoft-surface-ergonomic-keyboard-review-4780282)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/vn9L7kezNDVwJaDwHzeLbefGfDA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_04-df81d8c1ef3c4387ab900dfa381e1e0f.jpg)
 
  Lifewire / Emily Isaacs
@@ -171,8 +150,6 @@ Lifewire / Emily Isaacs
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -180,4 +157,20 @@ Lifewire / Emily Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-renowned-backdrop-alternatives-pixelpioneers-secret/"><u>[New] Renowned Backdrop Alternatives PixelPioneer's Secret</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-turn-your-twitter-videos-into-listenable-mp3s/"><u>[New] Turn Your Twitter Videos Into Listenable MP3s</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-epic-battle-royale-thumbnails-done-fast/"><u>[Updated] Epic Battle Royale Thumbnails, Done Fast</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-simplifying-social-media-your-guide-to-facebook-youtube-syncing/"><u>[Updated] In 2024, Simplifying Social Media Your Guide to Facebook-YouTube Syncing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-freefire-the-30-best-tag-strategies-to-increase-views/"><u>[Updated] Mastering FreeFire The 30 Best Tag Strategies to Increase Views</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comparing-macbook-models-key-distinctions-between-air-and-pro/"><u>Comparing MacBook Models: Key Distinctions Between Air and Pro</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-review-of-latest-upgrades-on-classic-looking-samsung-galaxy-watch5/"><u>Comprehensive Review of Latest Upgrades on Classic-Looking Samsung Galaxy Watch5</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-exceptional-performance-of-cycwagens-latest-cargo-e-bike-model/"><u>Discover the Exceptional Performance of CycWagen's Latest Cargo E-Bike Model</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-value-and-functionality-in-the-tp-link-archer-c50-router-the-budget-winner/"><u>Exploring Value and Functionality in the TP-Link Archer C50 Router: The Budget Winner</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/petcube-lights-up-affordable-hd-viewing-experience/"><u>Petcube Lights Up Affordable HD Viewing Experience</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-the-mystery-effective-ways-to-resolve-gsdll32dll-file-absent-issues/"><u>Solving the Mystery: Effective Ways to Resolve gsdll32.dll File Absent Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/sonys-hdrcx405-top-budget-hd-video-maker-reviewed/"><u>Sony's HDRCX405: Top Budget HD Video Maker Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-smart-explorers-choice-premium-vr-gear-ranked-for-2024/"><u>The Smart Explorer's Choice Premium VR Gear Ranked for 2024</u></a></li>
+</ul></div>
 
